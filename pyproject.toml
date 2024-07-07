@@ -1,0 +1,18 @@
+[tool.poetry]
+name = "rag_pmg"
+version = "0.1.0"
+description = "This project builds a RAG system using the preach my gospel manual"
+authors = ["promise-emmanuel-20 <promiseemmanuel2019@gmail.com>"]
+
+[tool.poetry.dependencies]
+python = "^3.11"
+unstructured-client = "^0.23.8"
+mydependency = "^0.0.0"
+PyMuPDF = "^1.24.7"
+
+[tool.poetry.dev-dependencies]
+ipykernel = "^6.29.5"
+
+[build-system]
+requires = ["poetry-core>=1.0.0"]
+build-backend = "poetry.core.masonry.api"
