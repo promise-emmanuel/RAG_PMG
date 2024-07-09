@@ -1,74 +1,29 @@
-![see page 1](#)
-A Guide to Missionary Service
-=============================
-
-
-Preach My Gospel
-================
-
-
-(D&C 50:14)
-“Repent, all ye ends of the earth, and come unto me and be baptized in my name,
-
-
-that ye may be sanctified by the reception of the Holy Ghost” (3 Nephi 27:20).
-
-
-.-
-![see page 2](#)
-Name: Mission and Dates of Service: List of Areas: Companions:
-
-
-Names and Addresses of People Baptized and Confirmed:
-
-
-![see page 3](#)
-Preach My Gospel (D&C 50:14)
+Preach My Gospel (D&C 50:14) (Page5)
 ============================
 
 
-Published by The Church of Jesus Christ of Latter-day Saints Salt Lake City, Utah
-
-
-![see page 4](#)
-Cover: John the Baptist Baptizing Jesus © 1988 by Greg K. Olsen Courtesy Mill Pond Press and Dr. Gerry Hooper. Do not copy.
-
-
-© 2004 by Intellectual Reserve, Inc. All rights reserved
-
-
-Printed in the United States of America English approval: 01/05
-
-
-![see page 5](#)
-Preach My Gospel (D&C 50:14)
-============================
-
-
-
-
-|  | First Presidency Message |  |
+| Chapters | First Presidency Message | page no |
 | --- | --- | --- |
 |  | Introduction: How Can I Best Use Preach My Gospel? | vii |
-|  | What Is My Purpose as a Missionary? .................................... | 1 |
-|  | How Do I Study Effectively and Prepare to Teach? ......................... | 17 |
-|  | What Do I Study and Teach? | 29 |
-| ¢ Lesson 1: The Message of the Restoration of the Gospel of Jesus Christ | 31 |
-| ¢ Lesson 2: The Plan of Salvation | 47 |
-| ¢ Lesson 3: The Gospel of Jesus Christ | 60 |
-| ¢ Lesson 4: The Commandments | 71 |
-|  | \* Lesson 5: Laws and Ordinances | 82 |
-|  | How Do I Recognize and Understand the Spirit? .......................... | 89 |
-|  | What Is the Role of the Book of Mormon? . .............. ... ... | 103 |
-|  | How Do I Develop Christlike Attributes? | 115 |
-|  | How Can I Better Learn My Mission Language? | 127 |
-|  | How Do I Use Time Wisely? ..................... ... ..., | 137 |
-|  | How Do I Find People to Teach? | 155 |
-| 10 | How Can I Improve My Teaching Skills? ................................ | 175 |
-| 11 | How Do I Help People Make and Keep Commitments? ................... | 195 |
+| 1 | What Is My Purpose as a Missionary? | 1 |
+| 2 | How Do I Study Effectively and Prepare to Teach? | 17 |
+| 3 | What Do I Study and Teach? | 29 |
+|  | - Lesson 1: The Message of the Restoration of the Gospel of Jesus Christ | 31 |
+|  | - Lesson 2: The Plan of Salvation | 47 |
+|  | - Lesson 3: The Gospel of Jesus Christ | 60 |
+|  | - Lesson 4: The Commandments | 71 |
+|  | - \* Lesson 5: Laws and Ordinances | 82 |
+| 4 | How Do I Recognize and Understand the Spirit? | 89 |
+| 5 | What Is the Role of the Book of Mormon? | 103 |
+| 6 | How Do I Develop Christlike Attributes? | 115 |
+| 7 | How Can I Better Learn My Mission Language? | 127 |
+| 8 | How Do I Use Time Wisely? | 137 |
+| 9 | How Do I Find People to Teach? | 155 |
+| 10 | How Can I Improve My Teaching Skills? | 175 |
+| 11 | How Do I Help People Make and Keep Commitments? | 195 |
 | 12 | How Do I Prepare People for Baptism and Confirmation? | 203 |
-| 13 | How Do I Work with Stake and Ward Leaders? .......................... | 213 |
-| Index | 225 |
+| 13 | How Do I Work with Stake and Ward Leaders? | 213 |
+|  |Index | 225 |
 
 
 iii
