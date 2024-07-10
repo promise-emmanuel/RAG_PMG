@@ -1,6 +1,4 @@
-Preach My Gospel (D&C 50:14) (Page5)
-============================
-
+## Preach My Gospel (D&C 50:14) (Page iii)
 
 | Chapters | First Presidency Message | page no |
 | --- | --- | --- |
@@ -8,11 +6,11 @@ Preach My Gospel (D&C 50:14) (Page5)
 | 1 | What Is My Purpose as a Missionary? | 1 |
 | 2 | How Do I Study Effectively and Prepare to Teach? | 17 |
 | 3 | What Do I Study and Teach? | 29 |
-|  | - Lesson 1: The Message of the Restoration of the Gospel of Jesus Christ | 31 |
-|  | - Lesson 2: The Plan of Salvation | 47 |
-|  | - Lesson 3: The Gospel of Jesus Christ | 60 |
-|  | - Lesson 4: The Commandments | 71 |
-|  | - \* Lesson 5: Laws and Ordinances | 82 |
+|  | <li>Lesson 1: The Message of the Restoration of the Gospel of Jesus Christ</li> | 31 |
+|  | <li>Lesson 2: The Plan of Salvation</li> | 47 |
+|  | <li>Lesson 3: The Gospel of Jesus Christ</li> | 60 |
+|  | <li>Lesson 4: The Commandments</l1? | 71 |
+|  | Lesson 5: Laws and Ordinances | 82 |
 | 4 | How Do I Recognize and Understand the Spirit? | 89 |
 | 5 | What Is the Role of the Book of Mormon? | 103 |
 | 6 | How Do I Develop Christlike Attributes? | 115 |
@@ -25,253 +23,110 @@ Preach My Gospel (D&C 50:14) (Page5)
 | 13 | How Do I Work with Stake and Ward Leaders? | 213 |
 |  |Index | 225 |
 
-
-iii
-![see page 6](#)
-![see page 7](#)
-First Presidency Message
-========================
-
-
+## First Presidency Message (Page V)
 Dear Fellow Missionary:
-=======================
-
 
 We compliment you on the great opportunity you have to be a missionary. There is no more compelling work than this, nor any which brings greater satisfaction.
-
-
 Preach My Gospel is intended to help you be a better-prepared, more spiritually mature missionary and a more persuasive teacher. We urge you to use it daily in your personal and companion preparation, and in your district meetings and zone conferences. Study the referenced scriptures and learn the doctrines and principles.
-
 
 We challenge you to rise to a new sense of commitment to assist our Father in Heaven in His glorious work. Every missionary has an important role in helping “to bring to pass the immortality and eternal life of man” (Moses 1:39).
 
-
 The Lord will reward and richly bless you as you humbly and prayerfully serve Him. More happiness awaits you than you have ever experienced as you labor among His children.
-
-
 The First Presidency
 
+## Introduction: How Can I Best Use Preach My Gospel? (Page Vii)
+### Preach My Gospel
+Use preach my gospel to meets your needs as a missionary. You can spend an entire study session on just a few paragraphs—or an entire chapter. You can study chapters in order or plan another sequence that better meets your needs. This flexibility allows you to study what you need when you need it and as directed by your mission president.
 
-v
-=
+All of the chapters in Preach My Gospel will help prepare you to fulfill your purpose as a missionary. However, as you begin to study chapter 3, you may sense a difference in approach. Most of the chapters are addressed to you. Chapter 3 is addressed to a more general audience. You learn the doctrines in chapter 3 
+- To strengthen your own gospel knowledge and testimony
+- To teach others and prepare them to make and keep commitments and covenants.
 
-
-![see page 8](#)
-Introduction
-============
-
-
-Introduction: How Can I Best Use Preach My Gospel?
-==================================================
-
-
-Notes
-
-
-Preach My Gospel
-================
-
-
-missionary. You can spend an entire study session on just a few paragraphs—or an entire chapter. You can study chapters in order or plan another sequence that better meets your needs. This flexibility allows you to study what you need when you need it and as directed by your mission president.
-
-
-All of the chapters in Preach My Gospel will help prepare you to fulfill your purpose as a missionary. However, as you begin to study chapter 3, you may sense a difference in approach. Most of the chapters are addressed to you. Chapter 3 is addressed to a more general audience. You learn the doctrines in chapter 3 (a) to strengthen your own gospel knowledge and testimony and (b) to teach others and prepare them to make and keep commitments and covenants.
-
-
-![see page 9](#)
 The doctrines in some of the other chapters may also help you teach investigators and new members. For example, chapter 4, “How Do I Recognize and Understand the Spirit?” may help you teach some investigators about how to gain a testimony by the power of the Holy Ghost. Chapter 5, “What Is the Role of the Book of Mormon?” may help you resolve an investigator’s concerns about reading the Book of Mormon. Ideas from chapter 2, “How Do I Study Effectively and Prepare to Teach?” may help new converts gain more from their study of the Book of Mormon.
 
-
-Preach My Gospel focuses on the fundamentals of missionary work. It does not answer every question or situation you will encounter. You will be most effective as you follow the Spirit, search the scriptures, keep the commandments, and apply what you learn.
-
-
+Preach My Gospel focuses on the fundamentals of missionary work. It does not answer every question or situation you will encounter. You will be most effective as you follow the Spirit, search the scriptures, keep the commandments, and apply what you learn. 
 Study the chapters throughout your mission. Apply what you learn. Evaluate your work. Missionaries who strive to prepare themselves daily and seek to improve regularly will receive direction from the Holy Ghost and see blessings in their lives.
 
 
-The Missionary Lessons
-======================
-
-
+### The Missionary Lessons (Page vii)
 You have the flexibility to teach the lessons in whatever way best helps people fully prepare for their baptism and confirmation. Your purpose is not only to cover the material; it is to help others come unto Christ through faith in Jesus Christ, repentance, baptism, receiving the gift of the Holy Ghost, and enduring to the end. Rarely should a lesson go over 45 minutes. You may find that time may only allow shorter teaching visits. In this case, you may need frequent, short teaching visits covering smaller portions of material.
-
 
 You can teach the lessons in many ways. Which lesson you teach, when you teach it, and how much time you give to it are best determined by the needs of the investigator and the direction of the Spirit. Do not memorize the entire lesson.
 
 
-vii
-===
-
-
-Introduction
-
-
-Notes
-
-
-Personal Study, Companion Study, District Meetings, and Zone Conferences
-========================================================================
-
-
+### Personal Study, Companion Study, District Meetings, and Zone Conferences (Page viii)
 Effective study during your mission will help you fulfill your purpose as a missionary and strengthen your testimony of the gospel of Jesus Christ. Four of your most important study opportunities are personal study, companion study, district meetings, and zone conferences. Your daily schedule includes time for personal and companion study every day.
 
+#### Missionary Daily Schedule
+- 6:30 a.m. Arise, pray, exercise (30 minutes), and prepare for the day.
 
-Missionary Daily Schedule\*
-===========================
+- 7:30 a.m. Breakfast.
 
+- 8:00 a.m. Personal study: the Book of Mormon, other scriptures, doctrines of the missionary lessons, other chapters from Preach My Gospel, the Missionary Handbook, and the Missionary Health Guide.
 
-6:30 a.m. Arise, pray, exercise (30 minutes), and prepare for the day.
+- 9:00 a.m. Companion study: share what you have learned during personal study, prepare to teach, practice teaching, study chapters from Preach My Gospel, confirm plans for the day.
 
-
-7:30 a.m. Breakfast.
-
-
-8:00 a.m. Personal study: the Book of Mormon, other scriptures, doctrines of the missionary lessons, other chapters from Preach My Gospel, the Missionary Handbook, and the Missionary Health Guide.
-
-
-9:00 a.m. Companion study: share what you have learned during personal study, prepare to teach, practice teaching, study chapters from Preach My Gospel, confirm plans for the day.
-
-
-10:00 a.m. Begin proselyting. Missionaries learning a language study that language for an additional 30 to 60 minutes, including planning language learning activities to use during the day.
-
-
+- 10:00 a.m. Begin proselyting. Missionaries learning a language study that language for an additional 30 to 60 minutes, including planning language learning activities to use during the day.
 Missionaries may take an hour for lunch and additional study, and an hour for dinner at times during the day that fit best with their proselyting. Normally dinner should be finished no later than 6:00 p.m.
 
+- 9:00 p.m. Return to living quarters (unless teaching a lesson; then return by 9:30) and plan the next day’s activities (30 minutes). Write in journal, prepare for bed, pray.
 
-9:00 p.m. Return to living quarters (unless teaching a lesson; then return by 9:30) and plan the next day’s activities (30 minutes). Write in journal, prepare for bed, pray.
-
-
-10:30 p.m. Retire to bed.
-
+- 10:30 p.m. Retire to bed.
 
 \*In consultation with the Presidency of the Seventy or the Area Presidency, your mission president may modify this schedule to meet local circumstances.
 
 
-in companion study, district meeting, and zone conferences, where you can “teach one another the doctrine of the kingdom” (D&C 88:77). What you gain from your study sessions and district meetings will help you teach with spiritual power.
+What you learn in personal study will help you in companion study, district meeting, and zone conferences, where you can “teach one another the doctrine of the kingdom” (D&C 88:77). What you gain from your study sessions and district meetings will help you teach with spiritual power.
 
+#### Personal Study (page viii)
 
-Personal Study
-==============
+The purpose of personal study is to strengthen your knowledge and testimony of the restored gospel and help you prepare to meet the needs of those you teach. In your personal study, focus on the standard works and the approved missionary library:
 
-
-your knowledge and testimony of the restored gospel and help you prepare to meet the needs of those you teach. In your personal study, focus on the standard works and the approved missionary library:
-
-
-* Jesus the Christ
-
-
-• Our Heritage
-
-
-• Our Search for Happiness
-
-
-* True to the Faith
-
-
-![see page 10](#)
-viii
-Introduction
+- Jesus the Christ
+- Our Heritage
+- Our Search for Happiness
+- True to the Faith
 
 
 You can make personal study effective as you:
+- Read from the Book of Mormon and other scriptures.
+- Study the doctrines of the missionary lessons.
+- Study other chapters from Preach My Gospel.
 
 
-• Read from the Book of Mormon and other scriptures.
-
-
-• Study the doctrines of the missionary lessons.
-
-
-• Study other chapters from Preach My Gospel.
-
-
-Companion Study
-===============
-
-
+#### Companion Study (Page ix)
 The purpose of companion study is to (1) build unity in your companionship in order to teach by the Spirit and (2) focus on the progress of those you teach. You can make companion study effective as you:
 
+- Share insights with each other from personal study.
+- Prepare for specific teaching appointments, member visits, finding opportunities, and other activities. Study material that helps you teach, find, and work more effectively. Discuss the people with whom you are working. Make plans to apply what you are learning.
+- Throughout the day, continue to discuss the principles, goals, skills, and plans from companion study.
 
-• Share insights with each other from personal study.
-
-
-• Prepare for specific teaching appointments, member visits, finding opportunities, and other activities. Study material that helps you teach, find, and work more effectively. Discuss the people with whom you are working. Make plans to apply what you are learning.
-
-
-• Throughout the day, continue to discuss the principles, goals, skills, and plans from companion study.
-
-
-District Meetings
-=================
-
-
+#### District Meetings (page ix)
 The purpose of district meeting is to “teach one another the doctrine of the kingdom” (D&C 88:77).
+- District meetings are held each week for 60 to 90 minutes.
+- The district leader plans and conducts the district meeting and may invite other missionaries to help teach.
+- District meetings may include:
+  – Sharing insights from personal and companion study.
+  – Practicing the lessons in various settings.
+  – Explaining, demonstrating, and practicing principles and skills described in Preach My Gospel.
+  – Discussing the progress and needs of investigators.
+  – Discussing and addressing challenges in the district.
+  – Sharing experiences and testimonies of missionary work.
+- District leaders may use district meeting to receive reports regarding the efforts of missionaries in the district. They should not set goals or quotas for other missionaries.
 
 
-• District meetings are held each week for 60 to 90 minutes.
-
-
-• The district leader plans and conducts the district meeting and may invite other missionaries to help teach.
-
-
-• District meetings may include:
-
-
-– Sharing insights from personal and companion study.
-
-
-– Practicing the lessons in various settings.
-
-
-– Explaining, demonstrating, and practicing principles and skills described in Preach My Gospel.
-
-
-– Discussing the progress and needs of investigators.
-
-
-– Discussing and addressing challenges in the district.
-
-
-– Sharing experiences and testimonies of missionary work.
-
-
-• District leaders may use district meeting to receive reports regarding the efforts of missionaries in the district. They should not set goals or quotas for other missionaries.
-
-
-Zone Conferences
-================
-
-
+#### Zone Conferences (Page ix)
 Zone conferences are held under the direction of the mission president.
 
 
-Features of Preach My Gospel
-============================
-
-
+### Features of Preach My Gospel
 Each chapter in Preach My Gospel has several features. These features should help you get more from your study—not force you to learn a certain way. Use these features in a flexible manner based on your needs.
 
-
-Notes
------
-
-
-ix
-Introduction
-============
-
-
-Notes
-
-
-Study Journal
-=============
-
-
+#### Study Journal (Page X)
 Preach My Gospel frequently asks that you use a study journal to help you understand, clarify, and remember what you are learning. Elder Richard G. Scott taught, “Knowledge carefully recorded is knowledge available in time of need. Spiritually sensitive information should be kept in a sacred place that communicates to the Lord how you treasure it. This practice enhances the likelihood of your receiving further light” (“Acquiring Spiritual Knowledge,” Ensign, Nov. 1993, 86). Review your study journal to recall spiritual experiences, see new insights, and recognize your growth.
 
 
-your thoughts and impressions in a way that fits how you learn. Develop your own system to easily access key information in the future. Use it often to review, access, and apply what you have learned. Use your study journal to take notes and record impressions during your personal and companion study, district meetings, zone conferences, and interviews with the mission president.
+Your study journal may be a bound journal, a notebook, or a binder. Record and organize your thoughts and impressions in a way that fits how you learn. Develop your own system to easily access key information in the future. Use it often to review, access, and apply what you have learned. Use your study journal to take notes and record impressions during your personal and companion study, district meetings, zone conferences, and interviews with the mission president.
 
 
 Information Boxes
@@ -15153,20 +15008,6 @@ ponder in preparation for the next meeting.
 
 repentance and will strengthen their faith in the Savior. • Love the Lord and serve Him the very best you can.
 
-
-![see page 243](#)
-THE CHURCH OF JESUS CHRIST OF LATTER-DAY SAINTS
-
-
-OF LATTER-DAY SAINTS
-
-
-4
-ENGLISH
-=======
-
-
-![see page 244](#)
 02366 17000
 36617
 5
