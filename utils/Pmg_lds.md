@@ -1,3 +1,4 @@
+
 ## Preach My Gospel (D&C 50:14) (Page 5)
 
 | Chapters | First Presidency Message | page no |
@@ -24,6 +25,7 @@
 |  |Index | 225 |
 
 ## First Presidency Message (Page 7)
+
 Dear Fellow Missionary:
 
 We compliment you on the great opportunity you have to be a missionary. There is no more compelling work than this, nor any which brings greater satisfaction.
@@ -35,7 +37,9 @@ The Lord will reward and richly bless you as you humbly and prayerfully serve Hi
 The First Presidency
 
 ## Introduction: How Can I Best Use Preach My Gospel? (Page 9)
+
 ### Preach My Gospel
+
 Use preach my gospel to meets your needs as a missionary. You can spend an entire study session on just a few paragraphs—or an entire chapter. You can study chapters in order or plan another sequence that better meets your needs. This flexibility allows you to study what you need when you need it and as directed by your mission president.
 
 All of the chapters in Preach My Gospel will help prepare you to fulfill your purpose as a missionary. However, as you begin to study chapter 3, you may sense a difference in approach. Most of the chapters are addressed to you. Chapter 3 is addressed to a more general audience. You learn the doctrines in chapter 3 
@@ -48,15 +52,18 @@ Preach My Gospel focuses on the fundamentals of missionary work. It does not ans
 Study the chapters throughout your mission. Apply what you learn. Evaluate your work. Missionaries who strive to prepare themselves daily and seek to improve regularly will receive direction from the Holy Ghost and see blessings in their lives.
 
 ### The Missionary Lessons (Page 9)
+
 You have the flexibility to teach the lessons in whatever way best helps people fully prepare for their baptism and confirmation. Your purpose is not only to cover the material; it is to help others come unto Christ through faith in Jesus Christ, repentance, baptism, receiving the gift of the Holy Ghost, and enduring to the end. Rarely should a lesson go over 45 minutes. You may find that time may only allow shorter teaching visits. In this case, you may need frequent, short teaching visits covering smaller portions of material.
 
 You can teach the lessons in many ways. Which lesson you teach, when you teach it, and how much time you give to it are best determined by the needs of the investigator and the direction of the Spirit. Do not memorize the entire lesson.
 
 
 ### Personal Study, Companion Study, District Meetings, and Zone Conferences (Page 10)
+
 Effective study during your mission will help you fulfill your purpose as a missionary and strengthen your testimony of the gospel of Jesus Christ. Four of your most important study opportunities are personal study, companion study, district meetings, and zone conferences. Your daily schedule includes time for personal and companion study every day.
 
 #### Missionary Daily Schedule
+
 - 6:30 a.m. Arise, pray, exercise (30 minutes), and prepare for the day.
 
 - 7:30 a.m. Breakfast.
@@ -94,6 +101,7 @@ You can make personal study effective as you:
 
 
 #### Companion Study (Page 11)
+
 The purpose of companion study is to (1) build unity in your companionship in order to teach by the Spirit and (2) focus on the progress of those you teach. You can make companion study effective as you:
 
 - Share insights with each other from personal study.
@@ -101,6 +109,7 @@ The purpose of companion study is to (1) build unity in your companionship in or
 - Throughout the day, continue to discuss the principles, goals, skills, and plans from companion study.
 
 #### District Meetings (Page 11)
+
 The purpose of district meeting is to “teach one another the doctrine of the kingdom” (D&C 88:77).
 - District meetings are held each week for 60 to 90 minutes.
 - The district leader plans and conducts the district meeting and may invite other missionaries to help teach.
@@ -115,34 +124,43 @@ The purpose of district meeting is to “teach one another the doctrine of the k
 
 
 #### Zone Conferences (Page 11)
+
 Zone conferences are held under the direction of the mission president.
 
 
 ### Features of Preach My Gospel (Page 11)
+
 Each chapter in Preach My Gospel has several features. These features should help you get more from your study—not force you to learn a certain way. Use these features in a flexible manner based on your needs.
 
 #### Study Journal (Page 12)
+
 Preach My Gospel frequently asks that you use a study journal to help you understand, clarify, and remember what you are learning. Elder Richard G. Scott taught, “Knowledge carefully recorded is knowledge available in time of need. Spiritually sensitive information should be kept in a sacred place that communicates to the Lord how you treasure it. This practice enhances the likelihood of your receiving further light” (“Acquiring Spiritual Knowledge,” Ensign, Nov. 1993, 86). Review your study journal to recall spiritual experiences, see new insights, and recognize your growth.
 
 
 Your study journal may be a bound journal, a notebook, or a binder. Record and organize your thoughts and impressions in a way that fits how you learn. Develop your own system to easily access key information in the future. Use it often to review, access, and apply what you have learned. Use your study journal to take notes and record impressions during your personal and companion study, district meetings, zone conferences, and interviews with the mission president.
 
 #### Ideas for Study and Application (Page 13)
+
 Each chapter concludes with additional ideas for personal study, companion study, district meetings, and zone conferences. This rich resource of learning activities provides examples of effective ways to learn the material. Be creative and seek inspiration to create additional activities each time you study or teach one of these sections. Complete these activities several times during your mission.
 
 ### Missionaries Serving in Branches and Districts (Page 13)
+
 Many missionaries serve in branches and districts. Although this manual refers to wards and stakes, the same principles and approaches apply to branches and districts. The mission president will instruct you on any adjustments to make when working with branch and district leaders.
 
 
 ### Use by Ward Missionaries and Leaders (Page 13)
+
 Preach My Gospel is for the full-time missionaries of the Church. However, the principles and doctrines taught herein are also applicable to ward missionaries and leaders as they seek to build the Lord’s kingdom. Frequent study of this manual will enable them to fulfill their responsibilities as member missionaries and will foster unity with the full-time missionaries.
 
 
 ## What Is My Purpose as a Missionary? (Page 15)
+
 ### Your Purpose (Page 15)
+
 Invite others to come unto Christ by helping them receive the restored gospel through faith in Jesus Christ and His Atonement, repentance, baptism, receiving the gift of the Holy Ghost, and enduring to the end.
 
 #### Consider This (Page 15)
+
 - What is my purpose as a missionary?
 - What is the gospel?
 - Why do we preach the gospel?
@@ -155,6 +173,7 @@ Invite others to come unto Christ by helping them receive the restored gospel th
 
 
 ### Your Commission to Teach the Restored Gospel of Jesus Christ (Page 15)
+
 You are surrounded by people. You pass them on the street, visit them in their homes, and travel among them. All of them are children of God, your brothers and sisters. God loves them just as He loves you. Many of these people are searching for purpose in life. They are concerned for their families. They need the sense of belonging that comes from the knowledge that they are children of God, members of His eternal family. They want to feel secure in a world of changing values. They want “peace in this world, and eternal life in the world to come” (D&C 59:23), but they are “kept from the truth because they know not where to find it” (D&C 123:12).
 The gospel of Jesus Christ as restored through the Prophet Joseph Smith will bless their families, meet their spiritual needs, and help them fulfill their deepest desires. Although they may not know why, they need relief from feelings of guilt that come from mistakes and sins. They need to experience the joy of redemption by receiving forgiveness of their sins and enjoying the gift of the Holy Ghost.
 
@@ -168,20 +187,22 @@ You are called to represent Jesus Christ in helping people become clean from the
 
 
 #### Activity: Personal or Companion Study (Page 16)
+
 Examine the picture of the tree of life and as you study the vision of the tree of life found in 1 Nephi 8 and 11. In this vision, the tree of life symbolizes the love of God (see 1 Nephi 11:21–22).
 - In the vision, what did the people need to do to be able to partake of the fruit? What do we need to do to receive all the blessings of the Atonement? In what ways do commitments and covenants help us partake of these blessings?
 - As a missionary, what is your duty in helping others find and partake of the fruits of the gospel?
 - What did Lehi desire after he had eaten the fruit? (See 1 Nephi 8:10–18.)
 
 ### The Gospel Blesses Families (Page 17)
-The message of the Restoration of the gospel of Jesus Christ blesses families. Because of the Restoration we understand God’s purpose for families: “The divine plan of happiness enables family relationships to be perpetuated beyond the grave. Sacred ordinances and covenants available in holy temples make it possible for individuals to return to the presence of God and for families to be united eternally” (“The Family: A Proclamation to the World,” Ensign, Nov. 1995, 102).
 
+The message of the Restoration of the gospel of Jesus Christ blesses families. Because of the Restoration we understand God’s purpose for families: “The divine plan of happiness enables family relationships to be perpetuated beyond the grave. Sacred ordinances and covenants available in holy temples make it possible for individuals to return to the presence of God and for families to be united eternally” (“The Family: A Proclamation to the World,” Ensign, Nov. 1995, 102).
 
 On earth, family associations can be the source of some of our greatest joy. Satan is attacking the family on many fronts, and too many families are being destroyed by his efforts. The message of the restored gospel of Jesus Christ makes it possible for families to be united now and in eternity. By living the principles of the gospel, families can experience peace, joy, and a sense of belonging and identity in this life. Through the light of the gospel, families can resolve misunderstandings, contentions, and challenges. Families torn by discord can be healed through repentance, forgiveness, and faith in the power of the Atonement of Jesus Christ. “Happiness in family life is most likely to be achieved when founded upon the teachings of the Lord Jesus Christ. Successful marriages and families are established and maintained on principles of faith, prayer, repentance, forgiveness, respect, love, compassion, work, and wholesome recreational activities” (Ensign, Nov. 1995, 102). Strive to find and teach families—a father, mother, and children—who can support one
 
 Strive to find and teach families - a father, mother, and children, who can support one another in living the gospel and eventually be sealed as a family unit by restored priesthood authority.
 
 ### Teaching by the Spirit (Page 17)
+
 Because the gospel of Jesus Christ is the “power of God unto salvation to every one that believeth” (Romans 1:16), the message of the Restoration of the gospel must be taught by divine power—the power of the Holy Ghost, who is the third member of the Godhead. He is often called the Spirit, and one of His roles is to teach and testify of the truth. As you teach by that power, the Holy Ghost will:
 - Teach you new truths and bring the doctrines you have studied to your remembrance (see John 14:26).
 - Give you words to speak in the very moment you need them (see D&C 84:85).
@@ -201,6 +222,7 @@ You have been set apart for your sacred calling with the promise that the Spirit
 
 
 ### The Power and Authority of Your Calling (Page 18)
+
 Missionaries are to go “in the power of the ordination wherewith [they have] been ordained, proclaiming glad tidings of great joy, even the everlasting gospel” (D&C 79:1). You have authority to preach the gospel. If you hold the priesthood, you have the authority to administer the ordinances thereof. As you prayerfully and worthily exercise that authority, you will receive spiritual power, which is evidence of the reality of your call. Do not be afraid or shy about fulfilling this commission. Just as the sons of Mosiah, you are to teach with the power and authority of God (see Alma 17:2–3).
 
 When you were set apart by priesthood authority, you received the right and privilege to represent the Lord. You received a ministerial certificate that verifies that authority to the world. President Spencer W. Kimball said: “The setting apart may be taken literally; it is a setting apart from sin, apart from the carnal; apart from everything which is crude, low, vicious, cheap, or vulgar; set apart from the world to a higher plane of thought and activity. The blessing is conditional upon faithful performance” (The Teachings of Spencer W. Kimball, ed. Edward L. Kimball [1982], 478).
@@ -221,10 +243,12 @@ Your power and authority should be evident as you work and teach. Power may be m
 
 
 #### Scripture Study (Page 19)
+
 - How do you receive power?
 Study Alma 17:2–3, D&C 53:3, 1 Corinthians 2:4
 
 #### Activity: Personal or Companion Study (Page 19)
+
 Look at the painting of Christ ordaining the Apostles, and then read John 15:1–16.
 - In what way is Christ the vine? How are you a branch of that vine? How does your setting apart relate to this relationship?
 - Read again your ministerial certificate. Record your feelings and thoughts about what you read. Each time you study this chapter, repeat this process. Note how your feelings change over time.
@@ -232,680 +256,270 @@ Look at the painting of Christ ordaining the Apostles, and then read John 15:1�
 
 
 ### The Gospel of Jesus Christ (Page 19)
+
 The gospel of Jesus Christ defines both your message and your purpose; that is, it provides both the “what” and the “why” of missionary work. The Savior defined His gospel to include some very vital and basic doctrines. He came into the world to do His Father’s will, and His Father sent Him into the world to be lifted up on the cross. By His Atonement and Resurrection, all men will be lifted up to stand before Christ to be judged of their works, whether they be good or evil. Those who exercise faith in Christ, repent of their sins, and are baptized in Christ’s name can be sanctified by the Holy Ghost. If they endure to the end, they will stand spotless before Christ at the last day and will enter into the rest of the Lord. Christ will hold them guiltless before the Father. He will be their Mediator and Advocate. Those who do not endure in faithfulness to the end will be “cast into the fire . . . because of the justice of the Father.” (See 3 Nephi 27:13–22; compare 2 Nephi 31:10–21; 3 Nephi 11:31–41; D&C 76:40–42, 50–53.)
 
 The purpose of the gospel is to cleanse people of their sins so they can receive the Savior’s mercy at the day of judgment. Therefore, the focus of this book and, more important, the work you do each day is to invite others to come unto Christ by helping them receive the restored gospel through faith in Jesus Christ and His Atonement, repentance, baptism, receiving the Holy Ghost, and enduring to the end.
 
-**Preach the first principles of the Gospel—preach them over again: you will find that day after day new ideas and additional light concerning them will be revealed to you. You can enlarge upon them so as to comprehend them clearly. You will then be able to make them more plainly understood by those [you] teach.” – HYRUM SMITH (HISTORY OF THE CHURCH, 6:323)**
+*Preach the first principles of the Gospel—preach them over again: you will find that day after day new ideas and additional light concerning them will be revealed to you. You canenlarge upon them so as to comprehend them clearly. You will then be able to make them more plainly understood by those [you] teach.” – HYRUM SMITH (HISTORY OF THE CHURCH, 6:323)**
 
 Individuals and families begin to follow Christ as they exercise faith in Him and repent of their sins. They receive a remission of sins through baptism and by receiving the gift of the Holy Ghost from one who has authority from God to perform these ordinances. They then endure to the end, or, in other words, they continue throughout their lives in exercising faith in Jesus Christ, repenting, and renewing the covenants they have made. These are not just steps that they experience once in their lives; rather, when repeated throughout life these principles become an increasingly rewarding pattern of living. In fact, it is the only way of living that will bring peace of conscience and enable Heavenly Father’s children to return to live in His presence.
 
-
-You will then be able to make
-
-
-by those [you] teach.”
-
-
 Obedience to Jesus Christ is a lifelong commitment. Through exercising faith, repenting, being baptized and committing to serve Christ, and then receiving the Holy Ghost, we can experience healing, forgiveness of sins, and complete conversion to the Savior and His gospel.
-
 
 Help people gain faith in Jesus Christ unto repentance by teaching and testifying that the fulness of the gospel of Jesus Christ and the authority of the priesthood have been restored and by inviting them to live by His teachings.
 
-
-them more plainly understood
-============================
-
-
-– HYRUM SMITH HISTORY OF THE CHURCH, 6:323
-==========================================
-
-
-Scripture Study
-===============
-
-
+#### Scripture Study (Page 20)
 What is the gospel, or doctrine, of Christ?
+- Read 2 Nephi 31:10–21, 3 Nephi 11:31–41, 3 Nephi 27:13–22
 
 
-2 Nephi 31:10–21
+### The Message of the Restoration: The Foundation of Faith (Page 20)
 
+No matter where you serve or whom you teach, center your teaching on the Restoration of the gospel of Jesus Christ of the gospel of Jesus Christ. “The Lord will bless you as you teach the message of the Restoration to a world that desperately needs the gospel of Jesus Christ” (“Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002). As you study the doctrines in the missionary lessons, you will come to see that we have one message: Through a modern prophet, God has restored knowledge about the plan of salvation, which is centered on Christ’s Atonement and fulfilled by living the first principles and ordinances of the gospel. Make sure that everyone you teach clearly understands the following:
 
-3 Nephi 11:31–41
+- God is our literal Father in Heaven. He loves us. Every person on earth is a child of God and a member of God’s family. Jesus Christ, the Son of God, is our Savior and Redeemer.
+- Our loving Father in Heaven reached out to His children throughout biblical history by revealing His gospel to prophets. Sadly, many people rejected that gospel; even some of those who accepted it changed gospel doctrines and ordinances and fell into unbelief and apostasy.
+- Our Father in Heaven sent His Beloved Son, Jesus Christ, to earth. He performed miracles and taught His gospel. He accomplished the Atonement and was resurrected.
+- Beginning with the First Vision, God has again reached out in love to His children. He restored the gospel of Jesus Christ and His priesthood authority and organized His Church on the earth through the Prophet Joseph Smith. The Book of Mormon is convincing evidence of this Restoration.
 
-
-3 Nephi 27:13–22
-
-
-/
-The Message of the Restoration: The Foundation of Faith
-=======================================================
-
-
-of the gospel of Jesus Christ. “The Lord will bless you as you teach the message of the Restoration to a world that desperately needs the gospel of Jesus Christ” (“Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002). As you study the doctrines in the missionary lessons, you will come to see that we have one message: Through a modern prophet, God has restored knowledge about the plan of salvation, which is centered on Christ’s Atonement and fulfilled by living the first principles and ordinances of the gospel.
-
-
-6
-1 My Purpose
-============
-
-
-Make sure that everyone you teach clearly understands the following:
-
-
-• God is our literal Father in Heaven. He loves us. Every person on earth is a child of God and a member of God’s family. Jesus Christ, the Son of God, is our Savior and Redeemer.
-
-
-• Our loving Father in Heaven reached out to His children throughout biblical history by revealing His gospel to prophets. Sadly, many people rejected that gospel; even some of those who accepted it changed gospel doctrines and ordinances and fell into unbelief and apostasy.
-
-
-• Our Father in Heaven sent His Beloved Son, Jesus Christ, to earth. He performed miracles and taught His gospel. He accomplished the Atonement and was resurrected.
-
-
-• Beginning with the First Vision, God has again reached out in love to His children. He restored the gospel of Jesus Christ and His priesthood authority and organized His Church on the earth through the Prophet Joseph Smith. The Book of Mormon is convincing evidence of this Restoration.
-
-
-![see page 21](#)
 As you help investigators see the pattern of apostasy and restoration, they will be prepared to understand the great need for the latter-day Restoration. They will see the need to accept the restored gospel, receive the ordinances of salvation by the authority of the restored priesthood, and follow the way to eternal life. Help people recognize that the Church is not just another religion, nor is it an American church. Rather, it is a restoration of the “fulness of [the] gospel” (D&C 1:23), the same as was revealed and taught from the beginning.
 
-
-The Book of Mormon: Another Testament of Jesus Christ is convincing evidence that Joseph Smith was a prophet and that the gospel of Jesus Christ has been restored. It is the keystone of our religion, the most powerful resource for teaching this message. Some important truths
-
-
-restored through Joseph Smith include the knowledge that God is our Father and that we are His spirit children, that we lived with Him before birth, and that families can live together forever in God’s presence through Christ’s Atonement by obeying the laws and ordinances of the gospel.
-
+The Book of Mormon: Another Testament of Jesus Christ is convincing evidence that Joseph Smith was a prophet and that the gospel of Jesus Christ has been restored. It is the keystone of our religion, the most powerful resource for teaching this message. Some important truths restored through Joseph Smith include the knowledge that God is our Father and that we are His spirit children, that we lived with Him before birth, and that families can live together forever in God’s presence through Christ’s Atonement by obeying the laws and ordinances of the gospel.
 
 The Book of Mormon is evidence of the love of God for His children. It shows that God speaks to His children. As you teach and testify, invite people to read the Book of Mormon and pray about its message. Each person you teach must decide whether to accept the Book of Mormon as revelation from God.
 
-
 Trust the remarkable promise in Moroni 10:3–5. Do all you can to persuade people to read the book, understand it, and ask God sincerely whether it is true. The witness of the Holy Ghost becomes the cornerstone of their faith that Christ has restored His Church. Help those you teach to receive that spiritual confirmation.
 
-
-Notes
-=====
-
-
-7
-1 My Purpose
-============
-
-
-Notes
-
-
-Scripture Study
-===============
-
+#### Scripture Study (Page 22)
 
 How should you use the Book of Mormon in your missionary work?
+- Read 1 Nephi 13:39 2 Nephi 29:8–10, Moroni 10:3–5 D&C 20:5–16, D&C 42:12–14
 
-
-1 Nephi 13:39 2 Nephi 29:8–10
-Moroni 10:3–5 D&C 20:5–16
-D&C 42:12–14
-
-
-Activity: Personal Study
-========================
-
+#### Activity: Personal Study (Page 22)
 
 Imagine that you are going to write an article about the message of the Restoration for a local newspaper. In your study journal write a title that describes the central message. Then record your thoughts and feelings about this message, including how understanding it better has changed the way you live and the way you view the world around you.
 
 
-%
-Helping Others Make Commitments: The Door to Faith and Repentance
-=================================================================
-
+### Helping Others Make Commitments: The Door to Faith and Repentance (Page 22)
 
 Help people qualify for baptism and confirmation by teaching them true doctrine and inviting them to repent and change their lives through making and keeping commitments that build their faith in Jesus Christ. These commitments prepare people to make and keep sacred covenants.
 
-
-you he or she had not read and prayed about the Book of Mormon is be devastated! . . . Much of the time we are just too casual about all of this. This is eternal life. This is the salvation of the children of God. Eternity hangs in the balance. . . . It is the most important path this investigator will ever walk. But if he or she doesn’t know that, at least you do! . . . So take control of this situation. Teach with power and authority, and then be devastated if the first steps toward commandment-keeping and covenant-keeping have not been successfully begun” (“Making and Keeping Covenants,” missionary satellite broadcast, Apr. 1997).
+Elder Jeffrey R. Holland taught: “The first thing you will do when an investigator tells you he or she had not read and prayed about the Book of Mormon is be devastated! . . . Much of the time we are just too casual about all of this. This is eternal life. This is the salvation of the children of God. Eternity hangs in the balance. . . . It is the most important path this investigator will ever walk. But if he or she doesn’t know that, at least you do! . . . So take control of this situation. Teach with power and authority, and then be devastated if the first steps toward commandment-keeping and covenant-keeping have not been successfully begun” (“Making and Keeping Covenants,” missionary satellite broadcast, Apr. 1997).
 
 
 As you teach people to understand the Restoration of the fulness of the gospel, you “declare repentance” (D&C 15:6). Repentance involves a change of heart and a desire to forsake sin and serve God. It involves humbly yielding to the Spirit and submitting to God’s will. It requires that people increase their commitment to live in agreement with God’s will. Repentance requires a sincere and lasting change of thoughts, desires, habits, and actions. It is a positive experience that brings joy and peace. Be bold and loving in helping people understand what they must do to repent. By inviting people to make commitments, you can effectively raise a voice of both warning and hope.
 
-
-Scripture Study
-===============
-
+#### Scripture Study (Page 22)
 
 What do these scriptures teach about declaring repentance?
+- Read Alma 29:1–4 Alma 42:31, Alma 62:45 D&C 14:8, and D&C 15:6; 16:6 for answers
 
-
-Alma 29:1–4 Alma 42:31
-Alma 62:45 D&C 14:8
-D&C 15:6; 16:6
-
-
-8
-1 My Purpose
-============
-
-
-Baptism and Confirmation
-========================
-
+### Baptism and Confirmation (Page 23)
 
 Baptizing and confirming the people you teach is central to your purpose. Baptism is for the remission of sins, and the gift of the Holy Ghost brings a host of blessings to those who live worthy of it. Through these ordinances people enter the gate and continue on the path to eternal life. Elder Dallin H. Oaks said: “We do not preach and teach in order to ‘bring people into the Church’ or to increase the membership of the Church. We do not preach and teach just to persuade people to live better lives. . . . We invite all to come unto Christ by repentance and baptism and confirmation in order to open the doors of the celestial kingdom to the sons and daughters of God. No one else can do this” (“The Purpose of Missionary Work,” missionary satellite broadcast, Apr. 1995).
 
+As you teach the restored gospel, help people understand the sacred nature of baptism and confirmation. Help them realize that receiving the gift of the Holy Ghost is a great blessing in this life and a key to their salvation. The Holy Ghost will “teach [them] all things” (John 14:26). President Boyd K. Packer taught: “When you are teaching investigators and preparing them for baptism by water, you must also think of the gift of the Holy Ghost— baptism by fire. Think of it as one sentence. First comes the baptism of water and then the baptism of fire” (“The Gift of the Holy Ghost: What Every Missionary Should Know—and Every Member As Well,” seminar for new mission presidents, June 2003). The Prophet Joseph Smith taught, “Baptism by water is but half a baptism, and is good for nothing without the other half—that is, the baptism of the Holy Ghost” (History of the Church, 5:499). 
 
-and confirmation. Help them realize that receiving the gift of the Holy Ghost is a great blessing in this life and a key to their salvation. The Holy Ghost will “teach [them] all things” (John 14:26). President Boyd K. Packer taught: “When you are teaching investigators and preparing them for baptism by water, you must also think of the gift of the Holy Ghost— baptism by fire. Think of it as one sentence. First comes the baptism of water and then the baptism of fire” (“The Gift of the Holy Ghost: What Every Missionary Should Know—and Every Member As Well,” seminar for new mission presidents, June 2003). The Prophet Joseph Smith taught, “Baptism by water is but half a baptism, and is good for nothing without the other half—that is, the baptism of the Holy Ghost” (History of the Church, 5:499). Help those you teach understand that to qualify for baptism and confirmation they
+Help those you teach understand that to qualify for baptism and confirmation they must meet the conditions given in Doctrine and Covenants 20:37.
 
+#### D&C 20:37 Qualifications for Baptism (page 23)
 
-must meet the conditions given in Doctrine and Covenants 20:37.
-
-
-D&C 20:37 Qualifications for Baptism
-====================================
-
-
-• Humble themselves before God.
-
-
-• Desire to be baptized.
-
-
-• Come forth with broken hearts and contrite spirits.
-
-
-• Repent of all their sins.
-
-
-• Are willing to take upon themselves the name of Jesus Christ.
-
-
-• Have a determination to serve Christ to the end.
-
-
-• Manifest by their works that they have received the Spirit of Christ unto the remission of their sins.
-
-
-N
-=
-
+- Humble themselves before God.
+- Desire to be baptized.
+- Come forth with broken hearts and contrite spirits.
+- Repent of all their sins.
+- Are willing to take upon themselves the name of Jesus Christ.
+- Have a determination to serve Christ to the end.
+- Manifest by their works that they have received the Spirit of Christ unto the remission of their sins.
 
 After worthy converts are baptized, they are confirmed members of the Church and the gift of the Holy Ghost is conferred upon them. This confirmation occurs under the direction of the bishop or branch president in a sacrament meeting soon after the baptism. While the two ordinances are separated by a brief time, confirmation complements and completes baptism.
 
+#### Scripture Study (Page 24)
 
-/
-Notes
+1. In what ways is the gift of the Holy Ghost one of the greatest gifts we can receive?
+  - Read 3 Nephi 19:1–13, D&C 45:56–57, John 3:5, John 14:26, Galatians 5:22–25, and Topical Guide: “Holy Ghost, Gift of” for answers to the question.
 
+2. Why should converts desire the gift of the Holy Ghost?
+  - Read 2 Nephi 31:12–17, 2 Nephi 32:1–5, Acts 8:14–17 and Acts 19:1–6 for answers to the question.
 
-9
-1 My Purpose
-============
-
-
-Notes
-
-
-Scripture Study
-
-
-In what ways is the gift of the Holy Ghost one of the greatest gifts we can receive?
-
-
-3 Nephi 19:1–13 D&C 45:56–57
-John 3:5 John 14:26
-===================
-
-
-Galatians 5:22–25 Topical Guide: “Holy Ghost, Gift of”
-======================================================
-
-
-Why should converts desire the gift of the Holy Ghost?
-
-
-2 Nephi 31:12–17 2 Nephi 32:1–5
-Acts 8:14–17
-
-
-Acts 19:1–6
-
-
-Activity: Companion Study
-=========================
-
+#### Activity: Companion Study (Page 24)
 
 Search the following scriptures and make a list of the qualifications and covenant of baptism. Discuss with your companion how to teach those requirements to others.
+  - 2 Nephi 31:13 Mosiah 18:8–10
+  - Alma 7:14–16 3 Nephi 11:21–41
+  - Moroni 6:1–4 D&C 20:37
 
 
-2 Nephi 31:13 Mosiah 18:8–10
-Alma 7:14–16 3 Nephi 11:21–41
-Moroni 6:1–4 D&C 20:37
-Establishing the Church
-=======================
-
+### Establishing the Church (Page 24)
 
 When people have been baptized and confirmed members of the Church, continue to work with ward leaders and members to help these new converts adjust to their new life and continue their spiritual growth. The Church is established as people who have testimonies are baptized and confirmed, keep their covenants, prepare actively to go to the temple, and help strengthen the ward or branch.
-
 
 Converts who have member friends, who are given responsibility, and who are nourished by God’s word will grow in testimony and faith. Missionaries, ward leaders, and Church members should not turn away from their responsibility to nourish and strengthen new members.
 
 
-A Successful Missionary
-=======================
-
+### A Successful Missionary (Page 24)
 
 Your success as a missionary is measured primarily by your commitment to find, teach, baptize, and confirm people and to help them become faithful members of the Church who enjoy the presence of the Holy Ghost.
 
-
-Avoid comparing yourself to other missionaries and measuring the outward results of your efforts against theirs. Remember that people have agency to choose whether to accept your message. Your responsibility is to teach clearly and powerfully so they can make a correct choice. Some may not accept your message even when they have received a spiritual witness that it is true. You will be saddened because you love them and desire their salvation. You should not, however, become discouraged; discouragement will weaken your faith. If you lower your expectations, your effectiveness will decrease, your desire will weaken, and you will have greater difficulty following the Spirit.
-
-
-You can know you have been a successful missionary when you:
-
-
-• Feel the Spirit testify to people through you.
-
-
-• Love people and desire their salvation.
-
-
-• Obey with exactness.
-
-
-• Live so that you can receive and know how to follow the Spirit, who will show you where to go, what to do, and what to say.
-
-
-10
-1 My Purpose
-============
-
-
-• Develop Christlike attributes.
-
-
-• Work effectively every day, do your very best to bring souls to Christ, and seek earnestly to learn and improve.
-
-
-• Help build up the Church (the ward) wherever you are assigned to work.
-
-
-• Warn people of the consequences of sin. Invite them to make and keep commitments.
-
-
-• Teach and serve other missionaries.
-
-
-• Go about doing good and serving people at every opportunity, whether or not they accept your message.
-
+Avoid comparing yourself to other missionaries and measuring the outward results of your efforts against theirs. Remember that people have agency to choose whether to accept your message. Your responsibility is to teach clearly and powerfully so they can make a correct choice. Some may not accept your message even when they have received a spiritual witness that it is true. You will be saddened because you love them and desire their salvation. You should not, however, become discouraged; discouragement will weaken your faith. If you lower your expectations, your effectiveness will decrease, your desire will weaken, and you will have greater difficulty following the Spirit. You can know you have been a successful missionary when you:
+- Feel the Spirit testify to people through you.
+- Love people and desire their salvation.
+- Obey with exactness.
+- Live so that you can receive and know how to follow the Spirit, who will show you where to go, what to do, and what to say.
+- Develop Christlike attributes.
+- Work effectively every day, do your very best to bring souls to Christ, and seek earnestly to learn and improve.
+- Help build up the Church (the ward) wherever you are assigned to work.
+- Warn people of the consequences of sin. Invite them to make and keep commitments.
+- Teach and serve other missionaries.
+- Go about doing good and serving people at every opportunity, whether or not they accept your message.
 
 When you have done your very best, you may still experience disappointments, but you will not be disappointed in yourself. You can feel certain that the Lord is pleased when you feel the Spirit working through you.
 
-
-Scripture Study
-
+#### Scripture Study (Page 25)
 
 How do servants of the Lord feel about the work? How do servants of the Lord influence those they serve?
+  - Read Mosiah 28:3, Alma 8:14–15, Helaman 10:3–5, 3 Nephi 28:4–10, Ether 12:13–15, D&C 15:4–6, D&C 16:4–6 and D&C 68:2–6 for the answer to the questions.
 
+#### Activity: Personal Study (Page 25)
+- Read Helaman 10:1–5 and 3 Nephi 7:17–18. How did the Lord feel about these missionaries and their service?
+- Think about the missionary efforts of Abinadi and Ammon (see Mosiah 11–18; Alma 17–20, 23–24). Why were both missionaries successful even though the immediate results of their efforts were different?
+- Record what you learn in your study journal.
 
-Mosiah 28:3 Alma 8:14–15 Helaman 10:3–5
-=======================================
+#### Remember This (Page 25)
+- Your purpose is to invite others to come unto Christ by helping them receive the restored gospel through faith in Jesus Christ and His Atonement, repentance, baptism, receiving the Holy Ghost, and enduring to the end.
+- The restored gospel of Jesus Christ is the only way by which we can find eternal happiness.
+- Your calling gives you authority; keeping your covenants gives you power.
+- The fulness of the gospel of Jesus Christ was restored through the Prophet Joseph Smith. The Book of Mormon is evidence that Joseph Smith was a prophet.
+- You help people live the gospel by inviting them to make and keep commitments.
+- You show your love for the Lord and gratitude for His Atonement by bringing souls unto Him.
+- You are successful when you are obedient, live righteously, and do your best in helping others live the gospel.
 
-
-3 Nephi 28:4–10 Ether 12:13–15 D&C 15:4–6; 16:4–6
-D&C 68:2–6
-
-
-Activity: Personal Study
-========================
-
-
-• Read Helaman 10:1–5 and 3 Nephi 7:17–18. How did the Lord feel about these missionaries and their service?
-
-
-• Think about the missionary efforts of Abinadi and Ammon (see Mosiah 11–18; Alma 17–20, 23–24). Why were both missionaries successful even though the immediate results of their efforts were different?
-
-
-• Record what you learn in your study journal.
-
-
-Notes
-
-
-Remember This
-
-
-• Your purpose is to invite others to come unto Christ by helping them receive the restored gospel through faith in Jesus Christ and His Atonement, repentance, baptism, receiving the Holy Ghost, and enduring to the end.
-
-
-• The restored gospel of Jesus Christ is the only way by which we can find eternal happiness.
-
-
-• Your calling gives you authority; keeping your covenants gives you power.
-
-
-• The fulness of the gospel of Jesus Christ was restored through the Prophet Joseph Smith. The Book of Mormon is evidence that Joseph Smith was a prophet.
-
-
-• You help people live the gospel by inviting them to make and keep commitments.
-
-
-• You show your love for the Lord and gratitude for His Atonement by bringing souls unto Him.
-
-
-• You are successful when you are obedient, live righteously, and do your best in helping others live the gospel.
-
-
-11
-1 My Purpose
-============
-
-
-Notes
-
-
-Missionary Work
-===============
-
+### Missionary Work (Page 26)
 
 Following are statements made by Presidents of the Church in this dispensation.
 
-
-President Joseph Smith (1830–1844)
-==================================
-
+#### President Joseph Smith (1830–1844) (Page 26)
 
 “After all that has been said, the greatest and most important duty is to preach the Gospel” (Teachings of the Prophet Joseph Smith, sel. Joseph Fielding Smith [1976], 113).
 
-
 “Let the Saints remember that great things depend on their individual exertion, and that they are called to be co-workers with us and the Holy Spirit in accomplishing the great work of the last days” (Teachings of the Prophet Joseph Smith, 178–79).
 
-
-President Brigham Young (1847–1877)
-===================================
-
+#### President Brigham Young (1847–1877) (Page 26)
 
 “There is neither man or woman in this Church who is not on a mission. That mission will last as long as they live, and it is to do good, to promote righteousness, to teach the principles of truth, and to prevail upon themselves and everybody around them to live those principles that they may obtain eternal life” (Discourses of Brigham Young, sel. John A. Widtsoe [1954], 322).
 
-
-President John Taylor (1880–1887)
-=================================
-
+#### President John Taylor (1880–1887) (Page 26)
 
 “Our duty is to preach the gospel to all men. . . . This is what God expects of us” (The Gospel Kingdom, sel. G. Homer Durham [1943], 234–35).
 
-
-President Wilford Woodruff (1889–1898)
-======================================
-
+#### President Wilford Woodruff (1889–1898) (Page 26)
 
 “We have come to this earth upon a mission; . . . that we may have power to go forth and warn the nations of the earth. . . . As elders of Israel, very few of us fully comprehend our position, our calling, our relationship to God, our responsibility, our work the Lord requires at our hands” (The Discourses of Wilford Woodruff, sel. G. Homer Durham [1946], 124).
 
-
-President Lorenzo Snow (1898–1901)
-==================================
-
+#### President Lorenzo Snow (1898–1901) (Page 26)
 
 “There is no mortal man that is so much interested in the success of an elder when he is preaching the gospel as the Lord that sent him to preach to the people who are the Lord’s children” (The Teachings of Lorenzo Snow, comp. Clyde J. Williams [1984], 70).
 
-
-President Joseph F. Smith (1901–1918)
-=====================================
-
+#### President Joseph F. Smith (1901–1918) (page 26)
 
 “We have a mission in the world: each man, each woman, each child who has grown to understanding or to the years of accountability, ought . . . to be qualified to preach the truth, to bear testimony of the truth” (Gospel Doctrine, 13th ed. [1968], 251–52).
 
 
-President Heber J. Grant (1918–1945)
-====================================
-
+#### President Heber J. Grant (1918–1945) (Page 26)
 
 “We as a people have one supreme thing to do, and that is to call upon the world to repent of sin, to come to God. And it is our duty above all others to go forth and proclaim the gospel of the Lord Jesus Christ, the restoration again to the earth of the plan of life and salvation. . . . We have in very deed the pearl of great price. We have that which is of more value than all the wealth and the scientific information which the world possesses. We have the plan of life and salvation. . . . The best way in the world to show our love for our neighbor is to go forth and proclaim the gospel of the Lord Jesus Christ, of which he has given us an absolute knowledge concerning its divinity” (in Conference Report, Apr. 1927, 175–76).
 
-
-President George Albert Smith (1945–1951)
-=========================================
-
+#### President George Albert Smith (1945–1951) (Page 26)
 
 “That is your mission, my brethren and sisters of the Church, that is your responsibility. Freely you have received and our Heavenly Father will expect you freely to share with His other sons and daughters these glorious truths” (Sharing the Gospel with Others, sel. Preston Nibley [1948], 213).
 
-
 “We will attain our exaltation in the Celestial Kingdom only on the condition that we share with our Father’s other children the blessings of the Gospel of Jesus Christ and observe the commandments that will enrich our lives here and hereafter” (Sharing the Gospel with Others, 190).
 
-
-12
-1 My Purpose
-============
-
-
-President David O. McKay (1951–1970)
-====================================
-
+#### President David O. McKay (1951–1970) (Page 27)
 
 “Every member . . . a missionary!” (in Conference Report, Apr. 1959, 122). “True Christianity is love in action. There is no better way to manifest love for God than to show an unselfish love for your fellow men. This is the spirit of missionary work” (Gospel Ideals [1954], 129).
 
-
-President Joseph Fielding Smith (1970–1972)
-===========================================
-
+#### President Joseph Fielding Smith (1970–1972) (Page 27)
 
 “We have heard that we are all missionaries. Every member . . . is or ought to be a missionary; . . . as members of the Church, having pledged ourselves to the advancement of the gospel of Jesus Christ we become missionaries. That is part of the responsibility of every member of the Church” (Take Heed to Yourselves [1971], 27–28).
 
-
-President Harold B. Lee (1972–1973)
-===================================
-
+#### President Harold B. Lee (1972–1973) (Page 27)
 
 “Missionary work is but home teaching to those who are not now members of the Church, and home teaching is nothing more or less than missionary work to Church members” (Improvement Era, Dec. 1964, 1078).
 
+#### President Spencer W. Kimball (1973–1985) (Page 27)
 
-President Spencer W. Kimball (1973–1985)
-========================================
+“Now is the moment in the timetable of the Lord to carry the gospel farther than it has ever been carried before. . . . Many a person in this world is crying, knowingly and unknowingly, ‘Come over . . . and help us.’ He might be your neighbor. She might be your friend. He might be a relative. She might be someone you met only yesterday. But we have what they need. Let us take new courage from our studies and pray, as did Peter, ‘And now, Lord, . . . grant unto thy servants, that with all boldness they may speak thy word’ (Acts 4:29)” (Teachings of Spencer W. Kimball [1982], 546).
 
-
-been carried before. . . . Many a person in this world is crying, knowingly and unknowingly, ‘Come over . . . and help us.’ He might be your neighbor. She might be your friend. He might be a relative. She might be someone you met only yesterday. But we have what they need. Let us take new courage from our studies and pray, as did Peter, ‘And now, Lord, . . . grant unto thy servants, that with all boldness they may speak thy word’ (Acts 4:29)” (Teachings of Spencer W. Kimball [1982], 546).
-
-
-President Ezra Taft Benson (1985–1994)
-======================================
-
+#### President Ezra Taft Benson (1985–1994) (Page 27)
 
 “We must share the gospel with others. That is our responsibility—every member a missionary. That is the call of prophets of God. . . .
 
-
 “. . . Member-missionary work is one of the great keys to the individual growth of our members. It is my conviction that member-missionary work will raise the spirituality in any ward where applied” (Teachings of Ezra Taft Benson, 208–9).
 
-
-President Howard W. Hunter (1994–1995)
-======================================
-
+#### President Howard W. Hunter (1994–1995) (Page 27)
 
 “Surely taking the gospel to every kindred, tongue, and people is the single greatest responsibility we have in mortality. . . . We have been privileged to be born in these last days, as opposed to some earlier dispensation, to help take the gospel to all the earth” (“Walls of the Mind,” Ensign, Sept. 1990, 10).
 
-
 “What does the Atonement have to do with missionary work? Any time we experience the blessings of the Atonement in our lives, we cannot help but have a concern for the welfare of others. . . . A great indicator of one’s personal conversion is the desire to share the gospel with others.” (“The Atonement and Missionary Work,” seminar for new mission presidents, June 1994).
 
+#### President Gordon B. Hinckley (1995–2008) (Page 27)
 
-President Gordon B. Hinckley (1995– )
-=====================================
+“We are here to assist our Father in His work and His glory, ‘to bring to pass the immortality and eternal life of man’ (Moses 1:39). Your obligation is as serious in your sphere of responsibility as is my obligation in my sphere” (in Conference Report, Apr. 1995, 94; or Ensign, May 1995, 71). 
 
+“Let there be cultivated an awareness in every member’s heart of his own potential for bringing others to a knowledge of the truth. Let him work at it. Let him pray with great earnestness about it” (“Find the Lambs, Feed the Sheep,” Ensign, May 1999, 106).
 
-“We are here to assist our Father in His work and His glory, ‘to bring to pass the immortality and eternal life of man’ (Moses 1:39). Your obligation is as serious in your sphere of responsibility as is my obligation in my sphere” (in Conference Report, Apr. 1995, 94; or Ensign, May 1995, 71). “Let there be cultivated an awareness in every member’s heart of his own potential for
 
+### Ideas for Study and Application (page 28)
 
-bringing others to a knowledge of the truth. Let him work at it. Let him pray with great earnestness about it” (“Find the Lambs, Feed the Sheep,” Ensign, May 1999, 106).
+#### Personal Study (Page 28)
 
+- Prepare a two-minute talk on one of the questions at the beginning of this chapter. Be prepared to share your talk with your companion or with other missionaries in a district meeting.
+- Ask recent converts to tell their conversion stories. What helped them gain “faith unto repentance” (Alma 34:17)? Why did they decide to be baptized and confirmed? What was it like for them to become new members of the Church? How could missionaries have served them better?
+- Consider what it means to raise the voice of warning (see Jacob 3:12; D&C 1:4; 38:41; 63:57–58; 88:81; 112:5; Ezekiel 3:17–21; 33:1–12). Write in your own words what it means and how you can go about doing it.
+- Read Mormon 8 and Moroni 1 and 10. As you read, ask yourself, “What was Moroni’s hope for our day? What did he want us to do with the Book of Mormon? What would I say to Moroni if I had the chance?” Record your thoughts in your study journal.
+- Consider the events in your life that have strengthened your testimony of Joseph Smith and the Restoration. Then write an answer to this question: What has helped you know that Heavenly Father and Jesus Christ appeared to Joseph Smith?
 
-Notes
+#### Companion Study (Page 28)
 
+- Share with each other your answers to the questions from “Consider This” at the beginning of the chapter.
+- Share with each other what your hopes and desires were for your mission when you received your mission call. To what extent does your experience thus far meet your expectations? How can you meet these expectations more fully?
+- Read and discuss “Ministry” in the Bible Dictionary.
+- Select one of the following great missionaries, and read the references listed. As you read, discuss how this missionary (1) understood and committed himself to his calling, (2) demonstrated his attitude and desire for the work, and (3) helped others accept the gospel.
+  - Alma (Mosiah 18)
+  - Aaron (Alma 22; 23:1–6)
+  - Nephi and Lehi (Helaman 5)
+  - Peter (Acts 2)
+  - Paul (Acts 16)
 
-13
-1 My Purpose
-============
+- In the hymnbook, select two hymns under the topic “Restoration of the Gospel” (see page 424). Read or sing the hymns. Discuss the meaning of the words.
+- Read together “Faith,” “Repentance,” “Baptism,” and “Holy Ghost” in the Bible Dictionary. Read and discuss all the scripture references in each entry.
+- Read together “Dispensations” in the Bible Dictionary. Also read and discuss Doctrine and Covenants 136:37.
 
+#### District Meetings and Zone Conferences (Page 29)
 
-14
-Notes
+- Invite two or three recent converts to share their conversion experiences. How did they feel about the missionaries? about what the missionaries taught? about keeping commitments? What most strongly influenced their conversion?
+- Invite a priesthood leader to talk to the missionaries about the opportunities and difficulties of building the Church in your area.
+- Read Alma 18 and discuss these questions: What were Lamoni’s feelings at the beginning of the story? How did they change? What feelings must a person have in order to receive the blessings of the gospel? Read Alma 34:15–16, and compare it with Lamoni’s story. How does Christ’s Atonement enable us to obtain mercy?
+- Discuss what it means to be a successful missionary. Invite missionaries to give specific examples of success.
+- Divide the missionaries into three groups. Assign one group to read Acts 2:36–38 (Peter), another group to read Acts 16:25–33 (Paul), and the final group to read Mosiah 18:8–11 (Alma). Ask each group to answer the question, “What did this missionary do to help others increase in faith in Christ, repent, and receive baptism and confirmation?” Discuss what the missionaries learn from these stories that could help them exercise faith when inviting people to repent, be baptized, and receive the gift of the Holy Ghost.
+- Several days before the meeting, assign several missionaries to ponder selected questions from “Consider This” at the beginning of the chapter. Ask each missionary to prepare a two- to three-minute talk on his or her assigned question. During the district meeting or zone conference, allow the missionaries to give their talks. Following the talks, discuss what they learned and how they could use it in their missionary work.
+- Divide the missionaries into four groups. Ask each group to list as many truths, covenants, and ordinances as they can that were restored and revealed through the Prophet Joseph Smith. Have each group share their results. Invite missionaries to share how any of the truths revealed through the Restoration has influenced their lives.
 
+#### Mission President (Page 29)
 
-Ideas for Study and Application
-===============================
+1. During interviews, periodically ask missionaries to share with you:
+  – Their testimony of Jesus Christ.
+  – Their testimony of the restored gospel and the mission of Joseph Smith.
+  – Their testimony of the Book of Mormon.
+  – Their thoughts about their purpose as a missionary.
 
+2. Invite missionaries to record in their study journal what they feel is the purpose of their mission. During an interview, ask them to share what they have written.
+3. Send a letter of congratulations to new members.
 
-Personal Study
-==============
 
-
-• Prepare a two-minute talk on one of the questions at the beginning of this chapter. Be prepared to share your talk with your companion or with other missionaries in a district meeting.
-
-
-• Ask recent converts to tell their conversion stories. What helped them gain “faith unto repentance” (Alma 34:17)? Why did they decide to be baptized and confirmed? What was it like for them to become new members of the Church? How could missionaries have served them better?
-
-
-• Consider what it means to raise the voice of warning (see Jacob 3:12; D&C 1:4; 38:41; 63:57–58; 88:81; 112:5; Ezekiel 3:17–21; 33:1–12). Write in your own words what it means and how you can go about doing it.
-
-
-• Read Mormon 8 and Moroni 1 and 10. As you read, ask yourself, “What was Moroni’s hope for our day? What did he want us to do with the Book of Mormon? What would I say to Moroni if I had the chance?” Record your thoughts in your study journal.
-
-
-• Consider the events in your life that have strengthened your testimony of Joseph Smith and the Restoration. Then write an answer to this question: What has helped you know that Heavenly Father and Jesus Christ appeared to Joseph Smith?
-
-
-Companion Study
-===============
-
-
-• Share with each other your answers to the questions from “Consider This” at the beginning of the chapter.
-
-
-• Share with each other what your hopes and desires were for your mission when you received your mission call. To what extent does your experience thus far meet your expectations? How can you meet these expectations more fully?
-
-
-• Read and discuss “Ministry” in the Bible Dictionary.
-
-
-• Select one of the following great missionaries, and read the references listed. As you read, discuss how this missionary (1) understood and committed himself to his calling, (2) demonstrated his attitude and desire for the work, and (3) helped others accept the gospel.
-
-
-Alma (Mosiah 18) Aaron (Alma 22; 23:1–6)
-========================================
-
-
-Nephi and Lehi (Helaman 5) Peter (Acts 2)
-
-
-Paul (Acts 16)
-==============
-
-
-• In the hymnbook, select two hymns under the topic “Restoration of the Gospel” (see page 424). Read or sing the hymns. Discuss the meaning of the words.
-
-
-• Read together “Faith,” “Repentance,” “Baptism,” and “Holy Ghost” in the Bible Dictionary. Read and discuss all the scripture references in each entry.
-
-
-• Read together “Dispensations” in the Bible Dictionary. Also read and discuss Doctrine and Covenants 136:37.
-
-
-District Meetings and Zone Conferences
-======================================
-
-
-• Invite two or three recent converts to share their conversion experiences. How did they feel about the missionaries? about what the missionaries taught? about keeping commitments? What most strongly influenced their conversion?
-
-
-• Invite a priesthood leader to talk to the missionaries about the opportunities and difficulties of building the Church in your area.
-
-
-• Read Alma 18 and discuss these questions: What were Lamoni’s feelings at the beginning of the story? How did they change? What feelings must a person have in order to receive the blessings of the gospel? Read Alma 34:15–16, and compare it with Lamoni’s story. How does Christ’s Atonement enable us to obtain mercy?
-
-
-• Discuss what it means to be a successful missionary. Invite missionaries to give specific examples of success.
-
-
-• Divide the missionaries into three groups. Assign one group to read Acts 2:36–38 (Peter), another group to read Acts 16:25–33 (Paul), and the final group to read Mosiah 18:8–11 (Alma). Ask each group to answer the question, “What did this missionary do to help others increase in faith in Christ, repent, and receive baptism and confirmation?” Discuss what the missionaries learn from these stories that could help them exercise faith when inviting people to repent, be baptized, and receive the gift of the Holy Ghost.
-
-
-• Several days before the meeting, assign several missionaries to ponder selected questions from “Consider This” at the beginning of the chapter. Ask each missionary to prepare a two- to three-minute talk on his or her assigned question. During the district meeting or zone conference, allow the missionaries to give their talks. Following the talks, discuss what they learned and how they could use it in their missionary work.
-
-
-• Divide the missionaries into four groups. Ask each group to list as many truths, covenants, and ordinances as they can that were restored and revealed through the Prophet Joseph Smith. Have each group share their results. Invite missionaries to share how any of the truths revealed through the Restoration has influenced their lives.
-
-
-Mission President
-=================
-
-
-• During interviews, periodically ask missionaries to share with you:
-
-
-– Their testimony of Jesus Christ.
-
-
-– Their testimony of the restored gospel and the mission of Joseph Smith.
-
-
-– Their testimony of the Book of Mormon.
-
-
-– Their thoughts about their purpose as a missionary.
-
-
-• Invite missionaries to record in their study journal what they feel is the purpose of their mission. During an interview, ask them to share what they have written.
-
-
-• Send a letter of congratulations to new members.
-
-
-Notes
-
-
-1 My Purpose
-============
-
-
-15
-1 My Purpose
-============
-
-
-/
-Notes
-
-
-\
-16
-)
-|4 3
-9
-S
-=
-
-
-2 Effective Study
-=================
-
-
-3 ?fjiv P P e - AL
-==================
-
-
-* 
-
-
-i i
-===
-
-
-é‘;.
-i
-=
-
-
-* — ;
-
-
-* 
-
-
-2.
-How Do I Study Effectively and Prepare to Teach?
-================================================
-
+## How Do I Study Effectively and Prepare to Teach?
 
 Consider This
 =============
