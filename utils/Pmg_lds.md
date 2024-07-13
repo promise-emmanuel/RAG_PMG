@@ -24,7 +24,7 @@
 | 13 | How Do I Work with Stake and Ward Leaders? | 213 |
 |  |Index | 225 |
 
-## First Presidency Message (Page 7)
+# First Presidency Message (Page 7)
 
 Dear Fellow Missionary:
 
@@ -36,9 +36,9 @@ We challenge you to rise to a new sense of commitment to assist our Father in He
 The Lord will reward and richly bless you as you humbly and prayerfully serve Him. More happiness awaits you than you have ever experienced as you labor among His children.
 The First Presidency
 
-## Introduction: How Can I Best Use Preach My Gospel? (Page 9)
+# Introduction: How Can I Best Use Preach My Gospel? (Page 9)
 
-### Preach My Gospel
+## Preach My Gospel
 
 Use preach my gospel to meets your needs as a missionary. You can spend an entire study session on just a few paragraphs—or an entire chapter. You can study chapters in order or plan another sequence that better meets your needs. This flexibility allows you to study what you need when you need it and as directed by your mission president.
 
@@ -51,18 +51,18 @@ The doctrines in some of the other chapters may also help you teach investigator
 Preach My Gospel focuses on the fundamentals of missionary work. It does not answer every question or situation you will encounter. You will be most effective as you follow the Spirit, search the scriptures, keep the commandments, and apply what you learn. 
 Study the chapters throughout your mission. Apply what you learn. Evaluate your work. Missionaries who strive to prepare themselves daily and seek to improve regularly will receive direction from the Holy Ghost and see blessings in their lives.
 
-### The Missionary Lessons (Page 9)
+## The Missionary Lessons (Page 9)
 
 You have the flexibility to teach the lessons in whatever way best helps people fully prepare for their baptism and confirmation. Your purpose is not only to cover the material; it is to help others come unto Christ through faith in Jesus Christ, repentance, baptism, receiving the gift of the Holy Ghost, and enduring to the end. Rarely should a lesson go over 45 minutes. You may find that time may only allow shorter teaching visits. In this case, you may need frequent, short teaching visits covering smaller portions of material.
 
 You can teach the lessons in many ways. Which lesson you teach, when you teach it, and how much time you give to it are best determined by the needs of the investigator and the direction of the Spirit. Do not memorize the entire lesson.
 
 
-### Personal Study, Companion Study, District Meetings, and Zone Conferences (Page 10)
+## Personal Study, Companion Study, District Meetings, and Zone Conferences (Page 10)
 
 Effective study during your mission will help you fulfill your purpose as a missionary and strengthen your testimony of the gospel of Jesus Christ. Four of your most important study opportunities are personal study, companion study, district meetings, and zone conferences. Your daily schedule includes time for personal and companion study every day.
 
-#### Missionary Daily Schedule
+### Missionary Daily Schedule
 
 - 6:30 a.m. Arise, pray, exercise (30 minutes), and prepare for the day.
 
@@ -84,7 +84,7 @@ Missionaries may take an hour for lunch and additional study, and an hour for di
 
 What you learn in personal study will help you in companion study, district meeting, and zone conferences, where you can “teach one another the doctrine of the kingdom” (D&C 88:77). What you gain from your study sessions and district meetings will help you teach with spiritual power.
 
-#### Personal Study (page 10)
+### Personal Study (page 10)
 
 The purpose of personal study is to strengthen your knowledge and testimony of the restored gospel and help you prepare to meet the needs of those you teach. In your personal study, focus on the standard works and the approved missionary library:
 
@@ -99,8 +99,7 @@ You can make personal study effective as you:
 - Study the doctrines of the missionary lessons.
 - Study other chapters from Preach My Gospel.
 
-
-#### Companion Study (Page 11)
+### Companion Study (Page 11)
 
 The purpose of companion study is to (1) build unity in your companionship in order to teach by the Spirit and (2) focus on the progress of those you teach. You can make companion study effective as you:
 
@@ -108,7 +107,7 @@ The purpose of companion study is to (1) build unity in your companionship in or
 - Prepare for specific teaching appointments, member visits, finding opportunities, and other activities. Study material that helps you teach, find, and work more effectively. Discuss the people with whom you are working. Make plans to apply what you are learning.
 - Throughout the day, continue to discuss the principles, goals, skills, and plans from companion study.
 
-#### District Meetings (Page 11)
+### District Meetings (Page 11)
 
 The purpose of district meeting is to “teach one another the doctrine of the kingdom” (D&C 88:77).
 - District meetings are held each week for 60 to 90 minutes.
@@ -123,43 +122,38 @@ The purpose of district meeting is to “teach one another the doctrine of the k
 - District leaders may use district meeting to receive reports regarding the efforts of missionaries in the district. They should not set goals or quotas for other missionaries.
 
 
-#### Zone Conferences (Page 11)
+### Zone Conferences (Page 11)
 
 Zone conferences are held under the direction of the mission president.
 
 
-### Features of Preach My Gospel (Page 11)
-
-Each chapter in Preach My Gospel has several features. These features should help you get more from your study—not force you to learn a certain way. Use these features in a flexible manner based on your needs.
-
-#### Study Journal (Page 12)
+### Study Journal (Page 12)
 
 Preach My Gospel frequently asks that you use a study journal to help you understand, clarify, and remember what you are learning. Elder Richard G. Scott taught, “Knowledge carefully recorded is knowledge available in time of need. Spiritually sensitive information should be kept in a sacred place that communicates to the Lord how you treasure it. This practice enhances the likelihood of your receiving further light” (“Acquiring Spiritual Knowledge,” Ensign, Nov. 1993, 86). Review your study journal to recall spiritual experiences, see new insights, and recognize your growth.
 
-
 Your study journal may be a bound journal, a notebook, or a binder. Record and organize your thoughts and impressions in a way that fits how you learn. Develop your own system to easily access key information in the future. Use it often to review, access, and apply what you have learned. Use your study journal to take notes and record impressions during your personal and companion study, district meetings, zone conferences, and interviews with the mission president.
 
-#### Ideas for Study and Application (Page 13)
+### Ideas for Study and Application (Page 13)
 
 Each chapter concludes with additional ideas for personal study, companion study, district meetings, and zone conferences. This rich resource of learning activities provides examples of effective ways to learn the material. Be creative and seek inspiration to create additional activities each time you study or teach one of these sections. Complete these activities several times during your mission.
 
-### Missionaries Serving in Branches and Districts (Page 13)
+## Missionaries Serving in Branches and Districts (Page 13)
 
 Many missionaries serve in branches and districts. Although this manual refers to wards and stakes, the same principles and approaches apply to branches and districts. The mission president will instruct you on any adjustments to make when working with branch and district leaders.
 
 
-### Use by Ward Missionaries and Leaders (Page 13)
+## Use by Ward Missionaries and Leaders (Page 13)
 
 Preach My Gospel is for the full-time missionaries of the Church. However, the principles and doctrines taught herein are also applicable to ward missionaries and leaders as they seek to build the Lord’s kingdom. Frequent study of this manual will enable them to fulfill their responsibilities as member missionaries and will foster unity with the full-time missionaries.
 
 
-## What Is My Purpose as a Missionary? (Page 15)
+# What Is My Purpose as a Missionary? (Page 15)
 
-### Your Purpose (Page 15)
+## Your Purpose (Page 15)
 
 Invite others to come unto Christ by helping them receive the restored gospel through faith in Jesus Christ and His Atonement, repentance, baptism, receiving the gift of the Holy Ghost, and enduring to the end.
 
-#### Consider This (Page 15)
+### Consider This (Page 15)
 
 - What is my purpose as a missionary?
 - What is the gospel?
@@ -172,7 +166,7 @@ Invite others to come unto Christ by helping them receive the restored gospel th
 > Questions to help study this chapter by looking for the answers
 
 
-### Your Commission to Teach the Restored Gospel of Jesus Christ (Page 15)
+## Your Commission to Teach the Restored Gospel of Jesus Christ (Page 15)
 
 You are surrounded by people. You pass them on the street, visit them in their homes, and travel among them. All of them are children of God, your brothers and sisters. God loves them just as He loves you. Many of these people are searching for purpose in life. They are concerned for their families. They need the sense of belonging that comes from the knowledge that they are children of God, members of His eternal family. They want to feel secure in a world of changing values. They want “peace in this world, and eternal life in the world to come” (D&C 59:23), but they are “kept from the truth because they know not where to find it” (D&C 123:12).
 The gospel of Jesus Christ as restored through the Prophet Joseph Smith will bless their families, meet their spiritual needs, and help them fulfill their deepest desires. Although they may not know why, they need relief from feelings of guilt that come from mistakes and sins. They need to experience the joy of redemption by receiving forgiveness of their sins and enjoying the gift of the Holy Ghost.
@@ -186,14 +180,14 @@ President Ezra Taft Benson taught: “We are commanded by God to take this gospe
 You are called to represent Jesus Christ in helping people become clean from their sins. You do this by inviting them to come unto Jesus Christ and become converted to His restored gospel. To come to the Savior they must have faith in Him unto repentance— making the necessary changes to bring their life into agreement with His teachings. You can help people develop such faith by teaching them the restored gospel by the Spirit and inviting them to commit to live according to its teachings. Keeping this commitment prepares them for the covenants of baptism and confirmation and the precious gift of the Holy Ghost. They are to put off the “natural man” and become a Saint “through the atonement of Christ the Lord” (Mosiah 3:19).
 
 
-#### Activity: Personal or Companion Study (Page 16)
+### Activity: Personal or Companion Study (Page 16)
 
 Examine the picture of the tree of life and as you study the vision of the tree of life found in 1 Nephi 8 and 11. In this vision, the tree of life symbolizes the love of God (see 1 Nephi 11:21–22).
 - In the vision, what did the people need to do to be able to partake of the fruit? What do we need to do to receive all the blessings of the Atonement? In what ways do commitments and covenants help us partake of these blessings?
 - As a missionary, what is your duty in helping others find and partake of the fruits of the gospel?
 - What did Lehi desire after he had eaten the fruit? (See 1 Nephi 8:10–18.)
 
-### The Gospel Blesses Families (Page 17)
+## The Gospel Blesses Families (Page 17)
 
 The message of the Restoration of the gospel of Jesus Christ blesses families. Because of the Restoration we understand God’s purpose for families: “The divine plan of happiness enables family relationships to be perpetuated beyond the grave. Sacred ordinances and covenants available in holy temples make it possible for individuals to return to the presence of God and for families to be united eternally” (“The Family: A Proclamation to the World,” Ensign, Nov. 1995, 102).
 
@@ -201,7 +195,7 @@ On earth, family associations can be the source of some of our greatest joy. Sat
 
 Strive to find and teach families - a father, mother, and children, who can support one another in living the gospel and eventually be sealed as a family unit by restored priesthood authority.
 
-### Teaching by the Spirit (Page 17)
+## Teaching by the Spirit (Page 17)
 
 Because the gospel of Jesus Christ is the “power of God unto salvation to every one that believeth” (Romans 1:16), the message of the Restoration of the gospel must be taught by divine power—the power of the Holy Ghost, who is the third member of the Godhead. He is often called the Spirit, and one of His roles is to teach and testify of the truth. As you teach by that power, the Holy Ghost will:
 - Teach you new truths and bring the doctrines you have studied to your remembrance (see John 14:26).
@@ -221,7 +215,7 @@ The Spirit is essential for teaching the truths of the gospel in a way that buil
 You have been set apart for your sacred calling with the promise that the Spirit will be given as you meet the requirements set by the Lord. Enjoying the gifts of the Spirit should be one of your most earnest desires.
 
 
-### The Power and Authority of Your Calling (Page 18)
+## The Power and Authority of Your Calling (Page 18)
 
 Missionaries are to go “in the power of the ordination wherewith [they have] been ordained, proclaiming glad tidings of great joy, even the everlasting gospel” (D&C 79:1). You have authority to preach the gospel. If you hold the priesthood, you have the authority to administer the ordinances thereof. As you prayerfully and worthily exercise that authority, you will receive spiritual power, which is evidence of the reality of your call. Do not be afraid or shy about fulfilling this commission. Just as the sons of Mosiah, you are to teach with the power and authority of God (see Alma 17:2–3).
 
@@ -240,12 +234,10 @@ Your power and authority should be evident as you work and teach. Power may be m
 - Praying with and for the people you work with (see Alma 6:6; 8:18–22; 10:7–11; 31:26–35; D&C 75:19).
 - Expressing love for the Lord, your family, fellow missionaries, and the people you serve.
 
-
-
 #### Scripture Study (Page 19)
 
 - How do you receive power?
-Study Alma 17:2–3, D&C 53:3, 1 Corinthians 2:4
+Study Alma 17:2–3, D&C 53:3, 1 Corinthians 2:4 for answers to the question
 
 #### Activity: Personal or Companion Study (Page 19)
 
@@ -255,7 +247,7 @@ Look at the painting of Christ ordaining the Apostles, and then read John 15:1�
 - Study Doctrine and Covenants 109:13–15, 21–30, 38–39, 55–57, which are excerpts from the Prophet Joseph Smith’s inspired dedicatory prayer for the Kirtland Temple. What blessings did Joseph Smith request for the faithful?
 
 
-### The Gospel of Jesus Christ (Page 19)
+## The Gospel of Jesus Christ (Page 19)
 
 The gospel of Jesus Christ defines both your message and your purpose; that is, it provides both the “what” and the “why” of missionary work. The Savior defined His gospel to include some very vital and basic doctrines. He came into the world to do His Father’s will, and His Father sent Him into the world to be lifted up on the cross. By His Atonement and Resurrection, all men will be lifted up to stand before Christ to be judged of their works, whether they be good or evil. Those who exercise faith in Christ, repent of their sins, and are baptized in Christ’s name can be sanctified by the Holy Ghost. If they endure to the end, they will stand spotless before Christ at the last day and will enter into the rest of the Lord. Christ will hold them guiltless before the Father. He will be their Mediator and Advocate. Those who do not endure in faithfulness to the end will be “cast into the fire . . . because of the justice of the Father.” (See 3 Nephi 27:13–22; compare 2 Nephi 31:10–21; 3 Nephi 11:31–41; D&C 76:40–42, 50–53.)
 
@@ -271,10 +263,10 @@ Help people gain faith in Jesus Christ unto repentance by teaching and testifyin
 
 #### Scripture Study (Page 20)
 What is the gospel, or doctrine, of Christ?
-- Read 2 Nephi 31:10–21, 3 Nephi 11:31–41, 3 Nephi 27:13–22
+- Read 2 Nephi 31:10–21, 3 Nephi 11:31–41, 3 Nephi 27:13–22 for answers to the question.
 
 
-### The Message of the Restoration: The Foundation of Faith (Page 20)
+## The Message of the Restoration: The Foundation of Faith (Page 20)
 
 No matter where you serve or whom you teach, center your teaching on the Restoration of the gospel of Jesus Christ of the gospel of Jesus Christ. “The Lord will bless you as you teach the message of the Restoration to a world that desperately needs the gospel of Jesus Christ” (“Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002). As you study the doctrines in the missionary lessons, you will come to see that we have one message: Through a modern prophet, God has restored knowledge about the plan of salvation, which is centered on Christ’s Atonement and fulfilled by living the first principles and ordinances of the gospel. Make sure that everyone you teach clearly understands the following:
 
@@ -294,14 +286,14 @@ Trust the remarkable promise in Moroni 10:3–5. Do all you can to persuade peop
 #### Scripture Study (Page 22)
 
 How should you use the Book of Mormon in your missionary work?
-- Read 1 Nephi 13:39 2 Nephi 29:8–10, Moroni 10:3–5 D&C 20:5–16, D&C 42:12–14
+- Read 1 Nephi 13:39 2 Nephi 29:8–10, Moroni 10:3–5 D&C 20:5–16, D&C 42:12–14 for answers to the question
 
 #### Activity: Personal Study (Page 22)
 
 Imagine that you are going to write an article about the message of the Restoration for a local newspaper. In your study journal write a title that describes the central message. Then record your thoughts and feelings about this message, including how understanding it better has changed the way you live and the way you view the world around you.
 
 
-### Helping Others Make Commitments: The Door to Faith and Repentance (Page 22)
+## Helping Others Make Commitments: The Door to Faith and Repentance (Page 22)
 
 Help people qualify for baptism and confirmation by teaching them true doctrine and inviting them to repent and change their lives through making and keeping commitments that build their faith in Jesus Christ. These commitments prepare people to make and keep sacred covenants.
 
@@ -313,9 +305,9 @@ As you teach people to understand the Restoration of the fulness of the gospel, 
 #### Scripture Study (Page 22)
 
 What do these scriptures teach about declaring repentance?
-- Read Alma 29:1–4 Alma 42:31, Alma 62:45 D&C 14:8, and D&C 15:6; 16:6 for answers
+- Read Alma 29:1–4 Alma 42:31, Alma 62:45 D&C 14:8, and D&C 15:6; 16:6 for answersto the question.
 
-### Baptism and Confirmation (Page 23)
+## Baptism and Confirmation (Page 23)
 
 Baptizing and confirming the people you teach is central to your purpose. Baptism is for the remission of sins, and the gift of the Holy Ghost brings a host of blessings to those who live worthy of it. Through these ordinances people enter the gate and continue on the path to eternal life. Elder Dallin H. Oaks said: “We do not preach and teach in order to ‘bring people into the Church’ or to increase the membership of the Church. We do not preach and teach just to persuade people to live better lives. . . . We invite all to come unto Christ by repentance and baptism and confirmation in order to open the doors of the celestial kingdom to the sons and daughters of God. No one else can do this” (“The Purpose of Missionary Work,” missionary satellite broadcast, Apr. 1995).
 
@@ -323,7 +315,7 @@ As you teach the restored gospel, help people understand the sacred nature of ba
 
 Help those you teach understand that to qualify for baptism and confirmation they must meet the conditions given in Doctrine and Covenants 20:37.
 
-#### D&C 20:37 Qualifications for Baptism (page 23)
+### D&C 20:37 Qualifications for Baptism (page 23)
 
 - Humble themselves before God.
 - Desire to be baptized.
@@ -351,14 +343,14 @@ Search the following scriptures and make a list of the qualifications and covena
   - Moroni 6:1–4 D&C 20:37
 
 
-### Establishing the Church (Page 24)
+## Establishing the Church (Page 24)
 
 When people have been baptized and confirmed members of the Church, continue to work with ward leaders and members to help these new converts adjust to their new life and continue their spiritual growth. The Church is established as people who have testimonies are baptized and confirmed, keep their covenants, prepare actively to go to the temple, and help strengthen the ward or branch.
 
 Converts who have member friends, who are given responsibility, and who are nourished by God’s word will grow in testimony and faith. Missionaries, ward leaders, and Church members should not turn away from their responsibility to nourish and strengthen new members.
 
 
-### A Successful Missionary (Page 24)
+## A Successful Missionary (Page 24)
 
 Your success as a missionary is measured primarily by your commitment to find, teach, baptize, and confirm people and to help them become faithful members of the Church who enjoy the presence of the Holy Ghost.
 
@@ -379,14 +371,14 @@ When you have done your very best, you may still experience disappointments, but
 #### Scripture Study (Page 25)
 
 How do servants of the Lord feel about the work? How do servants of the Lord influence those they serve?
-  - Read Mosiah 28:3, Alma 8:14–15, Helaman 10:3–5, 3 Nephi 28:4–10, Ether 12:13–15, D&C 15:4–6, D&C 16:4–6 and D&C 68:2–6 for the answer to the questions.
+  - Read Mosiah 28:3, Alma 8:14–15, Helaman 10:3–5, 3 Nephi 28:4–10, Ether 12:13–15, D&C 15:4–6, D&C 16:4–6 and D&C 68:2–6 for the answers to the questions.
 
 #### Activity: Personal Study (Page 25)
 - Read Helaman 10:1–5 and 3 Nephi 7:17–18. How did the Lord feel about these missionaries and their service?
 - Think about the missionary efforts of Abinadi and Ammon (see Mosiah 11–18; Alma 17–20, 23–24). Why were both missionaries successful even though the immediate results of their efforts were different?
 - Record what you learn in your study journal.
 
-#### Remember This (Page 25)
+### Remember This (Page 25)
 - Your purpose is to invite others to come unto Christ by helping them receive the restored gospel through faith in Jesus Christ and His Atonement, repentance, baptism, receiving the Holy Ghost, and enduring to the end.
 - The restored gospel of Jesus Christ is the only way by which we can find eternal happiness.
 - Your calling gives you authority; keeping your covenants gives you power.
@@ -395,85 +387,72 @@ How do servants of the Lord feel about the work? How do servants of the Lord inf
 - You show your love for the Lord and gratitude for His Atonement by bringing souls unto Him.
 - You are successful when you are obedient, live righteously, and do your best in helping others live the gospel.
 
-### Missionary Work (Page 26)
+## Missionary Work (Page 26)
 
 Following are statements made by Presidents of the Church in this dispensation.
 
-#### President Joseph Smith (1830–1844) (Page 26)
-
+### President Joseph Smith (1830–1844) (Page 26)
 “After all that has been said, the greatest and most important duty is to preach the Gospel” (Teachings of the Prophet Joseph Smith, sel. Joseph Fielding Smith [1976], 113).
 
 “Let the Saints remember that great things depend on their individual exertion, and that they are called to be co-workers with us and the Holy Spirit in accomplishing the great work of the last days” (Teachings of the Prophet Joseph Smith, 178–79).
 
-#### President Brigham Young (1847–1877) (Page 26)
 
+### President Brigham Young (1847–1877) (Page 26)
 “There is neither man or woman in this Church who is not on a mission. That mission will last as long as they live, and it is to do good, to promote righteousness, to teach the principles of truth, and to prevail upon themselves and everybody around them to live those principles that they may obtain eternal life” (Discourses of Brigham Young, sel. John A. Widtsoe [1954], 322).
 
-#### President John Taylor (1880–1887) (Page 26)
 
+### President John Taylor (1880–1887) (Page 26)
 “Our duty is to preach the gospel to all men. . . . This is what God expects of us” (The Gospel Kingdom, sel. G. Homer Durham [1943], 234–35).
 
-#### President Wilford Woodruff (1889–1898) (Page 26)
-
+### President Wilford Woodruff (1889–1898) (Page 26)
 “We have come to this earth upon a mission; . . . that we may have power to go forth and warn the nations of the earth. . . . As elders of Israel, very few of us fully comprehend our position, our calling, our relationship to God, our responsibility, our work the Lord requires at our hands” (The Discourses of Wilford Woodruff, sel. G. Homer Durham [1946], 124).
 
-#### President Lorenzo Snow (1898–1901) (Page 26)
-
+### President Lorenzo Snow (1898–1901) (Page 26)
 “There is no mortal man that is so much interested in the success of an elder when he is preaching the gospel as the Lord that sent him to preach to the people who are the Lord’s children” (The Teachings of Lorenzo Snow, comp. Clyde J. Williams [1984], 70).
 
-#### President Joseph F. Smith (1901–1918) (page 26)
-
+### President Joseph F. Smith (1901–1918) (page 26)
 “We have a mission in the world: each man, each woman, each child who has grown to understanding or to the years of accountability, ought . . . to be qualified to preach the truth, to bear testimony of the truth” (Gospel Doctrine, 13th ed. [1968], 251–52).
 
 
-#### President Heber J. Grant (1918–1945) (Page 26)
-
+### President Heber J. Grant (1918–1945) (Page 26)
 “We as a people have one supreme thing to do, and that is to call upon the world to repent of sin, to come to God. And it is our duty above all others to go forth and proclaim the gospel of the Lord Jesus Christ, the restoration again to the earth of the plan of life and salvation. . . . We have in very deed the pearl of great price. We have that which is of more value than all the wealth and the scientific information which the world possesses. We have the plan of life and salvation. . . . The best way in the world to show our love for our neighbor is to go forth and proclaim the gospel of the Lord Jesus Christ, of which he has given us an absolute knowledge concerning its divinity” (in Conference Report, Apr. 1927, 175–76).
 
-#### President George Albert Smith (1945–1951) (Page 26)
-
+### President George Albert Smith (1945–1951) (Page 26)
 “That is your mission, my brethren and sisters of the Church, that is your responsibility. Freely you have received and our Heavenly Father will expect you freely to share with His other sons and daughters these glorious truths” (Sharing the Gospel with Others, sel. Preston Nibley [1948], 213).
 
 “We will attain our exaltation in the Celestial Kingdom only on the condition that we share with our Father’s other children the blessings of the Gospel of Jesus Christ and observe the commandments that will enrich our lives here and hereafter” (Sharing the Gospel with Others, 190).
 
-#### President David O. McKay (1951–1970) (Page 27)
-
+### President David O. McKay (1951–1970) (Page 27)
 “Every member . . . a missionary!” (in Conference Report, Apr. 1959, 122). “True Christianity is love in action. There is no better way to manifest love for God than to show an unselfish love for your fellow men. This is the spirit of missionary work” (Gospel Ideals [1954], 129).
 
-#### President Joseph Fielding Smith (1970–1972) (Page 27)
-
+### President Joseph Fielding Smith (1970–1972) (Page 27)
 “We have heard that we are all missionaries. Every member . . . is or ought to be a missionary; . . . as members of the Church, having pledged ourselves to the advancement of the gospel of Jesus Christ we become missionaries. That is part of the responsibility of every member of the Church” (Take Heed to Yourselves [1971], 27–28).
 
-#### President Harold B. Lee (1972–1973) (Page 27)
-
+### President Harold B. Lee (1972–1973) (Page 27)
 “Missionary work is but home teaching to those who are not now members of the Church, and home teaching is nothing more or less than missionary work to Church members” (Improvement Era, Dec. 1964, 1078).
 
-#### President Spencer W. Kimball (1973–1985) (Page 27)
-
+### President Spencer W. Kimball (1973–1985) (Page 27)
 “Now is the moment in the timetable of the Lord to carry the gospel farther than it has ever been carried before. . . . Many a person in this world is crying, knowingly and unknowingly, ‘Come over . . . and help us.’ He might be your neighbor. She might be your friend. He might be a relative. She might be someone you met only yesterday. But we have what they need. Let us take new courage from our studies and pray, as did Peter, ‘And now, Lord, . . . grant unto thy servants, that with all boldness they may speak thy word’ (Acts 4:29)” (Teachings of Spencer W. Kimball [1982], 546).
 
-#### President Ezra Taft Benson (1985–1994) (Page 27)
-
+### President Ezra Taft Benson (1985–1994) (Page 27)
 “We must share the gospel with others. That is our responsibility—every member a missionary. That is the call of prophets of God. . . .
 
 “. . . Member-missionary work is one of the great keys to the individual growth of our members. It is my conviction that member-missionary work will raise the spirituality in any ward where applied” (Teachings of Ezra Taft Benson, 208–9).
 
-#### President Howard W. Hunter (1994–1995) (Page 27)
-
+### President Howard W. Hunter (1994–1995) (Page 27)
 “Surely taking the gospel to every kindred, tongue, and people is the single greatest responsibility we have in mortality. . . . We have been privileged to be born in these last days, as opposed to some earlier dispensation, to help take the gospel to all the earth” (“Walls of the Mind,” Ensign, Sept. 1990, 10).
 
 “What does the Atonement have to do with missionary work? Any time we experience the blessings of the Atonement in our lives, we cannot help but have a concern for the welfare of others. . . . A great indicator of one’s personal conversion is the desire to share the gospel with others.” (“The Atonement and Missionary Work,” seminar for new mission presidents, June 1994).
 
-#### President Gordon B. Hinckley (1995–2008) (Page 27)
-
+### President Gordon B. Hinckley (1995–2008) (Page 27)
 “We are here to assist our Father in His work and His glory, ‘to bring to pass the immortality and eternal life of man’ (Moses 1:39). Your obligation is as serious in your sphere of responsibility as is my obligation in my sphere” (in Conference Report, Apr. 1995, 94; or Ensign, May 1995, 71). 
 
 “Let there be cultivated an awareness in every member’s heart of his own potential for bringing others to a knowledge of the truth. Let him work at it. Let him pray with great earnestness about it” (“Find the Lambs, Feed the Sheep,” Ensign, May 1999, 106).
 
 
-### Ideas for Study and Application (page 28)
+## Ideas for Study and Application (page 28)
 
-#### Personal Study (Page 28)
+### Personal Study (Page 28)
 
 - Prepare a two-minute talk on one of the questions at the beginning of this chapter. Be prepared to share your talk with your companion or with other missionaries in a district meeting.
 - Ask recent converts to tell their conversion stories. What helped them gain “faith unto repentance” (Alma 34:17)? Why did they decide to be baptized and confirmed? What was it like for them to become new members of the Church? How could missionaries have served them better?
@@ -481,7 +460,7 @@ Following are statements made by Presidents of the Church in this dispensation.
 - Read Mormon 8 and Moroni 1 and 10. As you read, ask yourself, “What was Moroni’s hope for our day? What did he want us to do with the Book of Mormon? What would I say to Moroni if I had the chance?” Record your thoughts in your study journal.
 - Consider the events in your life that have strengthened your testimony of Joseph Smith and the Restoration. Then write an answer to this question: What has helped you know that Heavenly Father and Jesus Christ appeared to Joseph Smith?
 
-#### Companion Study (Page 28)
+### Companion Study (Page 28)
 
 - Share with each other your answers to the questions from “Consider This” at the beginning of the chapter.
 - Share with each other what your hopes and desires were for your mission when you received your mission call. To what extent does your experience thus far meet your expectations? How can you meet these expectations more fully?
@@ -497,7 +476,7 @@ Following are statements made by Presidents of the Church in this dispensation.
 - Read together “Faith,” “Repentance,” “Baptism,” and “Holy Ghost” in the Bible Dictionary. Read and discuss all the scripture references in each entry.
 - Read together “Dispensations” in the Bible Dictionary. Also read and discuss Doctrine and Covenants 136:37.
 
-#### District Meetings and Zone Conferences (Page 29)
+### District Meetings and Zone Conferences (Page 29)
 
 - Invite two or three recent converts to share their conversion experiences. How did they feel about the missionaries? about what the missionaries taught? about keeping commitments? What most strongly influenced their conversion?
 - Invite a priesthood leader to talk to the missionaries about the opportunities and difficulties of building the Church in your area.
@@ -507,7 +486,7 @@ Following are statements made by Presidents of the Church in this dispensation.
 - Several days before the meeting, assign several missionaries to ponder selected questions from “Consider This” at the beginning of the chapter. Ask each missionary to prepare a two- to three-minute talk on his or her assigned question. During the district meeting or zone conference, allow the missionaries to give their talks. Following the talks, discuss what they learned and how they could use it in their missionary work.
 - Divide the missionaries into four groups. Ask each group to list as many truths, covenants, and ordinances as they can that were restored and revealed through the Prophet Joseph Smith. Have each group share their results. Invite missionaries to share how any of the truths revealed through the Restoration has influenced their lives.
 
-#### Mission President (Page 29)
+### Mission President (Page 29)
 
 1. During interviews, periodically ask missionaries to share with you:
   – Their testimony of Jesus Christ.
@@ -519,780 +498,273 @@ Following are statements made by Presidents of the Church in this dispensation.
 3. Send a letter of congratulations to new members.
 
 
-## How Do I Study Effectively and Prepare to Teach?
+# How Do I Study Effectively and Prepare to Teach? (Page 31)
 
-Consider This
-=============
-
-
-• Why is it important to study the gospel?
-
-
-• How will my study affect those I teach?
-
-
-• Why do I need to continually treasure up the doctrines of the gospel of Jesus Christ?
+### Consider This (Page 31)
+- Why is it important to study the gospel?
+- How will my study affect those I teach?
+- Why do I need to continually treasure up the doctrines of the gospel of Jesus Christ?
+- How can I effectively learn the doctrines of the restored gospel of Jesus Christ and prepare to teach others?
+- How can I improve my personal and companion study?
+  
+> These are questions to consider finding answers to as you study this chapter
 
 
-• How can I effectively learn the doctrines of the restored gospel of Jesus Christ and prepare to teach others?
-
-
-• How can I improve my personal and companion study?
-
-
-then shall your tongue be loosed; then, if you desire, you shall have my Spirit and my word, yea, the power of God unto the convincing of men” (D&C 11:21). To teach effectively, you need to obtain spiritual knowledge. For you to grow in the gospel and stay on the path that leads to eternal life, you need to develop a habit of gospel study (see D&C 131:6). The study habits you develop as a missionary will bless you personally and help those you teach grow in their faith in the Savior.
-
+The Lord has said, “Seek not to declare my word, but first seek to obtain my word, and then shall your tongue be loosed; then, if you desire, you shall have my Spirit and my word, yea, the power of God unto the convincing of men” (D&C 11:21). To teach effectively, you need to obtain spiritual knowledge. For you to grow in the gospel and stay on the path that leads to eternal life, you need to develop a habit of gospel study (see D&C 131:6). The study habits you develop as a missionary will bless you personally and help those you teach grow in their faith in the Savior.
 
 Effective daily study must always begin with prayer. Study is an act of faith requiring the use of personal agency. Many missionaries struggle to know how to study effectively. Some rely heavily on others or on structured programs to tell them what and how to study. While learning from a good teacher is very important, it is more important for you to have meaningful learning experiences on your own. Getting good results from your study depends on having a strong desire to learn, studying with “real intent” (Moroni 10:4), “hunger[ing] and thirst[ing] after righteousness” (Matthew 5:6), and searching for answers to your investigators’ questions and concerns.
 
 
-/
-Notes
+#### Activity: Personal Study (Page 32)
+Read Joseph Smith—History 1:11–13. Answer the following questions in your study journal.
+- How did Joseph Smith’s reading and pondering of James 1:5 lead him to receive revelation?
+- What influence did his study have on future generations?
+- What effect has his decision to study and seek had in your life?
+- How has your gospel study influenced your life?
 
-
-17
-2 Effective Study
-=================
-
-
-Notes
-
-
-Activity: Personal Study
-
-
-Look at the picture of Joseph Smith on the previous page. Read Joseph Smith—History 1:11–13. Answer the following questions in your study journal.
-
-
-• How did Joseph Smith’s reading and pondering of James 1:5 lead him to receive revelation?
-
-
-• What influence did his study have on future generations?
-
-
-• What effect has his decision to study and seek had in your life?
-
-
-• How has your gospel study influenced your life?
-
-
-Scripture Study
-===============
-
-
+#### Scripture Study (Page 32)
 How does the Lord want us to approach gospel study?
+- Read 2 Nephi 4:15–16, 2 Nephi 32:3, D&C 58:26–28, and D&C 88:118 for answers to the question.
 
-
-2 Nephi 4:15–16 2 Nephi 32:3
-
-
-D&C 58:26–28
-
-
-D&C 88:118
-
-
-.
-Learning by the Holy Ghost
-==========================
-
+## Learning by the Holy Ghost (Page 32)
 
 Your gospel study is most effective when you are taught by the Holy Ghost. Always begin your gospel study by praying for the Holy Ghost to help you learn. He will bring knowledge and conviction that will bless your life and allow you to bless the lives of others. Your faith in Jesus Christ will increase. Your desire to repent and improve will grow.
 
-
-![see page 32](#)
 This kind of study prepares you for service, offers solace, resolves problems, and gives you the strength to endure to the end. Successful gospel study requires desire and action. “For he that diligently seeketh shall find; and the mysteries of God shall be unfolded unto them, by the power of the Holy Ghost, as well in these times as in times of old” (1 Nephi 10:19). Like Enos, as you hunger to know the words of eternal life and as you allow these words to “[sink] deep into [your] heart” (Enos 1:3), the Holy Ghost will open your mind and heart to greater light and understanding.
 
+Learning the gospel is also a process of receiving revelation (see Jacob 4:8). To Oliver Cowdery the Lord said: “Behold, you have not understood; you have supposed that I would give it unto you, when you took no thought save it was to ask me. But, behold, I say unto you, that you must study it out in your mind; then you must ask me if it be right, and if it is right I will cause that your bosom shall burn within you; therefore, you shall feel that it is right” (D&C 9:7–8). As you study, pay careful attention to ideas that come to your mind and feelings that come to your heart, particularly regarding the people you are teaching.
 
-Cowdery the Lord said: “Behold, you have not understood; you have supposed that I would give it unto you, when you took no thought save it was to ask me. But, behold, I say unto you, that you must study it out in your mind; then you must ask me if it be right, and if it is right I will cause that your bosom shall burn within you; therefore, you shall feel that it is right” (D&C 9:7–8). As you study, pay careful attention to ideas that come to your mind and feelings that come to your heart, particularly regarding the people you are teaching.
-
-
-Scripture Study
-===============
-
-
+#### Scripture Study (Page 32)
 What is the Holy Ghost’s role in helping us learn the gospel?
-=============================================================
+Read 2 Nephi 32:5, D&C 11:12-14, John 16:13, Alma 5:45-46, D&C 39:5-6, 1 Corinthians 2:9-14, Moroni 10:5, and John 14:26 to find answers to this question.
 
-
-
-
-| 2 Nephi 32:5 | D&C 11:12-14 | John 16:13 |
-| --- | --- | --- |
-| Alma 5:45-46 | D&C 39:5-6 | 1 Corinthians 2:9-14 |
-| Moroni 10:5 | John 14:26 |  |
-
-
-* 
-
-
-18
-2 Effective Study
-=================
-
-
-Live What You Learn
-===================
-
-
+## Live What You Learn (Page 33)
 As you feel the joy that comes from under- standing the gospel, you will want to apply what you learn. Strive to live in harmony with your understanding. Doing so will strengthen your faith, knowledge, and testimony. Acting on what you have learned will bring added and enduring understanding (see John 7:17).
-
 
 As you treasure up the words of the scriptures and latter-day prophets by study and faith, your desire to share the gospel will increase. You are promised that the Spirit will help you know what to say when you teach. The Lord said, “Neither take ye thought beforehand what ye shall say; but treasure up in your minds continually the words of life, and it shall be given you in the very hour that portion that shall be meted unto every man” (D&C 84:85).
 
-
-Scripture Study
-===============
+> “True doctrine, understood, changes attitudes and behavior. The study of the doctrines of the gospel will improve behavior quicker than a study of behavior will improve behavior.” – PRESIDENT BOYD K. PACKER “LITTLE CHILDREN,” ENSIGN, NOV. 1986, 17
 
 
+#### Scripture Study (Page 33)
 What do the scriptures teach about learning the gospel?
+Study 1 Nephi 10:17–19, D&C 11:21–22, D&C 50:19–22, and D&C 88:118 to find answers to this question.
 
 
-1 Nephi 10:17–19 D&C 11:21–22
-D&C 50:19–22
+## Studying and Preparing to Teach the Lessons (Page 33)
 
-
-“True doctrine, understood, changes attitudes and behavior. The study of the doctrines of the gospel will improve behavior quicker than a study of behavior will improve behavior.”
-
-
-– PRESIDENT BOYD K. PACKER “LITTLE CHILDREN,” ENSIGN, NOV. 1986, 17
-
-
-D&C 88:118
-
-
-/
-Notes
-
-
-Studying and Preparing to Teach the Lessons
-===========================================
-
-
-and doctrines that you are to teach. In the lessons you will also find useful ideas for teaching. However, the lessons do not tell you everything to say—or how to say it. Instead, you are responsible to thoroughly understand the lessons and teach by the Spirit in your own words. Teach so that others will strengthen their faith in Jesus Christ, desire to repent, and enter into covenants with God.
-
+The lessons (found in chapter 3) contain the baptismal interview questions, commitments and doctrines that you are to teach. In the lessons you will also find useful ideas for teaching. However, the lessons do not tell you everything to say—or how to say it. Instead, you are responsible to thoroughly understand the lessons and teach by the Spirit in your own words. Teach so that others will strengthen their faith in Jesus Christ, desire to repent, and enter into covenants with God.
 
 Effective teachers are always working to improve their knowledge and abilities. Although you will not teach all you know about the doctrine, your increased knowledge will build your testimony and your ability to teach with spiritual power. You will know you are using the lessons as intended when you:
+- Seek and follow the Spirit as you prepare and teach the lessons.
+- Strive to consistently study, treasure up, and apply the doctrines in your life.
+- Work with your companion to make specific plans for each person you teach.
+- Focus on the central messages and doctrines as you teach.
+- Adjust the order, length, and pace of the lessons to meet the needs of those you teach.
+- Teach often from the scriptures with clarity and conviction.
+- Bear testimony frequently.
+- Help others make and keep commitments that lead to baptism and confirmation.
 
+Doing these things will enable you to help others gain a testimony of the restored gospel of Jesus Christ. As you begin your mission, you will need to learn the organization of the message and acquire the necessary teaching skills. As you gain experience, you will want to deepen your knowledge and enhance your teaching ability. As you prepare for teaching appointments, you will want to have a lesson plan that enables you to teach by the Spirit and help others make and keep commitments. The guidelines below are suggestions that you can apply throughout your mission. However, do not feel that you must use every guideline in every situation. Instead, apply these guidelines to meet your needs and as you are guided by the Spirit. If you are learning a new language, apply these guidelines in your native language first and then in your mission language.
 
-• Seek and follow the Spirit as you prepare and teach the lessons.
+- **Focus on commitments and baptismal interview questions.** Teach so that people will make commitments and prepare for baptism and confirmation. Understand the baptismal interview questions and commitments for each lesson. Learn what someone should know, feel, and do because of your teaching. Work with your companion to explain these principles in your own words with clarity and power.
+  
+- **Learn and apply the doctrine.** The doctrine is the foundation of the lesson. Prayerfully study the scriptures, lesson, brochures, “Ideas for Teaching,” and missionary library to gain a solid understanding of the doctrine. Search for material that supports the doctrine of the lessons. Commit to memory the sequence of doctrinal principles. Apply what you learn. Record what you learn in your study journal. Share what you learn with other missionaries.
 
+- **Organize and summarize what to teach.** To prepare to teach the doctrine clearly and with spiritual power, organize and summarize what you will teach into a lesson plan. Focus on the doctrine, baptismal interview questions, and commitments of the lessons. Enhance your lesson plan with scriptures, questions, and examples. These should vary according to the length of your teaching appointments. You should not create an entirely new lesson plan for each investigator, but you should continually refine your lesson plans and modify them to meet the needs of those you teach. When you are first creating a lesson plan, strive to be simple and brief. Enhance your lesson plans as you gain experience.
 
-• Strive to consistently study, treasure up, and apply the doctrines in your life.
+- **Focus on needs.** While the doctrines of the gospel apply to everyone, you should adjust your teaching approach to meet the needs of those you teach. As you study doctrine and create lesson plans, identify areas where you can adjust your approach to meet potential needs. Review and refine these adjustments as you prepare for specific appointments. Identify the invitations you will extend. Focus on the ultimate goal of helping those you teach receive the restored gospel of Jesus Christ through baptism and confirmation.
 
+- **Prepare to answer questions.** As a missionary, you will hear many questions. Record these questions in your study journal. Search the scriptures and other materials for answers. Pray for understanding. Record the answers in your study journal. Review what you find with other missionaries. Add frequent questions and their answers to your study journal for reference.
 
-• Work with your companion to make specific plans for each person you teach.
+- **Teach the lesson.** Teaching is a powerful opportunity to improve your knowledge and ability. As you learn the doctrine and organize lesson plans, teach your companion and other missionaries. Try new explanations, approaches, experiences, questions, and ways to invite others to make commitments. Ask for ideas and suggestions.
 
+- **Evaluate your teaching.** After every teaching situation, evaluate how well you did. Did you focus on the doctrine? Did you invite investigators to repent and to make and keep commitments? Did you work to prepare them for baptism and confirmation? Did you use effective questions? Did you share your testimony? Did you ask for referrals? Adjust your lesson plans as you improve. As you learn the lessons, continue seeking a deep knowledge of the doctrine. Actively work to teach with greater power. As you study in prayer and faith, your knowledge and testimony will grow. However, do not try to teach all that you know. Teach the message clearly, simply, and based on individual needs, following the Spirit to teach “that portion that shall be meted unto every man” (D&C 84:85).
 
-• Focus on the central messages and doctrines as you teach.
-
-
-• Adjust the order, length, and pace of the lessons to meet the needs of those you teach.
-
-
-• Teach often from the scriptures with clarity and conviction.
-
-
-• Bear testimony frequently.
-
-
-• Help others make and keep commitments that lead to baptism and confirmation.
-
-
-19
-2 Effective Study
-=================
-
-
-Notes
-=====
-
-
-Doing these things will enable you to help others gain a testimony of the restored gospel of Jesus Christ.
-
-
-As you begin your mission, you will need to learn the organization of the message and acquire the necessary teaching skills. As you gain experience, you will want to deepen your knowledge and enhance your teaching ability. As you prepare for teaching appointments, you will want to have a lesson plan that enables you to teach by the Spirit and help others make and keep commitments. The guidelines below are suggestions that you can apply throughout your mission. However, do not feel that you must use every guideline in every situation. Instead, apply these guidelines to meet your needs and as you are guided by the Spirit. If you are learning a new language, apply these guidelines in your native language first and then in your mission language.
-
-
-• Focus on commitments and baptismal interview questions. Teach so that people will make commitments and prepare for baptism and confirmation. Understand the baptismal interview questions and commitments for each lesson. Learn what someone should know, feel, and do because of your teaching. Work with your companion to explain these principles in your own words with clarity and power.
-
-
-• Learn and apply the doctrine. The doctrine is the foundation of the lesson. Prayerfully study the scriptures, lesson, brochures, “Ideas for Teaching,” and missionary library to gain a solid understanding of the doctrine. Search for material that supports the doctrine of the lessons. Commit to memory the sequence of doctrinal principles. Apply what you learn. Record what you learn in your study journal. Share what you learn with other missionaries.
-
-
-• Organize and summarize what to teach. To prepare to teach the doctrine clearly and with spiritual power, organize and summarize what you will teach into a lesson plan. Focus on the doctrine, baptismal interview questions, and commitments of the lessons. Enhance your lesson plan with scriptures, questions, and examples. These should vary according to the length of your teaching appointments. You should not create an entirely new lesson plan for each investigator, but you should continually refine your lesson plans and modify them to meet the needs of those you teach. When you are first creating a lesson plan, strive to be simple and brief. Enhance your lesson plans as you gain experience.
-
-
-• Focus on needs. While the doctrines of the gospel apply to everyone, you should adjust your teaching approach to meet the needs of those you teach. As you study doctrine and create lesson plans, identify areas where you can adjust your approach to meet potential needs. Review and refine these adjustments as you prepare for specific appointments. Identify the invitations you will extend. Focus on the ultimate goal of helping those you teach receive the restored gospel of Jesus Christ through baptism and confirmation.
-
-
-20
-2 Effective Study
-=================
-
-
-• Prepare to answer questions. As a missionary, you will hear many questions. Record these questions in your study journal. Search the scriptures and other materials for answers. Pray for understanding. Record the answers in your study journal. Review what you find with other missionaries. Add frequent questions and their answers to your study journal for reference.
-
-
-• Teach the lesson. Teaching is a powerful opportunity to improve your knowledge and ability. As you learn the doctrine and organize lesson plans, teach your companion and other missionaries. Try new explanations, approaches, experiences, questions, and ways to invite others to make commitments. Ask for ideas and suggestions.
-
-
-• Evaluate your teaching. After every teaching situation, evaluate how well you did. Did you focus on the doctrine? Did you invite investigators to repent and to make and keep commitments? Did you work to prepare them for baptism and confirmation? Did you use effective questions? Did you share your testimony? Did you ask for referrals? Adjust your lesson plans as you improve.
-
-
-As you learn the lessons, continue seeking a deep knowledge of the doctrine. Actively work to teach with greater power. As you study in prayer and faith, your knowledge and testimony will grow. However, do not try to teach all that you know. Teach the message clearly, simply, and based on individual needs, following the Spirit to teach “that portion that shall be meted unto every man” (D&C 84:85).
-
-
-Defining Words
-==============
-
-
+#### Defining Words (Page 35)
 We have a powerful message with a unique vocabulary. Just as a physician speaks differently in the family waiting room than in the operating room, so too must you learn to speak so that those who are unfamiliar with our message can understand what you are teaching.
 
-
-and terms in the ”Ideas for Teaching“ section of each lesson. Become familiar with the definitions provided. Use True to the Faith and the Bible Dictionary to find definitions for other words. Write these definitions in your study journal. Share the definitions with your companion and others to see if you understand. If the definitions are unclear to others, revise your definitions based on the material you have studied.
-
+To prepare to help others understand unfamiliar words, study the list of key definitions and terms in the ”Ideas for Teaching“ section of each lesson. Become familiar with the definitions provided. Use True to the Faith and the Bible Dictionary to find definitions for other words. Write these definitions in your study journal. Share the definitions with your companion and others to see if you understand. If the definitions are unclear to others, revise your definitions based on the material you have studied.
 
 As you teach, seek to discern whether a word or principle is new to the person you are teaching. Take time to explain unfamiliar words or principles. Remember to teach for understanding so that you and those you teach “are edified and rejoice together” (D&C 50:22).
 
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 35)
 Turn to the lesson “The Message of the Restoration of the Gospel of Jesus Christ” located in chapter 3. Read the list of key definitions in the “Ideas for Teaching” section. Locate three other words in the lesson that you would like to define. Follow the suggestions given above in creating a definition for each.
 
 
-/
-Notes
-=====
-
-
-21
-2 Effective Study
-=================
-
-
-Notes
-
-
-Study Ideas and Suggestions
-===========================
-
-
+## Study Ideas and Suggestions (Page 36)
 Each of the ideas and suggestions in this section can make your study time more rewarding and spiritually uplifting. Consider the following as you plan your study:
-
-
-• Always begin with a prayer.
-
-
-• Plan study activities that will build your faith in the Savior and use your time productively.
-
-
-• Plan your study around people, their needs, and preparing them for baptism, confirmation, and enduring to the end. Note your study plans in your daily planner.
-
-
-• Plan your study by asking: What will I be teaching today? How can I plan my study to best help those I teach? Which ideas and suggestions from this section will I incorporate in my study?
-
+- Always begin with a prayer.
+- Plan study activities that will build your faith in the Savior and use your time productively.
+- Plan your study around people, their needs, and preparing them for baptism, confirmation, and enduring to the end. Note your study plans in your daily planner.
+- Plan your study by asking: What will I be teaching today? How can I plan my study to best help those I teach? Which ideas and suggestions from this section will I incorporate in my study?
 
 As you plan your study activities, experiment with some of the ideas and suggestions that follow or with additional ideas you learn from others.
 
 
-Apply and Live What You Learn
-=============================
+### Apply and Live What You Learn (Page 36)
+- “Liken” what you learn to yourself (see 1 Nephi 19:23).
+- Set goals to live what you are learning.
+- Substitute your name in a verse of scripture to personalize it.
+- Ask yourself, “How should I change as a result of what I have learned?” Set appropriate goals.
 
 
-• “Liken” what you learn to yourself (see 1 Nephi 19:23).
-
-
-• Set goals to live what you are learning.
-
-
-• Substitute your name in a verse of scripture to personalize it.
-
-
-• Ask yourself, “How should I change as a result of what I have learned?” Set appropriate goals.
-
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 36)
 Select one of the following references. As you read and ponder your chosen passage, identify two or three ways you can apply it in your life.
-
-
-* 2 Nephi 31
-
-
-* Alma 32:26–43
-
-
-* Moroni 7:32–48
-
+- 2 Nephi 31
+- Alma 32:26–43
+- Moroni 7:32–48
 
 Evaluate how well you live the principles that you teach. Choose one way in which you can improve, and make plans to do so.
 
+### Search, Ponder, and Remember (Page 36)
+- Be alert. Exercise, shower, and pray before you study.
+- Study at a desk or table where you can write (not lying down or sitting on your bed), organize your study materials, and remain alert.
+- Pray and ask for understanding.
+- Study by topic.
+- Ask yourself, “What is the author saying? What is the central message? How does this apply to me?”
+- Visualize what you are studying. For example, imagine what it was like for Ammon to stand before the Lamanite king.
+- Study the words of the living prophets (in the approved missionary library and Church magazines).
+- Write in your study journal questions you have, and use the scriptures, words of latter- day prophets, and other study resources to find answers.
+- A single verse of scripture may contain several ideas. Underline and mark words or phrases so that you distinguish between ideas in a single verse.
+- Share what you learn with other missionaries. You can learn much by explaining a doctrine or principle to another person.
+- Mark your scriptures and make notes in them. In the margins write scripture references that clarify the passages you are studying.
+- Memorize scripture passages that explain and support the principles you teach.
 
-o
-=
+### Use Study Resources (Page 37)
+- Use the study aids in the LDS edition of the scriptures (Topical Guide, Bible Dictionary, Joseph Smith Translation, Index to the triple combination, chapter headings, footnotes, and maps).
+- Use the missionary lessons, the approved missionary library, Church magazines, and this manual.
+- Review chapter headings in the scriptures. This review will give you ideas about what to look for in the chapter.
+- Use your study journal to record and organize what you are learning. Frequently review the thoughts you have recorded. Organize your journal so that you can easily recall what you have learned.
+- Use this manual as a workbook. Use the space for notes to record impressions and ideas.
+- Study the scripture passages listed in this manual. Record in this manual or your study journal other scripture passages you have found.
 
+### See the Big Picture (Page 37)
 
-Search, Ponder, and Remember
-============================
+- Get an overview, either by reading the book, chapter, or passage quickly or by reviewing headings. Seek to understand the context and background.
+- Try writing the main idea of the passage in a sentence or short paragraph.
+- Use the Bible and Church history maps to learn geography, distances, climate, and terrain.
+- Review the sequence of events and the culture. Read the historical information in the Bible Dictionary and the chapter and section summaries.
 
-
-• Be alert. Exercise, shower, and pray before you study.
-
-
-• Study at a desk or table where you can write (not lying down or sitting on your bed), organize your study materials, and remain alert.
-
-
-• Pray and ask for understanding.
-
-
-• Study by topic.
-
-
-• Ask yourself, “What is the author saying? What is the central message? How does this apply to me?”
-
-
-• Visualize what you are studying. For example, imagine what it was like for Ammon to stand before the Lamanite king.
-
-
-• Study the words of the living prophets (in the approved missionary library and Church magazines).
-
-
-/
-22
-2 Effective Study
-=================
-
-
-• Write in your study journal questions you have, and use the scriptures, words of latter- day prophets, and other study resources to find answers.
-
-
-• A single verse of scripture may contain several ideas. Underline and mark words or phrases so that you distinguish between ideas in a single verse.
-
-
-• Share what you learn with other missionaries. You can learn much by explaining a doctrine or principle to another person.
-
-
-• Mark your scriptures and make notes in them. In the margins write scripture references that clarify the passages you are studying.
-
-
-• Memorize scripture passages that explain and support the principles you teach.
-
-
-Use Study Resources
-===================
-
-
-• Use the study aids in the LDS edition of the scriptures (Topical Guide, Bible Dictionary, Joseph Smith Translation, Index to the triple combination, chapter headings, footnotes, and maps).
-
-
-• Use the missionary lessons, the approved missionary library, Church magazines, and this manual.
-
-
-• Review chapter headings in the scriptures. This review will give you ideas about what to look for in the chapter.
-
-
-• Use your study journal to record and organize what you are learning. Frequently review the thoughts you have recorded. Organize your journal so that you can easily recall what you have learned.
-
-
-• Use this manual as a workbook. Use the space for notes to record impressions and ideas.
-
-
-• Study the scripture passages listed in this manual. Record in this manual or your study journal other scripture passages you have found.
-
-
-See the Big Picture
-===================
-
-
-• Get an overview, either by reading the book, chapter, or passage quickly or by reviewing headings. Seek to understand the context and background.
-
-
-• Try writing the main idea of the passage in a sentence or short paragraph.
-
-
-• Use the Bible and Church history maps to learn geography, distances, climate, and terrain.
-
-
-• Review the sequence of events and the culture. Read the historical information in the Bible Dictionary and the chapter and section summaries.
-
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 37)
 Read the chapter summaries of the books below and write an outline that describes the setting, main events, and main doctrines of each book.
+- 1 Nephi
+- Moses
+- Acts
 
+### Explore the Details (Page 38)
 
-1 Nephi
+- Look for key words and make sure you understand what they mean. Use the footnotes, Bible Dictionary, or another dictionary for definitions. Examine surrounding words or phrases for clues to what the key words mean.
+- Look for connecting words, such as therefore, and again, thus, wherefore, and others. Then see how the preceding and following passages relate to each other.
+- Use the Topical Guide to see how the same word is used in other contexts or how other prophets use the same word.
+- Look for unfamiliar words or phrases and make sure you understand them.
 
-
-Moses
-
-
-Acts
-
-
-/
-Notes
-
-
-23
-2 Effective Study
-=================
-
-
-Notes
-
-
-Explore the Details
-===================
-
-
-• Look for key words and make sure you understand what they mean. Use the footnotes, Bible Dictionary, or another dictionary for definitions. Examine surrounding words or phrases for clues to what the key words mean.
-
-
-• Look for connecting words, such as therefore, and again, thus, wherefore, and others. Then see how the preceding and following passages relate to each other.
-
-
-• Use the Topical Guide to see how the same word is used in other contexts or how other prophets use the same word.
-
-
-• Look for unfamiliar words or phrases and make sure you understand them.
-
-
-Marking Scriptures
-==================
-
+### Marking Scriptures (Page 38)
 
 Marking your scriptures can assist you in thinking deeply about a passage or doctrine of the gospel. You can mark your scriptures in many ways. Find a method that works for you. Below are some guidelines for marking scriptures.
-
-
-• Use pencils or colored markers. Avoid using pens that bleed through the paper.
-
-
-• Shade, underline, bracket, or outline part of a verse, an entire verse, or a group of verses.
-
-
-• Avoid excessive marking. The benefit is lost if you cannot understand your markings because you have made too many notes, lines, and colors.
-
-
-• Underline only a few key words to highlight the verse, section, or chapter.
-
-
-• Circle or underline key words, and then use straight lines to link closely related words.
-
-
-• When a series of points in a verse or passage are related, number the points in the margin or text.
-
-
-• Use the footnotes as a resource for marking and interpreting the scriptures.
-
-
-• Place a symbol (such as a check mark) in the margin for key verses you feel are critical to remember.
-
+- Use pencils or colored markers. Avoid using pens that bleed through the paper.
+- Shade, underline, bracket, or outline part of a verse, an entire verse, or a group of verses.
+- Avoid excessive marking. The benefit is lost if you cannot understand your markings because you have made too many notes, lines, and colors.
+- Underline only a few key words to highlight the verse, section, or chapter.
+- Circle or underline key words, and then use straight lines to link closely related words.
+- When a series of points in a verse or passage are related, number the points in the margin or text.
+- Use the footnotes as a resource for marking and interpreting the scriptures.
+- Place a symbol (such as a check mark) in the margin for key verses you feel are critical to remember.
 
 Marking your scriptures should help you focus on applying what you learn and on teaching others. Develop an approach that is consistent and helps you accomplish your purpose as a missionary.
 
 
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 38)
 Which suggestions have you not yet tried? Identify one suggestion from “Study Ideas and Suggestions” to try during your next personal or companion study session.
 
-
-Remember This
-=============
-
-
-• Pursuing the desire to learn is important to your salvation and your success as a missionary.
-
-
-• You learn the gospel by study, faith, and the power of the Holy Ghost.
+#### Remember This (Page 38)
+- Pursuing the desire to learn is important to your salvation and your success as a missionary.
+- You learn the gospel by study, faith, and the power of the Holy Ghost.
+- Learning is a joy and brings many blessings.
+- Daily personal and companion study strengthens your faith and your ability to teach by the Spirit.
+- Use a variety of study methods that make the experience meaningful and enjoyable.
 
 
-• Learning is a joy and brings many blessings.
+## Ideas for Study and Application (Page 39)
 
-
-• Daily personal and companion study strengthens your faith and your ability to teach by the Spirit.
-
-
-• Use a variety of study methods that make the experience meaningful and enjoyable.
-
-
-o
-=
-
-
-%
-/
-24
-Ideas for Study and Application
-===============================
-
-
-Notes
-
-
-Personal Study
-==============
-
-
-• Rate yourself on the following (1=never, 3=some of the time, and 5=almost always).
-
-
-– I think about the people I am teaching when I study.
-
-
-– Throughout the day I think about what I studied in the morning.
-
-
-– As I study, ideas come to my mind that have not occurred to me before.
-
-
-– I record spiritual impressions and ideas in an appropriate place.
-
-
-– I fall asleep as I study.
-
-
-– I look forward to personal study.
-
-
-– I look forward to companion study.
-
+### Personal Study (Page 39)
+1. Rate yourself on the following (1=never, 3=some of the time, and 5=almost always).
+  - I think about the people I am teaching when I study.
+  - Throughout the day I think about what I studied in the morning.
+  - As I study, ideas come to my mind that have not occurred to me before.
+  - I record spiritual impressions and ideas in an appropriate place.
+  - I fall asleep as I study.
+  - I look forward to personal study.
+  - I look forward to companion study.
 
 Review your responses. What are you doing well? Do you wish any of your responses were different? Set one or two goals that will improve the quality of your study.
 
-
-• Review the “Consider This” questions at the beginning of this chapter. How do these questions influence your study?
-
-
-• Review the “Study Ideas and Suggestions.” Identify one suggestion from each category that you have not used, and try these ideas during your personal study.
-
-
-• Read Doctrine and Covenants 138:1–11. As you read these verses, answer the following questions:
-
-
-– What did President Smith have to do for his mind to be opened?
-
-
-– How did he feel about the doctrine he was thinking about?
-
-
-• Read the definition of knowledge in the Bible Dictionary and the references listed. In your study journal, write an answer to the question “What knowledge can help me serve effectively as a missionary?”
-
-
-• Select a doctrine from chapter 3 you would like to understand better. Write in your study journal questions you would like to answer. Carefully study that doctrine for a period of time (a few days), and pray specifically for increased understanding. Write what you learn.
-
-
-• Read 1 Nephi 10:17; 11:1–6. As you read these verses, answer the question “Why was Nephi able to learn what his father knew?”
-
-
-Companion Study
-===============
-
-
-• Read together the following passages. Answer the question “Why should we seek divine light?”
-
-
-D&C 11:11–14
-
-
-John 8:12
-
-
-Psalm 119:105
-
-
-D&C 84:43–47
-
-
-2 Effective Study
-=================
-
-
-25
-2 Effective Study
-=================
-
-
-26
-Notes
-
-
-• Read together several of the passages below, and discuss blessings that come from studying the word of God. Which passages would best help those you teach?
-
-
-1 Nephi 10:19
-
-
-2 Nephi 32:3
-
-
-Mosiah 1:6–7
-
-
-Alma 17:2–3
-
-
-Alma 32:42–43
-
-
-Alma 37:44–46
-
-
-Alma 49:30
-
-
-D&C 90:24
-
-
-D&C 130:19
-
-
-TG, “Scriptures, study of” and “Scriptures, value of,” 452–53
-=============================================================
-
-
-District Meetings and Zone Conferences
-======================================
-
-
-• Select a topic from one of the missionary lessons that you have carefully studied. Do the following:
-
-
-– Share two or three main points you learned from your study that were helpful in teaching that lesson.
-
-
-– Describe the way you approached your study that helped you discover these points (how you read, resources you used, questions you were researching, and so on).
-
-
-– Show how you recorded and organized the results of your study.
-
-
+2. Review the “Consider This” questions at the beginning of this chapter. How do these questions influence your study?
+3. Review the “Study Ideas and Suggestions.” Identify one suggestion from each category that you have not used, and try these ideas during your personal study.
+4. Read Doctrine and Covenants 138:1–11. As you read these verses, answer the following questions:
+  – What did President Smith have to do for his mind to be opened?
+  – How did he feel about the doctrine he was thinking about?
+5. Read the definition of knowledge in the Bible Dictionary and the references listed. In your study journal, write an answer to the question “What knowledge can help me serve effectively as a missionary?”
+6. Select a doctrine from chapter 3 you would like to understand better. Write in your study journal questions you would like to answer. Carefully study that doctrine for a period of time (a few days), and pray specifically for increased understanding. Write what you learn.
+7. Read 1 Nephi 10:17; 11:1–6. As you read these verses, answer the question “Why was Nephi able to learn what his father knew?”
+
+
+### Companion Study (Page 39)
+1. Read together the following passages. Answer the question “Why should we seek divine light?”
+  - D&C 11:11–14, John 8:12, Psalm 119:105, and D&C 84:43–47.
+2. Read together several of the passages below, and discuss blessings that come from studying the word of God. Which passages would best help those you teach?
+  - 1 Nephi 10:19, 2 Nephi 32:3, Mosiah 1:6–7, Alma 17:2–3, Alma 32:42–43, Alma 37:44–46, Alma 49:30, D&C 90:24, D&C 130:19 and TG, “Scriptures, study of” and “Scriptures, value of,” 452–53
+
+### District Meetings and Zone Conferences (Page 40)
+1. Select a topic from one of the missionary lessons that you have carefully studied. Do the following:
+  – Share two or three main points you learned from your study that were helpful in teaching that lesson.
+  – Describe the way you approached your study that helped you discover these points (how you read, resources you used, questions you were researching, and so on).
+  – Show how you recorded and organized the results of your study.
 If time permits, ask a few other missionaries to do the same.
 
-
-• This activity may be done individually or in small groups. Instruct the missionaries to select one of the following questions (or you may create some of your own questions). Have them write the question down.
-
-
-– Why are families so important in God’s plan?
-
-
-– Why do people have trials and suffering?
-
-
-– What is the role of the Spirit in conversion?
-
-
+2. This activity may be done individually or in small groups. Instruct the missionaries to select one of the following questions (or you may create some of your own questions). Have them write the question down.
+  – Why are families so important in God’s plan?
+  – Why do people have trials and suffering?
+  – What is the role of the Spirit in conversion?
+  
 Explain that they will have five to seven minutes to:
-
-
-– Find at least two scripture references that answer the question.
-
-
-– Write a simple interpretation of how the scriptures they chose answer the question.
-
-
-– Describe what they would do to remember the answer.
-
-
-– Describe what they would do to explore the question more deeply.
-
-
+  – Find at least two scripture references that answer the question.
+  – Write a simple interpretation of how the scriptures they chose answer the question.
+  – Describe what they would do to remember the answer.
+  – Describe what they would do to explore the question more deeply.
 Invite a few missionaries (or each group) to share their answers. Discuss their responses.
 
+3. Ask the missionaries to write one or two questions about the gospel principles and doctrines from one of the lessons in chapter 3 for which they would like to find an answer. Invite the missionaries to share their questions with the group. For each question, discuss the following:
+  – How will answering this question bless the life of the missionary?
+  – How will it bless the lives of investigators?
+  – How could a missionary find the answer?
 
-• Ask the missionaries to write one or two questions about the gospel principles and doctrines from one of the lessons in chapter 3 for which they would like to find an answer. Invite the missionaries to share their questions with the group. For each question, discuss the following:
+4. Ask several missionaries to share a gospel principle that their companions have taught them. Ask them to explain the principle and how their companion taught it to them.
 
-
-– How will answering this question bless the life of the missionary?
-
-
-– How will it bless the lives of investigators?
-
-
-– How could a missionary find the answer?
+5. Organize missionaries into companionships or small groups. Assign each group to read one chapter from the Book of Mormon. Have each group select one idea from each of the categories in the section “Study Ideas and Suggestions.” Invite the groups to apply each suggestion as they read their chapter together. Allow 15 to 20 minutes for reading and discussion. Have each group explain the suggestions they used, how well the suggestions worked, and what they learned.
 
 
-• Ask several missionaries to share a gospel principle that their companions have taught them. Ask them to explain the principle and how their companion taught it to them.
+6. Invite each missionary to think of a story or event in the scriptures that has meaning to him or her (such as Lehi’s vision of the tree of life, King Benjamin’s sermon, the Sermon on the Mount, or Christ’s appearance to the Nephites). Invite the missionaries to sketch or describe how they visualize the accounts they have chosen. Invite two or three missionaries to share what they visualize. Ask others to tell the stories and relate them to doctrines in one of the lessons. Read Moroni 10:3 and discuss the value of pondering deeply about spiritual knowledge.
 
 
-• Organize missionaries into companionships or small groups. Assign each group to read one chapter from the Book of Mormon. Have each group select one idea from each of the categories in the section “Study Ideas and Suggestions.” Invite the groups to apply each suggestion as they read their chapter together. Allow 15 to 20 minutes for reading and discussion. Have each group explain the suggestions they used, how well the suggestions worked, and what they learned.
+### Mission President (Page 41)
+1. Invite missionaries to bring their study journals to interviews. Invite them to share one entry with you.
+2. During interviews, ask some of the following questions:
+  – What impressions have you had recently in your scripture study?
+  – What is one gospel principle that your companion has recently taught you?
+  – What chapter or section of this manual has helped you most in the past two weeks?
+  – What are you doing in your personal study that helps you learn the most?
+
+3. During zone conferences, invite missionaries to share meaningful experiences they have had in their personal and companion study.
+4. During zone conferences, allow missionaries to share personal study ideas.
+5. Share with missionaries insights you have had in your personal study. Share entries from your study journal and your testimony of the importance of gospel study.
+6. As you can, join missionaries in their companion study.
+7. During interviews, invite missionaries to share one of their lesson plans from one of the missionary lessons. Ask them what these doctrines mean to them.
 
 
-meaning to him or her (such as Lehi’s vision of the tree of life, King Benjamin’s sermon, the Sermon on the Mount, or Christ’s appearance to the Nephites). Invite the missionaries to sketch or describe how they visualize the accounts they have chosen. Invite two or three missionaries to share what they visualize. Ask others to tell the stories and relate them to doctrines in one of the lessons. Read Moroni 10:3 and discuss the value of pondering deeply about spiritual knowledge.
+# What Do I Study and Teach? (Page 43)
 
-
-Mission President
-=================
-
-
-• Invite missionaries to bring their study journals to interviews. Invite them to share one entry with you.
-
-
-• During interviews, ask some of the following questions:
-
-
-– What impressions have you had recently in your scripture study?
-
-
-– What is one gospel principle that your companion has recently taught you?
-
-
-– What chapter or section of this manual has helped you most in the past two weeks?
-
-
-– What are you doing in your personal study that helps you learn the most?
-
-
-• During zone conferences, invite missionaries to share meaningful experiences they have had in their personal and companion study.
-
-
-• During zone conferences, allow missionaries to share personal study ideas.
-
-
-• Share with missionaries insights you have had in your personal study. Share entries from your study journal and your testimony of the importance of gospel study.
-
-
-• As you can, join missionaries in their companion study.
-
-
-• During interviews, invite missionaries to share one of their lesson plans from one of the missionary lessons. Ask them what these doctrines mean to them.
-
-
-Notes
-
-
-2 Effective Study
-=================
-
-
-27
-2 Effective Study
-=================
-
-
-28
-Notes
-
-
-\ |
-![see page 43](#)
-3 Study and Teach
-=================
-
-
-What Do I Study and Teach? T he lessons in this chapter contain the essential doctrines, principles, and commandments
-
-
-that you are to study, believe, love, live, and teach. They are what the living prophets and apostles have directed you to teach. They are organized so that you can help others clearly understand the doctrines of Christ.
+The lessons in this chapter contain the essential doctrines, principles, and commandments that you are to study, believe, love, live, and teach. They are what the living prophets and apostles have directed you to teach. They are organized so that you can help others clearly understand the doctrines of Christ.
 
 
 The lessons in this chapter are:
@@ -14090,22 +13562,12 @@ defined, 51, 59
 
 Revelation, personal, 89–90
 
-
-S
-=
-
-
 Sabbath day, keeping the, holy, 74 Sacrament, 64 Salvation, available to all, 86
 
-
 defined, 59 plan of, 47–54
-
-
 Schedule. See Missionary daily schedule Schultz, Frank and Mildred, story of conversion,
 
-
 164–65
-
 
 Scripture study, a commandment, 73–74 Scriptures, marking, 24
 
@@ -14134,19 +13596,11 @@ promptings of, 96–97 should direct teaching, 176 teaching by, 3–4
 
 Spiritual death, defined, 59 Stake high councilor, duties of, 218 Stake leaders, and missionary work, 213
 
-
 duties of, 217
-
 
 Stake president, duties of, 217 Study journal, explained, x Study, approved resources for, 23 as preparation to teach, 19–22 begin with prayer, 17, 22 effective, 17 guidelines for, 20–21 suggestions for effective, 22–24
 
-
 Success, defined, 10–11
-
-
-T
-=
-
 
 Talking, ideas for, with others, 157
 
@@ -14166,19 +13620,8 @@ how to begin, 176–77 in a Church calling, 88 length of appointments, 178 lengt
 
 Telestial kingdom, 53 Temples, worship in, 86 Ten Commandments, obedience to, 76–77 Terrestrial kingdom, 53 Testimony, bear frequently, 198–99 Time use, effective, 137 Tithes and offerings, donating, 80 Tithing, law of, 79 Tongues, gift of, 133 Tree of life, activity, 2 True to the Faith, 21 Tyndale, William, 45
 
-
-V
-=
-
-
 Virtue, 118–19 Visiting teaching, 215
 =====================================
-
-
-W
-=
-
-
 Ward council, 149–50, 215–17
 
 
@@ -14193,28 +13636,12 @@ duties of, 217
 
 Ward mission leader, duties of, 218–19 Ward mission plan, 220 Ward missionaries, duties of, 219
 how to use Preach My Gospel, xi
-
-
 Weekly planning session, how to hold, 147–50 Wirthlin, Joseph B., on using the Book of
-
-
 Mormon, 110 Word of Wisdom, 78 Wycliffe, John, 45
-=================================================
-
-
-Y
-=
-
-
 Young Men, organization, 84 Young Women, organization, 84 Young, Brigham, on receiving testimony, 199
-Z
-=
-
 
 Zone conference, and study, viii
 
-
-228
 Remember This. . .
 ==================
 
@@ -14232,25 +13659,9 @@ Remember This. . .
 
 
 * Read the Book of Mormon with those you teach. • Teach people that an important way to know that Joseph Smith is a prophet of God is to read and pray about the Book of Mormon.
-
-
 * Contact every investigator daily. • Bear testimony frequently. • Have a member at every lesson possible. • Always set specific dates and times for the next lesson. • Invite all investigators to baptismal services. • After each lesson, provide investigators with something to read and
-
-
 ponder in preparation for the next meeting.
-
-
 • Build relationships with members by serving them and working with the leadership of the ward.
-
-
 • Help ward leaders with retention and activation activities.
-
-
 • Help everyone you teach make commitments that will bring about
-
-
 repentance and will strengthen their faith in the Savior. • Love the Lord and serve Him the very best you can.
-
-02366 17000
-36617
-5
