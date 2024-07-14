@@ -764,1184 +764,407 @@ Invite a few missionaries (or each group) to share their answers. Discuss their 
 
 # What Do I Study and Teach? (Page 43)
 
-The lessons in this chapter contain the essential doctrines, principles, and commandments that you are to study, believe, love, live, and teach. They are what the living prophets and apostles have directed you to teach. They are organized so that you can help others clearly understand the doctrines of Christ.
+The lessons in this chapter contain the essential doctrines, principles, and commandments that you are to study, believe, love, live, and teach. They are what the living prophets and apostles have directed you to teach. They are organized so that you can help others clearly understand the doctrines of Christ. The lessons in this chapter are:
+- The Message of the Restoration of the Gospel of Jesus Christ
+- The Plan of Salvation
+- The Gospel of Jesus Christ
+- The Commandments
+- Laws and Ordinances
 
-
-The lessons in this chapter are:
-
-
-• The Message of the Restoration of the Gospel of Jesus Christ
-
-
-* The Plan of Salvation
-
-
-• The Gospel of Jesus Christ
-
-
-• The Commandments
-
-
-• Laws and Ordinances
-
-
-Teach the first four lessons before baptism. Make sure those you teach qualify for
-
-
-baptism and confirmation by making and keeping all of the commitments in these lessons. Full-time missionaries take the lead in teaching lessons before baptism with the help of
-
-
-ward missionaries and other members. After baptism, new members are taught the first four lessons again, as well as “Laws and Ordinances.” Ward leaders determine whether ward missionaries or full-time missionaries lead out in ensuring that these lessons are taught and how long full-time missionaries are involved. Encourage each new member to keep all the commitments in these lessons.
-
+Teach the first four lessons before baptism. Make sure those you teach qualify for baptism and confirmation by making and keeping all of the commitments in these lessons. Full-time missionaries take the lead in teaching lessons before baptism with the help of ward missionaries and other members. After baptism, new members are taught the first four lessons again, as well as “Laws and Ordinances.” Ward leaders determine whether ward missionaries or full-time missionaries lead out in ensuring that these lessons are taught and how long full-time missionaries are involved. Encourage each new member to keep all the commitments in these lessons.
 
 You should also use these lessons in individual and companion study, district meetings, and other training settings. As you study the scriptures and treasure up in your mind the doctrines in these lessons, the Spirit will give you in the very hour what you should say and do to help others receive a witness of the truthfulness of the teachings.
 
-
-As a missionary, you have a great responsibility to teach from the heart and by the Spirit. The First Presidency and the Quorum of the Twelve Apostles stated: “Our purpose is to teach the message of the restored gospel in such a way as to allow the Spirit to direct
-
-
-copy.
-=====
-
-
-t o n o D . m u e s u m g r o b s k i r e d e r F e h t f o n o s s m r e p i i y b d e s U . k r a m n e D , e l t s a C g r o b s k i r e d e r F f o l e p a h C e h t t a l a n g i r i O . h c o B l l r a C y b , t n u o M e h t n o
-
-
-n o m r e S
-
-
-e h T
-=====
-
-
-Notes
-=====
-
-
-29
-3 Study and Teach
-=================
-
-
-Notes
-
-
-both the missionaries and those being taught. It is essential to learn the concepts of the [lessons], but these should not be taught by rote presentation. The missionary should feel free to use his own words as prompted by the Spirit. He should not give a memorized recitation, but speak from the heart in his own terms. He may depart from the order of the lessons, giving that which he is inspired to do, according to the interest and needs of the investigator. Speaking out of his own conviction and in his own words he should bear testimony of the truth of his teachings” (“Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002). As you and your companion study these lessons and prepare to teach, keep firmly in mind these instructions. Make sure that you teach all the doctrines in these lessons.
-
+As a missionary, you have a great responsibility to teach from the heart and by the Spirit. The First Presidency and the Quorum of the Twelve Apostles stated: “Our purpose is to teach the message of the restored gospel in such a way as to allow the Spirit to direct both the missionaries and those being taught. It is essential to learn the concepts of the [lessons], but these should not be taught by rote presentation. The missionary should feel free to use his own words as prompted by the Spirit. He should not give a memorized recitation, but speak from the heart in his own terms. He may depart from the order of the lessons, giving that which he is inspired to do, according to the interest and needs of the investigator. Speaking out of his own conviction and in his own words he should bear testimony of the truth of his teachings” (“Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002). As you and your companion study these lessons and prepare to teach, keep firmly in mind these instructions. Make sure that you teach all the doctrines in these lessons.
 
 Unless directed by the Spirit, for each of the first three lessons, you should give the full content in the order in which they are written. A few of the commandments may also be included as appropriate or be taught as lessons of their own.
-
 
 Each lesson outlines the baptismal interview questions, commitments, and doctrines that you are to teach. Thoroughly learn the doctrines. Consistently focus on helping those you teach make and keep the commitments. Use the baptismal interview questions to prepare those you teach for baptism and confirmation. The lessons also have ideas for teaching. Use these suggestions to strengthen how you prepare and teach.
 
 
-The Role of Memorization
-========================
-
+### The Role of Memorization (Page 44)
 
 Memorize scriptures to use in your teaching. Commit to memory the sequence of the doctrinal points in each of the missionary lessons. Missionaries learning a second language should focus their language study on preparing to teach the missionary lessons. They should memorize vocabu- lary, phrases, sentence patterns, and brief statements of doctrine as they appear in the lesson, but only after these have become personally meaningful. Do not memorize entire lessons.
 
-
-| toach with Clrty |
-====================
-
+### Teach with Clarity (Page 44)
 
 At the end of the first three lessons is a list of words that may be unfamiliar to those you teach. Learn how to define these words simply. As you teach, do all you can to make the message easy to understand.
 
-
-Scripture Study
-===============
-
+### Scripture Study (Page 44)
 
 What are you directed to teach?
-
-
-Mosiah 18:18–20
-
-
-D&C 43:15–16
-
-
-D&C 52:9
-
+Study Mosiah 18:18–20, D&C 43:15–16 and D&C 52:9 to find the answers to this question.
 
 Why must you study the doctrines in the lessons?
+Study Alma 17:2–3 and D&C 84:85 to find answers to this question.
 
 
-Alma 17:2–3
+# 1. The Message of the Restoration of the Gospel of Jesus Christ (Page 45)
 
-
-D&C 84:85
-
-
-30
-The Message of the Restoration of the Gospel of Jesus Christ
-============================================================
-
-
-![see page 45](#)
-. y p o c t o n o D . n e s O l . K g e r G 1 9 9 1 ©
-
-
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-Notes
-
-
-Your Purpose
-============
-
+## Your Purpose (Page 45)
 
 As you teach, prepare your investigators to meet the qualifications for baptism taught in Doctrine and Covenants 20:37 and in the baptismal interview questions. This is best accomplished by inviting your investigators to make and keep the commitments listed below.
 
+### Baptismal Interview Questions (Page 45)
+- Do you believe that God is our Eternal Father?
+- Do you believe that Jesus Christ is the Son of God, the Savior and Redeemer of the world?
+- Do you believe that the Church and the gospel of Jesus Christ have been restored through the Prophet Joseph Smith?
+- Do you believe that [current Church President] is a prophet of God? What does this mean to you?
 
-Baptismal Interview Questions
-=============================
-
-
-* Do you believe that God is our Eternal Father?
-
-
-* Do you believe that Jesus Christ is the Son of God, the Savior and Redeemer of the world?
-
-
-* Do you believe that the Church and the gospel of Jesus Christ have been restored through
-
-
-the Prophet Joseph Smith?
-=========================
+### Commitments (Page 45)
+- Will you read and pray to know that the Book of Mormon is the word of God?
+- Will you pray to know that Joseph Smith was a prophet?
+- Will you attend church with us this Sunday?
+- May we set a time for our next visit?
+- Other commandments from lesson 4 that you choose to include.
 
 
-* Do you believe that [current Church President] is a prophet of God? What does this mean
-
-
-to you?
-=======
-
-
-Commitments
-===========
-
-
-* Will you read and pray to know that the Book of Mormon is the word of God?
-
-
-* Will you pray to know that Joseph Smith was a prophet?
-
-
-* Will you attend church with us this Sunday?
-
-
-* May we set a time for our next visit?
-
-
-* Other commandments from lesson 4 that you choose to include.
-
-
-God Is Our Loving Heavenly Father
-=================================
-
+## God Is Our Loving Heavenly Father (Page 45)
 
 God is our Heavenly Father. We are His children. He has a body of flesh and bone that is glorified and perfected. He loves us. He weeps with us when we suffer and rejoices when we do what is right. He wants to communicate with us, and we can communicate with Him through sincere prayer.
 
-
 He has given us this experience on the earth so we can learn and grow. We can show our love for Him through our choices and our obedience to His commandments.
 
+Heavenly Father has provided us, His children, with a way to be successful in this life and to return to live in His presence. However, we must be pure and clean through obedience in order to do so. Disobedience moves us away from Him. Central to our Father’s plan is Jesus Christ’s Atonement. The Atonement included His suffering in the Garden of Gethsemane as well as His suffering and death on the cross. Through the Atonement we can be freed from the burden of our sins and develop faith and strength to face our trials.
 
-Heavenly Father has provided us, His children, with a way to be successful in this life and to return to live in His presence. However, we must be pure and clean through obedience in order to do so. Disobedience moves us away from Him. Central to our
-
-
-31
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-Notes
-
-
-Father’s plan is Jesus Christ’s Atonement. The Atonement included His suffering in the Garden of Gethsemane as well as His suffering and death on the cross. Through the Atonement we can be freed from the burden of our sins and develop faith and strength to face our trials.
-
-
-Belief about God
-================
-
+### Belief about God (Page 46)
 
 Determine what each person you are teaching understands regarding Christian beliefs about God. Many people in today’s world either have no concept of God or a very different perception of Deity.
-
-
 Two Book of Mormon missionaries, Ammon and Aaron, taught people who did not have a Christian background. They taught simple truths and invited their investigators to pray. Lamoni and his father were converted. Read Alma 18:24–40 and 22:4–23, and answer the questions below:
+- What did these missionaries teach about the nature of God?
+- How can you follow their examples?
 
-
-• What did these missionaries teach about the nature of God?
-
-
-• How can you follow their examples?
-
-
-Scripture Study
-
-
-What is the nature of God the Father and Jesus Christ?
-======================================================
-
-
-
-
-| 1 Nephl 17:36 | 3 Nephl 27:13-22 | John 3:16-17 |
+#### Scripture Study (Page 46)
+**What is the nature of God the Father and Jesus Christ?**
+Study the following scriptures to find answers to the question.
+|  | | |
 | --- | --- | --- |
+| 1 Nephl 17:36 | 3 Nephl 27:13-22 | John 3:16-17 |
 | 2 Nephi 9:6 | D&C 38:1-3 | Acts 17:27-29 |
 | Mosiah 4:9 | D&C 130:22 | Romans 8:16 |
 | 3 Nephi 12:48 | Moses 1:39 | Hebrews 12:9 |
 | 3 Nephi 14:9-11 | Matthew 5:48 | 1 John 4:7-9 |
 
 
-The Gospel Blesses Families
-===========================
-
+## The Gospel Blesses Families (Page 46)
 
 The restored gospel blesses and helps husbands and wives, parents and children as they strive to develop stronger relationships and spiritual strength in their families. These blessings are available now and in eternity. The gospel of Jesus Christ provides help with current concerns and challenges.
 
+Because families are ordained of God, they are the most important social unit in time and in eternity. God has established families to bring happiness to His children, allow them to learn correct principles in a loving atmosphere, and prepare them for eternal life. The home is the best place to teach, learn, and apply principles of the gospel of Jesus Christ. A home established on gospel principles will be a place of refuge and safety. It will be a place where the Spirit of the Lord can abide, blessing family members with peace, joy, and happiness. Through prophets in every age, including our own, God has revealed His plan of happiness for individuals and families.
 
-and in eternity. God has established families to bring happiness to His children, allow them to learn correct principles in a loving atmosphere, and prepare them for eternal life. The home is the best place to teach, learn, and apply principles of the gospel of Jesus Christ. A home established on gospel principles will be a place of refuge and safety. It will be a place where the Spirit of the Lord can abide, blessing family members with peace, joy, and happiness. Through prophets in every age, including our own, God has revealed His plan of happiness for individuals and families.
-
-
-Heavenly Father Reveals His Gospel in Every Dispensation
-========================================================
-
+## Heavenly Father Reveals His Gospel in Every Dispensation (Page 46)
 
 One important way that God shows His love for us is by calling prophets, who are given the priesthood—the power and authority given to man to act in God’s name for the salvation of His children. Prophets learn the gospel of Jesus Christ by revelation. They in turn teach the gospel to others and testify of Jesus Christ as the Savior and Redeemer. The teachings of prophets are found in sacred books called scriptures.
 
-
-Our Father’s plan for us to be successful in this life and to return to live with Him is called the gospel of Jesus Christ, with Jesus’ Atonement at the center of that plan. Through the Atonement of Jesus Christ, we can receive eternal life if we exercise faith in Jesus
-
-
-32
-Christ, repent, are baptized by immersion for the remission of sins, receive the gift of the Holy Ghost, and endure to the end. “This is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God. And now, behold, this is the doctrine of Christ” (2 Nephi 31:21). All people have the gift of agency, which includes the freedom to accept or reject the gospel as taught by the prophets and apostles. Those who choose to obey are blessed, but those who ignore, reject, or distort the gospel do not receive God’s promised blessings.
-
+Our Father’s plan for us to be successful in this life and to return to live with Him is called the gospel of Jesus Christ, with Jesus’ Atonement at the center of that plan. Through the Atonement of Jesus Christ, we can receive eternal life if we exercise faith in Jesus Christ, repent, are baptized by immersion for the remission of sins, receive the gift of the Holy Ghost, and endure to the end. “This is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God. And now, behold, this is the doctrine of Christ” (2 Nephi 31:21). All people have the gift of agency, which includes the freedom to accept or reject the gospel as taught by the prophets and apostles. Those who choose to obey are blessed, but those who ignore, reject, or distort the gospel do not receive God’s promised blessings.
 
 Whenever people choose to disregard, disobey, or distort any gospel principle or ordinance, whenever they reject the Lord’s prophets, or whenever they fail to endure in faith, they distance themselves from God and begin to live in spiritual darkness. Eventually this leads to a condition called apostasy. When widespread apostasy occurs, God withdraws His priesthood authority to teach and administer the ordinances of the gospel.
 
+Biblical history has recorded many instances of God speaking to prophets, and it also tells of many instances of apostasy. To end each period of general apostasy, God has shown His love for His children by calling another prophet and giving him priesthood authority to restore and teach the gospel of Jesus Christ anew. In essence, the prophet acts as a steward to oversee the household of God here on earth. Such periods of time headed by prophetic responsibility are called dispensations.
 
-instances of God speaking to prophets, and it also tells of many instances of apostasy. To end each period of general apostasy, God has shown His love for His children by calling another prophet and giving him priesthood authority to restore and teach the gospel of Jesus Christ anew. In essence, the prophet acts as a steward to oversee the household of God here on earth. Such periods of time headed by prophetic responsibility are called dispensations.
+God revealed the gospel of Jesus Christ to Adam and gave him priesthood authority. Adam was the first prophet on the earth. By revelation, Adam learned of mankind’s proper relationship with God the Father, His Son Jesus Christ, and the Holy Ghost; of the Atonement and Resurrection of Jesus Christ; and of the first principles and ordinances of the gospel. Adam and Eve taught their children these truths and encouraged them to develop faith and to live the gospel in all aspects of their lives. Adam was followed by other prophets, but over time the posterity of Adam rejected the gospel and fell into apostasy, choosing to be unrighteous.
 
+Thus began the pattern of prophetic dispensations that makes up much of the recorded history of the Old Testament. Heavenly Father revealed His gospel through direct communication to prophets such as Noah, Abraham, and Moses. Each prophet was called by God to begin a new dispensation of the gospel. To each of these prophets God granted priesthood authority and revealed eternal truths. Unfortunately, in each dispensation people eventually used their agency to choose to reject the gospel and then fell into apostasy.
 
-![see page 47](#)
-Adam was the first prophet on the earth. By revelation, Adam learned of mankind’s proper relationship with God the Father, His Son Jesus Christ, and the Holy Ghost; of the Atonement and Resurrection of Jesus Christ; and of the first principles and ordinances of the gospel. Adam and Eve taught their children these truths and encouraged them to develop faith and to live the gospel in all aspects of their lives. Adam was followed by other prophets, but over time the posterity of Adam rejected the gospel and fell into apostasy, choosing to be unrighteous.
-
-
-history of the Old Testament. Heavenly Father revealed His gospel through direct communication to prophets such as Noah, Abraham, and Moses. Each prophet was called by God to begin a new dispensation of the gospel. To each of these prophets God granted priesthood authority and revealed eternal truths. Unfortunately, in each dispensation people eventually used their agency to choose to reject the gospel and then fell into apostasy.
-
-
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-=========================
-
-
-Notes
-=====
-
-
-33
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-Notes
-
-
-Prophets
-========
-
-
+### Prophets (Page 48)
 Determine what the person you are teaching understands about prophets. In most cultures there are people who believe that holy or inspired people receive some form of guidance and direction from Deity. However, not all inspired individuals are prophets of God as defined in the restored gospel. Explain clearly that God establishes His kingdom on the earth by calling a prophet to establish a new dispensation. He gives that prophet priesthood authority. The prophet then helps people understand their relationship to Deity, including how to receive eternal life through the gospel of Jesus Christ.
-
-
 You might wonder how gospel dispensations are relevant when teaching people who do not have a Christian background or culture. But you will find that by briefly relating the history of gospel dispensations, you can help people understand that God loves His children and that He is the same yesterday, today, and forever.
 
+#### Scripture Study (Page 48)
+Study about Prophets using the following scriptures:
+  - Jacob 4:4, 6, Mosiah 8:13–18, Acts 10:34–43, and Amos 3:7
 
-Scripture Study
-===============
-
-
-Prophets
-
-
-Jacob 4:4, 6 Mosiah 8:13–18
+Study about Dispensations using the following scriptures:
+  - D&C 136:36–38, Moses 5:4–12, 55–59, Moses 8:19–30, Bible Dictionary, “Dispensations”
 
 
-Acts 10:34–43
+## The Savior’s Earthly Ministry and Atonement (Page 48)
 
+A few hundred years before the birth of Jesus Christ, people again fell into apostasy. But when the Savior began His mortal ministry He established His Church again on the earth. Heavenly Father sent His Son to the earth to atone for the sins of all mankind and overcome death: “For God so loved the world, that he gave his only begotten Son . . . that the world through him might be saved” (John 3:16–17). Our Heavenly Father sent His Son, Jesus Christ, to take upon Him, by His suffering, the sins of all who would live on this earth and to overcome physical death. The Savior made an infinite atoning sacrifice so that if we have faith in Him, repent, are baptized, receive the Holy Ghost, and endure to the end, we can receive forgiveness of our sins and enter and follow the path that will lead us to eternal life in God’s presence (see 2 Nephi 31:13–21).
 
-Amos 3:7
-
-
-Dispensations
-
-
-D&C 136:36–38 Moses 5:4–12, 55–59
-
-
-Moses 8:19–30
-
-
-Bible Dictionary, “Dispensations”
-
-
-The Savior’s Earthly Ministry and Atonement
-===========================================
-
-
-A few hundred years before the birth of Jesus Christ, people again fell into apostasy. But when the Savior began His mortal ministry He established His Church again on the earth. Heavenly Father sent His Son to the earth to atone for the sins of all mankind and
-
-
-overcome death: “For God so loved the world, that he gave his only begotten Son . . . that the world through him might be saved” (John 3:16–17). Our Heavenly Father sent His Son, Jesus Christ, to take upon Him, by His suffering, the sins of all who would live on this earth and to overcome physical death. The Savior made an infinite atoning sacrifice so that if we have faith in Him, repent, are baptized, receive the Holy Ghost, and endure to the end, we can receive forgiveness of our sins and enter and follow the path that will lead us to eternal life in God’s presence (see 2 Nephi 31:13–21).
-
-
-![see page 48](#)
-During His earthly ministry, the Savior taught His gospel and performed many miracles. He called twelve men to be His Apostles and laid His hands on their heads to give them priest- hood authority. He organized His Church, fulfilled prophecy, and was rejected and crucified.
-
-
-Most important, He completed the Atonement. The Son of God, the Lord Jesus Christ, completed all that His Heavenly Father sent Him to do.
-
+During His earthly ministry, the Savior taught His gospel and performed many miracles. He called twelve men to be His Apostles and laid His hands on their heads to give them priest- hood authority. He organized His Church, fulfilled prophecy, and was rejected and crucified. Most important, He completed the Atonement. The Son of God, the Lord Jesus Christ, completed all that His Heavenly Father sent Him to do. 
 
 Before the Savior’s death and Resurrection, He gave His Apostles authority to teach His gospel, perform the ordinances of salvation, and establish His Church in the world.
 
+### Scripture Study (Page 49)
+Articles of Faith 1:5, Matthew 10:1–10, Luke 6:13, John 15:16, and Hebrews 5:4.
 
-34
-Scripture Study
-===============
-
-
-Articles of Faith 1:5 Matthew 10:1–10
-=====================================
-
-
-Luke 6:13 John 15:16
-Hebrews 5:4
-===========
-
-
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-=========================
-
-
-Notes
-=====
-
-
-The Great Apostasy
-==================
-
-
+## The Great Apostasy (Page 49)
 After the death of Jesus Christ, wicked people persecuted the Apostles and Church members and killed many of them. With the death of the Apostles, priesthood keys and the presiding priesthood authority were taken from the earth. The Apostles had kept the doctrines of the gospel pure and maintained the order and standard of worthiness for Church members. Without the Apostles, over time the doctrines were corrupted, and unauthorized changes were made in Church organization and priesthood ordinances, such as baptism and conferring the gift of the Holy Ghost.
-
 
 Without revelation and priesthood authority, people relied on human wisdom to interpret the scriptures and the principles and ordinances of the gospel of Jesus Christ. False ideas were taught as truth. Much of the knowledge of the true character and nature of God the Father, His Son Jesus Christ, and the Holy Ghost was lost. The doctrines of faith in Jesus Christ, repentance, baptism, and the gift of the Holy Ghost became distorted or forgotten. The priesthood authority given to Christ’s Apostles was no longer present on the earth. This apostasy eventually led to the emergence of many churches.
 
-
 After centuries of spiritual darkness, truth-seeking men and women protested against current religious practices. They recognized that many of the doctrines and ordinances of the gospel had been changed or lost. They sought for greater spiritual light, and many spoke of the need for a restoration of truth. They did not claim, however, that God had called them to be a prophet. Instead, they tried to reform teachings and practices that they believed had been changed or corrupted. Their efforts led to the organization of many Protestant churches. This Reformation resulted in an increased emphasis on religious freedom, which opened the way for the final Restoration.
-
 
 The Savior’s Apostles foretold this universal apostasy. They also foretold that the gospel of Jesus Christ and His Church would be restored once more upon the earth.
 
+#### Scripture Study (Page 49)
+Study these scriptures to learn more anout the great apostacy:
+- 1 Nephi 13, 2 Nephi 26:20–21, 2 Nephi 28, 4 Nephi 1:27, D&C 86:1–3, Matthew 24:9–11, Mark 12:1–9, Acts 3:19–21
+- Acts 20:28–30, Galatians 1:6–9, 2 Thessalonians 2:1–12 (JST verses 2, 3, 7–9), 1 Timothy 4:1–3, 2 Timothy 4:3–4, 2 Peter 2:1–2, Amos 8:11–12
+- Topical Guide: “Apostasy of the Early Christian Church”, True to the Faith, “Apostasy,” pages 13–14 Our Search for Happiness, pages 23–32 Jesus the Christ, chapter 40, “The Long Night of Apostasy”
 
-Scripture Study
-===============
-
-
-1 Nephi 13 2 Nephi 26:20–21 2 Nephi 28 4 Nephi 1:27 D&C 86:1–3 Matthew 24:9–11 Mark 12:1–9 Acts 3:19–21
-Acts 20:28–30 Galatians 1:6–9 2 Thessalonians 2:1–12 (JST verses 2, 3, 7–9)
-===========================================================================
-
-
-1 Timothy 4:1–3 2 Timothy 4:3–4 2 Peter 2:1–2 Amos 8:11–12
-Topical Guide: “Apostasy of
-
-
-the Early Christian Church”
-
-
-True to the Faith, “Apostasy,” pages 13–14 Our Search for Happiness, pages 23–32 Jesus the Christ, chapter 40,
-“The Long Night of Apostasy”
-
-
-35
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-Notes
-
-
-The Great Apostasy
-==================
-
+#### The Great Apostasy (Page 50)
 
 Investigators must understand that a universal apostasy occurred following the death of Jesus Christ and His Apostles. If there had been no apostasy, there would have been no need of a Restoration. As a diamond displayed on black velvet appears more brilliant, so the Restoration stands in striking contrast to the dark background of the Great Apostasy. As guided by the Spirit, teach investigators about the Great Apostasy at a level of detail appropriate to their needs and circumstances. Your purpose is to help them understand the need for the Restoration of the gospel of Jesus Christ.
 
-
-Key Points
-==========
-
-
-* The Church of Jesus Christ is built on the foundation of apostles and prophets (see Ephesians 2:19–20; 4:11–14). These leaders have divine priesthood authority. Through revelation they direct the affairs of the Church. They maintain doctrinal purity, authorize the administration of ordinances, and call and confer upon others the priesthood authority.
-
-
-* People rejected and killed Jesus Christ and the Apostles (see Matthew 24:9; 1 Nephi 11:32–34; 2 Nephi 27:5). With the death of the Apostles, the presiding priesthood authority was absent from the Church. Consequently, there was no longer authority to confer the Holy Ghost or perform other saving ordinances. Revelation ceased, and doctrine became corrupted.
+**Key Points**
+- The Church of Jesus Christ is built on the foundation of apostles and prophets (see Ephesians 2:19–20; 4:11–14). These leaders have divine priesthood authority. Through revelation they direct the affairs of the Church. They maintain doctrinal purity, authorize the administration of ordinances, and call and confer upon others the priesthood authority.
+- People rejected and killed Jesus Christ and the Apostles (see Matthew 24:9; 1 Nephi 11:32–34; 2 Nephi 27:5). With the death of the Apostles, the presiding priesthood authority was absent from the Church. Consequently, there was no longer authority to confer the Holy Ghost or perform other saving ordinances. Revelation ceased, and doctrine became corrupted.
+- Even before the death of the Apostles, many conflicts concerning doctrine arose. The Roman Empire, which at first had persecuted the Christians, later adopted Christianity. Important religious questions were settled by councils. The simple doctrines and ordinances taught by the Savior were debated and changed to conform to worldly philosophies (see Isaiah 24:5). They physically changed the scriptures, removing plain and precious doctrines from them (1 Nephi 13:26–40). They created creeds, or statements of belief, based on false and changed doctrine (see Joseph Smith—History 1:19). Because of pride, some aspired to positions of influence (see 3 John 1:9–10). People accepted these false ideas and gave honor to false teachers who taught pleasing doctrines rather than divine truth (see 2 Timothy 4:3–4).
+- Throughout history, many people have sincerely believed false creeds and doctrines. They have worshiped according to the light they possessed and have received answers to their prayers. Yet they are “kept from the truth because they know not where to find it” (D&C 123:12).
+- Therefore, a restoration, not a reformation, was required. Priesthood authority did not continue in an unbroken line of succession from the Apostle Peter. To reform is to change what already exists; to restore is to bring back something in its original form. Thus, restoration of priesthood authority through divine messengers was the only possible way to overcome the Great Apostasy.
 
 
-* Even before the death of the Apostles, many conflicts concerning doctrine arose. The Roman Empire, which at first had persecuted the Christians, later adopted Christianity. Important religious questions were settled by councils. The simple doctrines and ordinances taught by the Savior were debated and changed to conform to worldly philosophies (see Isaiah 24:5). They physically changed the scriptures, removing plain and precious doctrines from them (1 Nephi 13:26–40). They created creeds, or statements of belief, based on false and changed doctrine (see Joseph Smith—History 1:19). Because of pride, some aspired to positions of influence (see 3 John 1:9–10). People accepted these false ideas and gave honor to false teachers who taught pleasing doctrines rather than divine truth (see 2 Timothy 4:3–4).
-
-
-* Throughout history, many people have sincerely believed false creeds and doctrines. They have worshiped according to the light they possessed and have received answers to their prayers. Yet they are “kept from the truth because they know not where to find it” (D&C 123:12).
-
-
-* Therefore, a restoration, not a reformation, was required. Priesthood authority did not continue in an unbroken line of succession from the Apostle Peter. To reform is to change what already exists; to restore is to bring back something in its original form. Thus, restoration of priesthood authority through divine messengers was the only possible way to overcome the Great Apostasy.
-
-
-The Restoration of the Gospel of Jesus Christ through Joseph Smith
-==================================================================
-
+## The Restoration of the Gospel of Jesus Christ through Joseph Smith (Page 50)
 
 When the circumstances were right, Heavenly Father once again reached out to His children in love. He called a young man named Joseph Smith as a prophet. Through him the fulness of the gospel of Jesus Christ was restored to the earth.
 
-
 Joseph Smith lived in the United States, which was perhaps the only country to enjoy religious freedom at the time. It was at a time of great religious excitement in the eastern United States. His family members were deeply religious and constantly sought for truth. But many ministers claimed to have the true gospel. Joseph desired “to know which of all the sects was right,” (Joseph Smith—History 1:18). The Bible taught there was “one Lord, one faith, one baptism” (Ephesians 4:5). Joseph attended different churches, but he remained confused about which church he should join. He later wrote:
 
-
-“So great were the confusions and strife among the different denominations, that it was impossible for a person young as I was . . . to come to any certain conclusion who was right and who was wrong. . . . In the midst of this war of words and tumult of opinions,
-
-
-36
-I often said to myself: What is to be done? Who of all these parties are right; or, are they all wrong together? If any one of them be right, which is it, and how shall I know it?” (Joseph Smith—History 1:8, 10).
-
+*“So great were the confusions and strife among the different denominations, that it was impossible for a person young as I was . . . to come to any certain conclusion who was right and who was wrong. . . . In the midst of this war of words and tumult of opinions, I often said to myself: What is to be done? Who of all these parties are right; or, are they all wrong together? If any one of them be right, which is it, and how shall I know it?” (Joseph Smith—History 1:8, 10).*
 
 As Joseph sought truth among the different faiths, he turned to the Bible for guidance. He read, “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him” (James 1:5). Because of this passage, Joseph decided to ask God what he should do. In the spring of 1820 he went to a nearby grove of trees and knelt in prayer. He described his experience:
 
+*“I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me. . . . When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—This is My Beloved Son. Hear Him!” (Joseph Smith—History 1:16–17).*
 
-“I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me. . . . When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—This is My Beloved Son. Hear Him!” (Joseph Smith—History 1:16–17).
+In this vision God the Father and His Son Jesus Christ, appeared to Joseph Smith. The Savior told Joseph not to join any of the churches, for they “were all wrong” and “all their creeds were an abomination.” He stated, “They draw near to me with their lips, but their hearts are far from me, they teach for doctrines the commandments of men, having a form of godliness, but they deny the power thereof” (Joseph Smith—History 1:19). Even though many good people believed in Christ and tried to understand and teach His gospel, they did not have the fulness of truth or the priesthood authority to baptize and perform other saving ordinances. They had inherited a state of apostasy as each generation was influenced by what the previous one passed on, including changes in the doctrines and in ordinances such as baptism. As God had done with Adam, Noah, Abraham, Moses, and other prophets, He called Joseph Smith to be a prophet through whom the fulness of the gospel was restored to the earth.
 
-
-Jesus Christ, appeared to Joseph Smith. The Savior told Joseph not to join any of the churches, for they “were all wrong” and “all their creeds were an abomination.” He stated, “They draw near to me with their lips, but their hearts are far from me, they teach for doctrines the commandments of men, having a form of godliness, but they deny the power thereof” (Joseph Smith—History 1:19). Even though many good people believed in Christ and tried to understand and teach His gospel, they did not have the fulness of truth or the priesthood authority to baptize and perform other saving ordinances. They had inherited a state of apostasy as each generation was influenced by what the previous one passed on, including changes in the doctrines and in ordinances such as baptism. As God had done with Adam, Noah, Abraham, Moses, and other prophets, He called Joseph Smith to be a prophet through whom the fulness of the gospel was restored to the earth.
-
-
-were sent to Joseph Smith and his associate Oliver Cowdery. John the Baptist appeared and conferred upon Joseph Smith and Oliver Cowdery the Aaronic Priesthood, which includes the authority to perform the ordinance of baptism. Peter, James, and John (three of Christ’s original Apostles) appeared and conferred the Melchizedek Priesthood upon Joseph Smith and Oliver Cowdery, restoring the same authority given to Christ’s Apostles anciently. With this priesthood authority, Joseph Smith was directed to organize the Church of Jesus Christ again on the earth. Through him, Jesus Christ called twelve Apostles.
-
+After the appearance of the Father and the Son, other heavenly messengers, or angels were sent to Joseph Smith and his associate Oliver Cowdery. John the Baptist appeared and conferred upon Joseph Smith and Oliver Cowdery the Aaronic Priesthood, which includes the authority to perform the ordinance of baptism. Peter, James, and John (three of Christ’s original Apostles) appeared and conferred the Melchizedek Priesthood upon Joseph Smith and Oliver Cowdery, restoring the same authority given to Christ’s Apostles anciently. With this priesthood authority, Joseph Smith was directed to organize the Church of Jesus Christ again on the earth. Through him, Jesus Christ called twelve Apostles.
 
 The time in which we live is referred to by Bible prophets as the last days, the latter days, or the dispensation of the fulness of times. It is the period of time just before the Second Coming of Jesus Christ. It is the final dispensation. This is why the Church is named The Church of Jesus Christ of Latter-day Saints.
 
-
 A living prophet directs the Church today. This prophet, the President of The Church of Jesus Christ of Latter-day Saints, is the authorized successor to Joseph Smith. He and the present Apostles trace their authority to Jesus Christ in an unbroken chain of ordinations through Joseph Smith.
 
-
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-=========================
-
-
-Notes
-=====
-
-
-37
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-Notes
-
-
-Memorize Joseph Smith—History 1:16–17
-
-
+### Memorize Joseph Smith—History 1:16–17 (Page 52)
 Memorize Joseph Smith’s description of seeing the Father and the Son (Joseph Smith—History 1:16–17), and always be ready to describe the First Vision using his own words. Do not rush through it. Bear sincere testimony that you know it is true. Do not hesitate to explain how you came to know of its truth. Invite your companion to do so as well.
 
-
-Bear Testimony
-==============
-
-
+### Bear Testimony (Page 52)
 An important part of a missionary’s duty is to bear testimony of the current prophet and president of the Church.
 
-
-Scripture Study
-===============
-
-
-2 Nephi 3 D&C 112:30 Ephesians 1:10
+#### Scripture Study (page 52)
+Study 2 Nephi 3, D&C 112:30, Ephesians 1:10, Ephesians 4:5, James 1:5, and Brochure, The Testimony of the Prophet Joseph Smith
 
 
-Ephesians 4:5 James 1:5
-
-
-Brochure, The Testimony of the Prophet Joseph Smith
-
-
-The Book of Mormon: Another Testament of Jesus Christ
-=====================================================
-
-
-Knowing that doubt, disbelief, and
-
-
-misinformation would remain after centuries of darkness, our loving Heavenly Father brought forth an ancient volume of holy scripture comparable to the Bible, which contains the fulness of the everlasting gospel of Jesus Christ. This volume of holy scripture provides convincing evidence that Joseph Smith is a true prophet of God. This record is the Book of Mormon: Another Testament of Jesus Christ. Joseph Smith was directed by a heavenly messenger named Moroni to a hill where gold plates had lain hidden for centuries. These gold plates contained the writings of prophets giving an account of God’s dealings with some of the ancient inhabitants of the Americas. Joseph Smith translated the contents of these plates by the power of God. The prophets in the Book of Mormon knew about the mission of the Savior and taught His gospel. After His Resurrection, Christ appeared to these people. He taught them His gospel and established His Church. The Book of Mormon proves that “God does inspire men and call them to his holy work in this age and generation, as well as in generations of old” (D&C 20:11). In order to know that the Book of Mormon is true, a person must read, ponder, and pray about it. The honest seeker of truth will soon come to feel that the Book of Mormon is the word of God.
-
+## The Book of Mormon: Another Testament of Jesus Christ (Page 52)
+Knowing that doubt, disbelief, and misinformation would remain after centuries of darkness, our loving Heavenly Father brought forth an ancient volume of holy scripture comparable to the Bible, which contains the fulness of the everlasting gospel of Jesus Christ. This volume of holy scripture provides convincing evidence that Joseph Smith is a true prophet of God. This record is the Book of Mormon: Another Testament of Jesus Christ. Joseph Smith was directed by a heavenly messenger named Moroni to a hill where gold plates had lain hidden for centuries. These gold plates contained the writings of prophets giving an account of God’s dealings with some of the ancient inhabitants of the Americas. Joseph Smith translated the contents of these plates by the power of God. The prophets in the Book of Mormon knew about the mission of the Savior and taught His gospel. After His Resurrection, Christ appeared to these people. He taught them His gospel and established His Church. The Book of Mormon proves that “God does inspire men and call them to his holy work in this age and generation, as well as in generations of old” (D&C 20:11). In order to know that the Book of Mormon is true, a person must read, ponder, and pray about it. The honest seeker of truth will soon come to feel that the Book of Mormon is the word of God.
 
 Reading, pondering, and praying about the Book of Mormon are critical for an enduring conversion. Those who begin reading the Book of Mormon for the first time take important steps toward coming to know that Joseph Smith is a prophet of God and that the true Church has been restored to the earth.
 
-
-38
+### Use the Book of Mormon to confirm the Truth of the Restoration (page 53)
 Following is an example of what you might say when introducing the Book of Mormon:
-
-
 “God loves His children, so He provided a convincing way to confirm the truth of what we have said. It is the Book of Mormon. Would you please read the last two paragraphs in the introduction to the book?”
-
 
 Carefully explain the meaning of each concept in both paragraphs and invite the investigator to commit to reading portions of the Book of Mormon and apply the principles described in these two paragraphs.
 
-
 When introducing a person to the Book of Mormon, it is helpful to show him or her a copy, briefly review the contents, and share one or two passages that are personally meaningful to you or that might be meaningful to him or her.
 
+#### Scripture study (page 53)
+Study the Title page of the Book of Mormon, Introduction to the Book of Mormon - paragraphs 1-7, D&C 1:17-23, D&C 20:5-12, and Joseph Smith—History 1:27-64
 
-![see page 53](#)
-Title page of the Book of Mormon Introduction to the Book of Mormon, paragraphs 1-7
-
-
-D&C 1:17-23 D&C 20:5-12
-
-
-Joseph Smith—History 1:27-64
-
-
-Pray to Know the Truth through the Holy Ghost
-=============================================
-
-
+## Pray to Know the Truth through the Holy Ghost (Page 53)
 This message of the Restoration is either true or it is not. We can know that it is true by the Holy Ghost, as promised in Moroni 10:3-5. After reading and pondering the message of the Book of Mormon, any who desire to know the truth must ask in prayer to our Heavenly Father in the name of Jesus Christ if it is true. In order to do this, we address our Heavenly Father. We thank Him for our blessings and ask to know that the message of the Book of Mormon is true. No one can know of spiritual truths without prayer.
 
-
-Prayer
-
-
-* 
-
-
-Address our Heavenly Father (“Our Father in Heaven, . ..”).
-
-
-.
-Express the feelings of your heart (gratitude, questions, requests to confirm that the Book of Mormon is true, and so on).
-
-
-Close (“In the name of Jesus Christ, amen”).
-
-
-.
-Jesus Christ, amen”). In answer to our prayers, the Holy Ghost will teach us truth through our feelings and thoughts. Feelings that come from the Holy Ghost are powerful, but they are also usually gentle and quiet. As we begin to feel that what we are learning is true, we will desire to know all that we can about the Restoration.
-
+In answer to our prayers, the Holy Ghost will teach us truth through our feelings and thoughts. Feelings that come from the Holy Ghost are powerful, but they are also usually gentle and quiet. As we begin to feel that what we are learning is true, we will desire to know all that we can about the Restoration.
 
 Knowing that the Book of Mormon is true leads to a knowledge that Joseph Smith was called as a prophet and that the gospel of Jesus Christ was restored through him.
 
-
-![see page 53](#)
+### Prayer (Page 53)
 Although prayer has a role in many religions and cultures, rarely is prayer considered to be a two-way communication between God and man. Help those you teach understand that they can speak the feelings of their hearts in prayer. Demonstrate this in the way you pray when beginning or ending a lesson. Use simple language that they can also use when they pray. Help them understand that our Heavenly Father will answer their prayers, typically through the feelings of their hearts and thoughts in their minds. If they are sincere and really want to know whether God is there, He will answer them. Invite the head of the household to offer a kneeling prayer at the end of the lesson.
 
+### Guide to prayer (Page 53)
+- Address our Heavenly Father (“Our Father in Heaven, . ..”).
+- Express the feelings of your heart (gratitude, questions, requests to confirm that the Book of Mormon is true, and so on).
+- Close (“In the name of Jesus Christ, amen”).
 
-J
-=
-
-
-3 Study and Teach
-
-
-Notes
-
-
-39
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-Notes
-
-
-Scripture Study
-===============
-
-
-Alma 5:45–46 D&C 8:2–3
-
-
-John 14:26
-
-
-Introduction to the Book of Mormon, paragraphs 8–9
-
-
-Invitation to Be Baptized
-=========================
-
-
-During this or any other lesson, do not hesitate to invite people to be baptized and confirmed.
-
-
-To prepare people for an invitation to be baptized and confirmed, teach the doctrine of baptism and testify often of the importance of all people being baptized by authority, of receiving a remission of sins, and of the wonderful gift of the Holy Ghost. You might say, “As the Lord answers your prayers and you feel that this message is true, will you follow the example of Jesus Christ by being baptized?”
-
+### Invitation to Be Baptized (Page 54)
+During this or any other lesson, do not hesitate to invite people to be baptized and confirmed. To prepare people for an invitation to be baptized and confirmed, teach the doctrine of baptism and testify often of the importance of all people being baptized by authority, of receiving a remission of sins, and of the wonderful gift of the Holy Ghost. You might say, **“As the Lord answers your prayers and you feel that this message is true, will you follow the example of Jesus Christ by being baptized?”**
 
 The invitation to be baptized and confirmed should be specific and direct: “Will you follow the example of Jesus Christ by being baptized by someone holding the priesthood authority of God? We will be holding a baptismal service on (date). Will you prepare yourself to be baptized on that date?”
 
+#### Scripture Study (Page 54)
+- Alma 5:45–46, D&C 8:2–3, John 14:26, and Introduction to the Book of Mormon, paragraphs 8–9
 
-40
-Ideas for Teaching
-==================
-
-
+## Ideas for Teaching (Page 55)
 This section has ideas for you to use in preparing for and teaching this lesson. Prayerfully follow the Spirit as you decide how to use these ideas. Add the ideas you select to your lesson plan. Keep in mind that these ideas are suggestions—not requirements—to help you meet the needs of those you teach.
 
-
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-Notes
-
-
-Short Lesson Plan (3–5 minutes)
-===============================
-
-
+### Short Lesson Plan (3–5 minutes) (Page 55)
 After centuries of being lost, the gospel of Jesus Christ has been restored to the earth by our loving Heavenly Father through a living prophet. The Book of Mormon is evidence of this. You can hold it in your hands. You can read it, ponder how the message in the book can improve your life, and pray to know that the message is the word of God.
+- God Is Our Loving Heavenly Father
+- The Gospel Blesses Families
+- Heavenly Father Reveals His Gospel in Every Dispensation
+- The Savior’s Earthly Ministry and Atonement
+- The Great Apostasy
+- The Restoration of the Gospel of Jesus Christ through Joseph Smith
+- The Book of Mormon: Another Testament of Jesus Christ
+-Pray to Know the Truth through the Holy Ghost
+
+**Commitments:**
+- Will you read and pray to know that the Book of Mormon is the word of God?
+- Will you pray to know that Joseph Smith was a prophet?
+- Will you attend church with us this Sunday?
+- May we set a time for our next visit?
+- Commandments from lesson 4 that you choose to include.
 
 
-• God Is Our Loving Heavenly Father
-
-
-• The Gospel Blesses Families
-
-
-• Heavenly Father Reveals His Gospel in Every Dispensation
-
-
-• The Savior’s Earthly Ministry and Atonement
-
-
-• The Great Apostasy
-
-
-• The Restoration of the Gospel of Jesus Christ through Joseph Smith
-
-
-• The Book of Mormon: Another Testament of Jesus Christ
-
-
-• Pray to Know the Truth through the Holy Ghost
-
-
-Commitments:
-============
-
-
-• Will you read and pray to know that the Book of Mormon is the word of God?
-
-
-• Will you pray to know that Joseph Smith was a prophet?
-
-
-• Will you attend church with us this Sunday?
-
-
-• May we set a time for our next visit?
-
-
-• Commandments from lesson 4 that you choose to include.
-
-
-Medium Lesson Plan (10–15 minutes)
-==================================
-
-
+### Medium Lesson Plan (10–15 minutes) (Page 55)
 Our message is remarkable and simple. God is our Father. We are His children. We are part of His family. He loves us. From the beginning of the world, He has followed a pattern of love and concern. Many times He has reached out in love to reveal the gospel of Jesus Christ so that His children can know how to return to Him. He revealed it to prophets such as Adam, Noah, Abraham, and Moses. But people have repeatedly chosen to reject that gospel. Two thousand years ago, Jesus Christ Himself taught His gospel, established His Church, and accomplished the Atonement. Incredibly, people even rejected Jesus. Whenever people disregard or distort true doctrines and ordinances, God withdraws His authority to administer the Church.
-
 
 Our invitation to you and all people is to add to the truths you already treasure. Consider our evidence that our Heavenly Father and His Son, Jesus Christ, have again reached out to God’s children in love and revealed the fulness of the gospel to a prophet. This prophet’s name is Joseph Smith. The evidence of this glorious truth is found in a book—the Book of Mormon—which you can read, ponder, and pray about. If you pray with a sincere heart, with real intent and faith in Christ, God will tell you by the power of the Holy Ghost that it is true.
 
+**Commitments:**
+- Will you read and pray to know that the Book of Mormon is the word of God?
+- Will you pray to know that Joseph Smith was a prophet?
+- Will you attend church with us this Sunday?
+- May we set a time for our next visit?
+- Commandments from lesson 4 that you choose to include.
+
+
+### Full Lesson Plan (30–45 minutes) (Page 56)
+- God Is Our Loving Heavenly Father
+  - We are God’s children (see Acts 17:29).
+  – God loves us and will help us make right choices.
+  – Through Jesus Christ, we can live with God again (see John 3:16–17).
+
+- The Gospel Blesses Families
+  – The gospel of Jesus Christ helps families develop stronger relationships.
+  - Families are ordained of God; they are the most important social unit in time and eternity (see D&C 49:15–16).
+  – The family is the best place to teach, learn, and apply gospel principles (see D&C 68:25; Genesis 18:19; Deuteronomy 6:7).
+  – The family can be a place of safety, peace, and joy.
+
+- Heavenly Father Reveals His Gospel in Every Dispensation
+  – God calls prophets to teach His gospel (see Amos 3:7).
+  – Apostasy means to reject prophets and the gospel.
+  – Dispensations are periods of time when prophets have taught the gospel. Previous dispensations have ended in apostasy (see D&C 136:36–38).
+  – Adam, Noah, Abraham, Moses, and other ancient prophets all taught the gospel (see Moses 5:4–12).
+
+- The Savior’s Earthly Ministry and Atonement
+  – The Son of God restored and taught the gospel. He performed many miracles (see Bible Dictionary, “Miracles,” 732–33).
+  – He called Apostles and gave them priesthood authority to preach the gospel and perform saving ordinances such as baptism (see John 15:16).
+  – Christ established His Church.
+  – Christ was crucified, and His Apostles were rejected and killed (see Matthew 27:35; Mark 15:25).
+  – Christ accomplished the Atonement (see Bible Dictionary, “Atonement,” 617).
+
+- The Great Apostasy
+  – Without revelation through a prophet, people fall into spiritual darkness (see Amos 8:11–12).
+  – Prophets and Apostles foretold the Great Apostasy (see 2 Thessalonians 2:1–3).
+
+- The Restoration of the Gospel of Jesus Christ through Joseph Smith
+  – Joseph sought for truth (see Joseph Smith—History 1:8, 10).
+  – God and Jesus Christ appeared to Joseph Smith (see Joseph Smith—History 1:16–17).
+  – Like prophets in earlier dispensations, Joseph Smith was called as the prophet of this last dispensation.
+  – God restored the fulness of the gospel through Joseph Smith (see D&C 35:17; 135:3).
+  – Other heavenly messengers restored the priesthood, and Christ’s Church was organized (see D&C 13; 27:12).
+  – A living prophet directs the Church today.
+
+- The Book of Mormon: Another Testament of Jesus Christ
+  – The Book of Mormon is convincing evidence that Joseph Smith was a prophet.
+  – Joseph translated the plates by the power of God (see Introduction to the Book of Mormon, paragraph 5).
+  – The Book of Mormon proves that God inspires prophets in our day as He has in every dispensation (see D&C 20:5–12).
+  – The Book of Mormon contains the fulness of the gospel of Jesus Christ (see D&C 20:8–9).
+
+- Pray to Know the Truth through the Holy Ghost
+  – You can know that the Book of Mormon is true (see Moroni 10:3–5; Introduction to the Book of Mormon, paragraphs 1, 8–9).
+  – The Holy Ghost will teach you through your thoughts and feelings (see D&C 8:2–3).
+
+**Commitments:**
+- Will you read and pray to know that the Book of Mormon is the word of God?
+- Will you pray to know that Joseph Smith was a prophet?
+- Will you attend church with us this Sunday?
+- May we set a time for our next visit?
+- Commandments from lesson 4 that you choose to include.
+
+#### Questions to Ask after You Teach (Page 58)
+- What questions do you have about what we have taught?
+- If there were a prophet on the earth today, what would you ask him?
+- Do you believe that God hears your prayers? Why?
+- Would you like to find out that the Book of Mormon is true? Why?
+
+### Key Definitions (page 58)
+- **Agency:** The ability and privilege God gives people to choose and to act for themselves.
+
+- **Apostasy:** A turning away from the truth by individuals, the Church, or entire nations. It includes rebellion against authority and rejection of prophets. Evidence of apostasy includes transgressing God’s laws, changing gospel ordinances, and breaking covenants (see Isaiah 24:5).
+
+- **Dispensation:** A period of time in which the Lord has at least one authorized servant on the earth who bears the keys of the holy priesthood. In addition to Jesus Christ, prophets such as Adam, Enoch, Noah, Abraham, Moses, and Joseph Smith have each started a new gospel dispensation. When the Lord organizes a dispensation, the gospel is revealed anew so that the people of that dispensation do not have to depend on past dispensations for knowledge of the plan of salvation. The dispensation begun by Joseph Smith is known as the “dispensation of the fulness of times.”
+
+- **Priesthood:** The authority and power that God gives to man to act in the name of Jesus Christ in all things for the salvation of mankind.
+
+- **Prophet:** A man who has been called by and speaks for God. As a messenger of God, a prophet receives priesthood authority, commandments, prophecies, and revelations from God. His responsibility is to make known God’s will and true character to mankind and to show the meaning of His dealings with them. A prophet denounces sin and foretells its consequences. He is a preacher of righteousness. On occasion, a prophet may be inspired to foretell the future for the benefit of mankind. His primary responsibility, however, is to bear witness of Christ.
+
+- **Redeemer:** Jesus Christ is the great Redeemer of mankind because He, through His Atonement, paid the price for the sins of mankind and made possible the resurrection of all people. To redeem is to deliver, to purchase, or to ransom, such as to free a person from bondage by payment. Redemption refers to the Atonement of Jesus Christ and to deliverance from sin. Jesus’ Atonement redeems all mankind from physical death. Through His Atonement, which includes His suffering in Gethsemane and on the cross as well as His Resurrection, those who have faith in Him and who repent are redeemed from spiritual death.
+
+- **Reformer:** To reform is to make changes to something in order to improve it. The term reformers refers to those men and women (such as Martin Luther, John Calvin, William Tyndale, and John Wycliffe) who protested the practices of the existing church, which they felt needed to be reformed.
+
+- **Restoration:** To restore means to return to a former condition, or to bring back. The Restoration, as used by Latter-day Saints, means that the true Church of Jesus Christ, which was lost through apostasy, was brought back as it originally existed when organized by Jesus Christ. Unlike the Reformation, the Restoration was accomplished by divine authority through revelation.
+
+- **Revelation:** Communication from God to His children on earth. Revelation may come through the Light of Christ and the Holy Ghost by way of inspiration, visions, dreams, or visits by angels. Revelation provides guidance that can lead the faithful to eternal salvation in the celestial kingdom. The Lord reveals His work to His prophets and confirms to believers that the revelations to the prophets are true (see Amos 3:7). Through revelation, the Lord provides individual guidance for every person who seeks it and who has faith, repents, and is obedient to the gospel of Jesus Christ.
+
+**Other Terms That May Need Further Definition for Those You Teach**
+- Apostle
+- Bible
+- Endure to the end
+- Gift of the Holy Ghost
+- Gospel
+- Obedience and disobedience to commandments
+- Ordinances of salvation
+- Prayer
+- Return to live in His presence
+- Savior
+- Scriptures
+- Sin
+- Stewardship
 
-41
-3 Study and Teach
-=================
 
+### Reformers and World Religious Leaders (Page 59)
+**The following is background information to be used only when needed.**
 
-Lesson 1: The Restoration
+- **John Wycliffe:** Born in the 14th century in England. Theology scholar at Oxford University. Taught that the Catholic Church did not have priesthood keys, that the Holy Eucharist (or sacrament) was not the actual body of Christ, and that the church should not exercise political power over the people. Translated the Bible into English. Died 31 December 1384.
 
+- **Martin Luther:** Born 10 November 1483, in Germany. Studied at University of Erfurt and Wittenberg. Nailed 95 theses to the door of the Castle Church in defiance of many current teachings of the Roman Catholic Church, including the practice of having people pay money to be forgiven of their sins. Died 18 February 1546.
 
-42
-Notes
+- **William Tyndale:** Born in Wales in 1494. Studied at Oxford and Cambridge. Translated the New Testament into English. Made the scriptures available to the common people to expose the false doctrines and corruption of religious leaders. He was executed on 6 October 1536.
 
-
-![see page 56](#)
-Commitments:
-============
-
-
-• Will you read and pray to know that the Book of Mormon is the word of God?
-
-
-• Will you pray to know that Joseph Smith was a prophet?
-
-
-• Will you attend church with us this Sunday?
-
-
-• May we set a time for our next visit?
-
-
-• Commandments from lesson 4 that you choose to include.
-
-
-Full Lesson Plan (30–45 minutes)
-================================
-
-
-• God Is Our Loving Heavenly Father
-
-
-– We are God’s children (see Acts 17:29).
-
-
-– God loves us and will help us make right choices.
-
-
-– Through Jesus Christ, we can live with God again (see John 3:16–17).
-
-
-• The Gospel Blesses Families
-=============================
-
-
-– The gospel of Jesus Christ helps families develop stronger relationships.
-
-
-– Families are ordained of God; they are the most important social unit in time and eternity (see D&C 49:15–16).
-
-
-– The family is the best place to teach, learn, and apply gospel principles (see D&C 68:25; Genesis 18:19; Deuteronomy 6:7).
-
-
-– The family can be a place of safety, peace, and joy.
-
-
-• Heavenly Father Reveals His Gospel in Every Dispensation
-
-
-– God calls prophets to teach His gospel (see Amos 3:7).
-
-
-– Apostasy means to reject prophets and the gospel.
-
-
-– Dispensations are periods of time when prophets have taught the gospel. Previous dispensations have ended in apostasy (see D&C 136:36–38).
-
-
-– Adam, Noah, Abraham, Moses, and other ancient prophets all taught the gospel (see Moses 5:4–12).
-
-
-• The Savior’s Earthly Ministry and Atonement
-=============================================
-
-
-– The Son of God restored and taught the gospel. He performed many miracles (see Bible Dictionary, “Miracles,” 732–33).
-
-
-– He called Apostles and gave them priesthood authority to preach the gospel and perform saving ordinances such as baptism (see John 15:16).
-
-
-– Christ established His Church.
-================================
-
-
-– Christ was crucified, and His Apostles were rejected and killed (see Matthew 27:35; Mark 15:25).
-
-
-– Christ accomplished the Atonement (see Bible Dictionary, “Atonement,” 617).
-
-
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-• The Great Apostasy
-
-
-– Without revelation through a prophet, people fall into spiritual darkness (see Amos 8:11–12).
-
-
-– Prophets and Apostles foretold the Great Apostasy (see 2 Thessalonians 2:1–3).
-
-
-• The Restoration of the Gospel of Jesus Christ through Joseph Smith
-
-
-– Joseph sought for truth (see Joseph Smith—History 1:8, 10).
-
-
-– God and Jesus Christ appeared to Joseph Smith (see Joseph Smith—History 1:16–17).
-
-
-– Like prophets in earlier dispensations, Joseph Smith was called as the prophet of this last dispensation.
-
-
-– God restored the fulness of the gospel through Joseph Smith (see D&C 35:17; 135:3).
-
-
-– Other heavenly messengers restored the priesthood, and Christ’s Church was organized (see D&C 13; 27:12).
-
-
-– A living prophet directs the Church today.
-
-
-• The Book of Mormon: Another Testament of Jesus Christ
-=======================================================
-
-
-– The Book of Mormon is convincing evidence that Joseph Smith was a prophet.
-
-
-– Joseph translated the plates by the power of God (see Introduction to the Book of Mormon, paragraph 5).
-
-
-– The Book of Mormon proves that God inspires prophets in our day as He has in every dispensation (see D&C 20:5–12).
-
-
-– The Book of Mormon contains the fulness of the gospel of Jesus Christ (see D&C 20:8–9).
-
-
-• Pray to Know the Truth through the Holy Ghost
-===============================================
-
-
-– You can know that the Book of Mormon is true (see Moroni 10:3–5; Introduction to the Book of Mormon, paragraphs 1, 8–9).
-
-
-– The Holy Ghost will teach you through your thoughts and feelings (see D&C 8:2–3).
-
-
-Commitments:
-============
-
-
-• Will you read and pray to know that the Book of Mormon is the word of God?
-
-
-• Will you pray to know that Joseph Smith was a prophet?
-
-
-• Will you attend church with us this Sunday?
-
-
-• May we set a time for our next visit?
-
-
-• Commandments from lesson 4 that you choose to include.
-
-
-Notes
-
-
-43
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-Notes
-
-
-Questions to Ask after You Teach
-================================
-
-
-• What questions do you have about what we have taught?
-
-
-• If there were a prophet on the earth today, what would you ask him?
-
-
-• Do you believe that God hears your prayers? Why?
-
-
-• Would you like to find out that the Book of Mormon is true? Why?
-
-
-Key Definitions
-===============
-
-
-• Agency: The ability and privilege God gives people to choose and to act for themselves.
-
-
-• Apostasy: A turning away from the truth by individuals, the Church, or entire nations. It includes rebellion against authority and rejection of prophets. Evidence of apostasy includes transgressing God’s laws, changing gospel ordinances, and breaking covenants (see Isaiah 24:5).
-
-
-• Dispensation: A period of time in which the Lord has at least one authorized servant on the earth who bears the keys of the holy priesthood. In addition to Jesus Christ, prophets such as Adam, Enoch, Noah, Abraham, Moses, and Joseph Smith have each started a new gospel dispensation. When the Lord organizes a dispensation, the gospel is revealed anew so that the people of that dispensation do not have to depend on past dispensations for knowledge of the plan of salvation. The dispensation begun by Joseph Smith is known as the “dispensation of the fulness of times.”
-
-
-• Priesthood: The authority and power that God gives to man to act in the name of Jesus Christ in all things for the salvation of mankind.
-
-
-• Prophet: A man who has been called by and speaks for God. As a messenger of God, a prophet receives priesthood authority, commandments, prophecies, and revelations from God. His responsibility is to make known God’s will and true character to mankind and to show the meaning of His dealings with them. A prophet denounces sin and foretells its consequences. He is a preacher of righteousness. On occasion, a prophet may be inspired to foretell the future for the benefit of mankind. His primary responsibility, however, is to bear witness of Christ.
-
-
-• Redeemer: Jesus Christ is the great Redeemer of mankind because He, through His Atonement, paid the price for the sins of mankind and made possible the resurrection of all people. To redeem is to deliver, to purchase, or to ransom, such as to free a person from bondage by payment. Redemption refers to the Atonement of Jesus Christ and to deliverance from sin. Jesus’ Atonement redeems all mankind from physical death. Through His Atonement, which includes His suffering in Gethsemane and on the cross as well as His Resurrection, those who have faith in Him and who repent are redeemed from spiritual death.
-
-
-• Reformer: To reform is to make changes to something in order to improve it. The term reformers refers to those men and women (such as Martin Luther, John Calvin, William Tyndale, and John Wycliffe) who protested the practices of the existing church, which they felt needed to be reformed.
-
-
-• Restoration: To restore means to return to a former condition, or to bring back. The Restoration, as used by Latter-day Saints, means that the true Church of Jesus Christ, which was lost through apostasy, was brought back as it originally existed when organized by Jesus Christ. Unlike the Reformation, the Restoration was accomplished by divine authority through revelation.
-
-
-44
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-come through the Light of Christ and the Holy Ghost by way of inspiration, visions, dreams, or visits by angels. Revelation provides guidance that can lead the faithful to eternal salvation in the celestial kingdom. The Lord reveals His work to His prophets and confirms to believers that the revelations to the prophets are true (see Amos 3:7). Through revelation, the Lord provides individual guidance for every person who seeks it and who has faith, repents, and is obedient to the gospel of Jesus Christ.
-
-
-Other Terms That May Need Further Definition for Those You Teach
-================================================================
-
-
-* Apostle
-
-
-* Bible
-
-
-* Endure to the end
-
-
-• Gift of the Holy Ghost
-
-
-* Gospel
-
-
-• Obedience and disobedience to commandments
-
-
-• Ordinances of salvation
-
-
-* Prayer
-
-
-• Return to live in His presence
-
-
-* Savior
-
-
-* Scriptures
-
-
-* Sin
-
-
-* Stewardship
-
-
-Notes
-
-
-Reformers and World Religious Leaders
-=====================================
-
-
-The following is background information to be used only when needed.
-====================================================================
-
-
-John Wycliffe: Born in the 14th century in England. Theology scholar at Oxford University. Taught that the Catholic Church did not have priesthood keys, that the Holy Eucharist (or sacrament) was not the actual body of Christ, and that the church should not exercise political power over the people. Translated the Bible into English. Died 31 December 1384.
-
-
-Martin Luther: Born 10 November 1483, in Germany. Studied at University of Erfurt and Wittenberg. Nailed 95 theses to the door of the Castle Church in defiance of many current teachings of the Roman Catholic Church, including the practice of having people pay money to be forgiven of their sins. Died 18 February 1546.
-
-
-William Tyndale: Born in Wales in 1494. Studied at Oxford and Cambridge. Translated the New Testament into English. Made the scriptures available to the common people to expose the false doctrines and corruption of religious leaders. He was executed on 6 October 1536.
-
-
-John Calvin: Born 10 July 1509, in France. Studied in Paris to be a priest. A major leader in movements to reform the Catholic Church. Lived much of his life in Switzerland. He taught that men by nature are depraved and that only God’s grace can save them. Wrote many commentaries on the Bible. Died 27 May 1564.
-
+- **John Calvin:** Born 10 July 1509, in France. Studied in Paris to be a priest. A major leader in movements to reform the Catholic Church. Lived much of his life in Switzerland. He taught that men by nature are depraved and that only God’s grace can save them. Wrote many commentaries on the Bible. Died 27 May 1564.
 
 For more information on the reformers, see the following sources in the missionary library: James E. Talmage, Jesus the Christ, 692–703; M. Russell Ballard, Our Search for Happiness, 26–32.
 
-
-45
-3 Study and Teach
-=================
-
-
-Lesson 1: The Restoration
-
-
-Notes
-
-
 Just as the Christian world was blessed by the courage and vision of the reformers, many other nations and cultures have been blessed by those who were given that portion “that [God] seeth fit that they should have” (Alma 29:8). Teachings of other religious leaders have helped many people become more civil and ethical.
 
+- **Buddha (Gotama):** Born in 563 B.C. of a Hindu chieftain in Nepal. Concerned with the suffering he saw around him. Fled from his father’s luxurious palace, renounced the world, and lived in poverty. Seeking enlightenment, he discovered what he called the “path of deliverance.” Claimed to reach Nirvana, a state of oblivion to care, pain, or external reality. Became a teacher for a community of monks.
 
-Buddha (Gotama): Born in 563 B.C. of a Hindu chieftain in Nepal. Concerned with the suffering he saw around him. Fled from his father’s luxurious palace, renounced the world, and lived in poverty. Seeking enlightenment, he discovered what he called the “path of deliverance.” Claimed to reach Nirvana, a state of oblivion to care, pain, or external reality. Became a teacher for a community of monks.
+- **Confucius:** Born in 551 B.C. Orphaned as a child. China’s first professional teacher. China’s greatest moral and social thinker. Said little about spiritual beings or divine powers. Believed that heaven had entrusted him with a sacred mission as champion of the good and true.
 
-
-Confucius: Born in 551 B.C. Orphaned as a child. China’s first professional teacher. China’s greatest moral and social thinker. Said little about spiritual beings or divine powers. Believed that heaven had entrusted him with a sacred mission as champion of the good and true.
-
-
-Mohammed: Born in 570 A.D. in Mecca. Orphaned in childhood. Lived a life of poverty. Gained reputation as a trusted peacemaker. Married at age 25. In 610 prayed and meditated on Mount Hira. Said the angel Gabriel appeared to him and delivered a message from Allah (God). Claimed to receive communication from God through Gabriel from 620 to 632. These communications, which he recited to his disciples, were later written in the Koran, the sacred book of Islam.
+- **Mohammed:** Born in 570 A.D. in Mecca. Orphaned in childhood. Lived a life of poverty. Gained reputation as a trusted peacemaker. Married at age 25. In 610 prayed and meditated on Mount Hira. Said the angel Gabriel appeared to him and delivered a message from Allah (God). Claimed to receive communication from God through Gabriel from 620 to 632. These communications, which he recited to his disciples, were later written in the Koran, the sacred book of Islam.
 
 
-46
-The Plan of Salvation
-=====================
+# The Plan of Salvation (Page 61)
 
-
-![see page 61](#)
-Your Purpose
-
-
+## Your Purpose (Page 61)
 As you teach, prepare your investigators to meet the qualifications for baptism taught in Doctrine and Covenants 20:37 and in the baptismal interview questions. This is best accomplished by inviting your investigators to make and keep the commitments listed below.
 
+**Baptismal Interview Questions**
+- Do you believe that God is our Eternal Father?
+- Do you believe that Jesus Christ is the Son of God, the Savior and Redeemer of the world?
+- Are you willing to keep the Sabbath day holy, including partaking of the sacrament weekly and rendering service to fellow members?
 
-Baptismal Interview Questions
+**Commitments**
+- Will you pray to know that what we have taught is true?
+- Will you repent of your sins?
+- Will you attend church with us this Sunday?
+- Will you follow the example of the Savior and be baptized on (date)?
+- May we set a time for our next visit?
+Commandments from lesson 4 that you choose to include.
 
-
-• Do you believe that God is our Eternal Father?
-
-
-• Do you believe that Jesus Christ is the Son of God, the Savior and Redeemer of the world?
-
-
-• Are you willing to keep the Sabbath day holy, including partaking of the sacrament weekly and rendering service to fellow members?
-
-
-Commitments
-===========
-
-
-• Will you pray to know that what we have taught is true?
-
-
-• Will you repent of your sins?
-
-
-• Will you attend church with us this Sunday?
-
-
-• Will you follow the example of the Savior and be baptized on (date)?
-
-
-• May we set a time for our next visit?
-
-
-• Commandments from lesson 4 that you choose to include.
-
-
-3 Study and Teach
-=================
-
-
-Lesson 2: The Plan of Salvation
-
-
-Notes
-
-
-Helping Others Learn about Jesus Christ
-=======================================
-
-
+## Helping Others Learn about Jesus Christ (Page 61)
 Missionaries are to testify of Jesus Christ and invite all to come unto Him that they might be saved. Providing specific instruction about the Savior is important for those who know little or nothing about Him. The Book of Mormon: Another Testament of Jesus Christ is designed to help all people know that “Jesus is the Christ, . . . manifesting Himself unto all nations” (title page of the Book of Mormon). One of the most effective ways to teach and testify of the Savior is to read together from the Book of Mormon. Passages from other standard works can also be helpful.
 
-
 Consider the suggestions below. This may be done as part of this or other lessons or as a lesson of its own. When helpful, repeat this activity several times before and after baptism and confirmation.
-
-
-Title page and introduction
-===========================
-
-
-1 Nephi 10–11
-
-
-1 Nephi 19
-
-
-Make clear the purpose of the book.
-
-
-Lehi and Nephi testify of the Savior.
-
-
-Nephi recounts prophecies of the Savior’s ministry and Atonement.
-
-
-47
-3 Study and Teach
-=================
-
-
-Lesson 2: The Plan of Salvation
-
-
-Notes
-=====
-
-
-
-
+| | |
+| ---| --- |
+| Title page and introduction | Make clear the purpose of the book. |
+| 1 Nephi 10–11 | Lehi and Nephi testify of the Savior. |
+| 1 Nephi 19 | Nephi recounts prophecies of the Savior’s ministry and Atonement. |
 | 2 Nephi 2 | Lehi testifies of the Savior as Redeemer. |
-| --- | --- |
 | 2 Nephi 9 | Jacob testifies of the Atonement. |
 | 2 Nephi 31-33 | Nephi teaches the doctrine of Christ. |
 | Enos | Enos experiences the power of the Atonement. |
@@ -1963,905 +1186,257 @@ Notes
 | The Living Christ | Prophets and apostles testify of the Savior. |
 
 
-Pre-Earth Life: God’s Purpose and Plan for Us
-=============================================
-
-
+## Pre-Earth Life: God’s Purpose and Plan for Us (Page 62)
 Many people wonder, “Where did we come from? Why are we here? Where are we going?” The plan of salvation gives us the answers to these questions.
-
 
 God is the Father of our spirits. We are literally His children, and He loves us. We lived as spirit children of our Father in Heaven before we were born on this earth. We were not, however, like our Heavenly Father, nor could we ever become like Him and enjoy all the blessings that He enjoys without the experience of living in mortality with a physical body. God’s whole purpose—His work and His glory—is to enable each of us to enjoy all His blessings. He has provided a perfect plan to accomplish His purpose. We understood and accepted this plan before we came to the earth. In the scriptures God’s plan is called a merciful plan, the plan of happiness, the plan of redemption, and the plan of salvation. Jesus Christ is central to God’s plan. Through His Atonement, Jesus Christ fulfilled His Father’s purpose and made it possible for each of us to enjoy immortality and eternal life. Satan, or the devil, is an enemy to God’s plan.
 
-
 Agency, or the ability to choose, is one of God’s greatest gifts to His children. Our eternal progression depends on how we use this gift. We must choose whether to follow Jesus Christ or follow Satan.
-
 
 We are physically separated from God during life on earth, but He wants every one of His children to find peace in this life and a fulness of joy in His presence after this life. He wants us to become like Him.
 
+#### Scripture Study (Page 63)
+- **Children of God** - D&C 93:29, Acts 17:29, Hebrews 12:9
 
-48
+- **Purpose** - Moses 1:39, and John 17:3 
 
-
-| Children of God |  | Purpose |
-| --- | --- | --- |
-| Premortal Life | | |
-| D&C 138:53-56 Moses 3:5 | Abraham 3:22-26 Jeremiah 1:5 | Guide, “Man, Existence of” |
+- **Premortal Life** - D&C 138:53–56, Moses 3:5, Abraham 3:22–26, Jeremiah 1:5, and Topical Guide, “Man, Antemortal Existence of”
 
 
-3 Study and Teach
-=================
+## The Creation (Page 63)
+Under the direction of the Father, Jesus Christ created the earth as a place for us to live and gain experience. In order to progress and become like God, each of us had to obtain a body and be tested during a time of probation on the earth. While on the earth we are out of God’s physical presence. We do not remember our pre-earth life. We must walk by faith rather than by sight.
 
+#### Scripture Study (Page 63)
+- 1 Nephi 17:36, Alma 30:44, D&C 88:41–47
+- Moses 2:1, Moses 6:63, Abraham 3:24–25
+- JST, John 1:1–3 2, Corinthians 5:6–7
 
-Lesson 2: The Plan of Salvation
-
-
-Notes
-
-
-The Creation
-============
-
-
-and gain experience. In order to progress and become like God, each of us had to obtain a body and be tested during a time of probation on the earth. While on the earth we are out of God’s physical presence. We do not remember our pre-earth life. We must walk by faith rather than by sight.
-
-
-Scripture Study
-===============
-
-
-1 Nephi 17:36 Alma 30:44 D&C 88:41–47
-Moses 2:1 Moses 6:63 Abraham 3:24–25
-====================================
-
-
-JST, John 1:1–3 2 Corinthians 5:6–7
-===================================
-
-
-Agency and the Fall of Adam and Eve
-===================================
-
-
+## Agency and the Fall of Adam and Eve (Page 63)
 Adam and Eve were the first of God’s children to come to the earth. God created Adam and Eve and placed them in the Garden of Eden. Adam and Eve were created in God’s image, with bodies of flesh and bones. While Adam and Eve were in the garden, they were still in God’s presence and could have lived forever. They lived in innocence, and God provided for their needs.
 
-
-not to eat the forbidden fruit, or the fruit of the tree of knowledge of good and evil. Obeying this commandment meant that they could remain in the garden, but they could not progress by experiencing opposition in mortality. They could not know joy because they could not experience sorrow and pain.
-
+In the Garden of Eden, God gave Adam and Eve their agency. He commanded them not to eat the forbidden fruit, or the fruit of the tree of knowledge of good and evil. Obeying this commandment meant that they could remain in the garden, but they could not progress by experiencing opposition in mortality. They could not know joy because they could not experience sorrow and pain.
 
 Satan tempted Adam and Eve to eat the forbidden fruit, and they chose to do so. This was part of God’s plan. Because of this choice, they were cast from the garden and out of God’s physical presence. This event is called the Fall. Separation from God’s presence is spiritual death. Adam and Eve became mortal—subject to physical death, or separation of the body and spirit. They could now experience disease and all types of suffering. They had moral agency or the ability to choose between good and evil. This made it possible for them to learn and progress. It also made it possible for them to make wrong choices and to sin. In addition, they could now have children, so the rest of God’s spirit children could come to earth, obtain physical bodies, and be tested. Only in this way could God’s children progress and become like Him.
 
-
-49
-3 Study and Teach
-=================
-
-
-Lesson 2: The Plan of Salvation
-
-
-Notes
-
-
-Teaching about the Fall
-
-
+### Teaching about the Fall (Page 64)
 When first teaching this doctrine, do not teach everything you know about it. Explain very simply that God chose two of His children, Adam and Eve, to become the first parents on earth. After their transgression they were subject to both sin and death. By themselves they could not return to live with Heavenly Father. The Lord spoke to Adam and taught him the plan of salvation and redemption through the Lord Jesus Christ. By following that plan, Adam and his family could have joy in this life and return to live with God (see Alma 18:36; 22:12–14).
 
+#### Scripture Study (Page 64)
+- In the Garden: 2 Nephi 2, Moses 2:26–31, Moses 3:15–17, Moses 5:11, Genesis 1:26–31, Genesis 2:15–17
 
-Scripture Study
-===============
+- The Fall: 2 Nephi 2:25, Alma 12:22–34, Moses 4, Moses 5:10–12, Genesis 3
 
-
-In the Garden
-
-
-2 Nephi 2 Moses 2:26–31
-=======================
-
-
-Moses 3:15–17 Moses 5:11
-Genesis 1:26–31 Genesis 2:15–17
-===============================
-
-
-The Fall
-========
-
-
-2 Nephi 2:25 Alma 12:22–34
-
-
-Moses 4 Moses 5:10–12
-=====================
-
-
-Genesis 3
-
-
-* 
-
-
-Our Life on Earth
-=================
-
+## Our Life on Earth (Page 64)
 
 Life on earth is an opportunity and a blessing. Our purpose in this life is to have joy and prepare to return to God’s presence. In mortality we live in a condition where we are subject to both physical and spiritual death. God has a perfect, glorified, immortal body of flesh and bones. To become like God and return to His presence, we too must have a perfect, immortal body of flesh and bones. However, because of the Fall of Adam and Eve, every person on earth has an imperfect, mortal body and will eventually die. If not for the Savior Jesus Christ, death would end all hope for a future existence with Heavenly Father. Along with physical death, sin is a major obstacle that keeps us from becoming like our Father in Heaven and returning to His presence. In our mortal condition we often yield to temptation, break God’s commandments, and sin. During our life on earth each of us makes mistakes. Although it sometimes appears otherwise, sin always leads to unhappiness. Sin causes feelings of guilt and shame. Because of our sins, we are unable to return to live with Heavenly Father unless we are first forgiven and cleansed.
 
-
 While we are in mortality, we have experiences that bring us happiness. We also have experiences that bring us pain and sorrow, some of which is caused by the sinful acts of others. These experiences provide us opportunities to learn and to grow, to distinguish good from evil, and to make choices. God influences us to do good; Satan tempts us to commit sin. As with physical death, we cannot overcome the effects of sin by ourselves. We are helpless without the Atonement of Jesus Christ.
 
+#### Scripture Study (Page 65)
+- Probation or Testing Period: 2 Nephi 2:21, 2 Nephi 9:27, Mosiah 3:19, Alma 12:21–24, Alma 34:31–35, Alma 42:2–10, Abraham 3:25–26
 
-/
-50
-Scripture Study
+- Choice: 2 Nephi 2:26–29, Joshua 24:15, For the Strength of Youth, “Agency and Accountability”
 
+- Good and Evil: Moroni 7:12–19
 
-Probation or Testing Period
-===========================
+- Sin: Romans 3:23, 1 John 1:8–10, 1 John 3:4
 
+- The Unclean Cannot Be with God: 1 Nephi 10:20–21, Alma 41:10–11, 3 Nephi 27:19, Moses 6:57
 
-2 Nephi 2:21 2 Nephi 9:27 Mosiah 3:19
-=====================================
+## The Atonement (page 65)
 
+Before the world was organized, our Heavenly Father chose Jesus Christ to be our Savior and Redeemer. The atoning sacrifice of Jesus Christ made it possible for us to overcome the effects of the Fall. All of the prophets since the world began have testified of Jesus Christ as our Redeemer.
 
-Alma 12:21–24 Alma 34:31–35 Alma 42:2–10
-Choice
-======
-
-
-2 Nephi 2:26–29 For the Strength of Youth, “Agency and Accountability”
-======================================================================
-
-
-Good and Evil
-=============
-
-
-Moroni 7:12–19
-
-
-Sin
-
-
-Romans 3:23
-
-
-1 John 1:8–10
-
-
-The Unclean Cannot Be with God
-==============================
-
-
-1 Nephi 10:20–21 Alma 41:10–11
-3 Nephi 27:19
-
-
-Abraham 3:25–26
-
-
-1 John 3:4
-
-
-Moses 6:57
-
-
-3 Study and Teach
-=================
-
-
-Lesson 2: The Plan of Salvation
-
-
-Notes
-
-
-The Atonement
-=============
-
-
-chose Jesus Christ to be our Savior and Redeemer. The atoning sacrifice of Jesus Christ made it possible for us to overcome the effects of the Fall. All of the prophets since the world began have testified of Jesus Christ as our Redeemer.
-
-
-![see page 65](#)
 We will all suffer physical death, but Jesus Christ overcame the obstacle of physical death for us. When He died on the cross, His spirit became separated from His body. On the third day, His spirit and His body were reunited eternally, never to be separated again. He appeared to many people, showing them that He had an immortal body of flesh and bone. The reuniting of body and spirit is called resurrection and is a gift promised to each of us. Because of the Resurrection of Jesus Christ, we will all be resurrected regardless of whether we have done good or evil in this life. We will have a perfect, immortal body of flesh and bones that will never again be subject to disease, pain, or death. The resurrection makes it possible to return to God’s presence to be judged but does not guarantee that we will be able to live in His presence. To receive that blessing, we must also be cleansed from sin.
-
 
 God sent His Beloved Son, Jesus Christ, to overcome the obstacle of sin in addition to the obstacle of physical death. We are not responsible for the Fall of Adam and Eve, but we are responsible for our own sins. God cannot look on sin with any degree of allowance, and sin prevents us from living in His presence. Only through the Savior’s grace and mercy can we become clean from sin so that we can live with God again. This is possible through exercising faith in Jesus Christ, repenting, being baptized, receiving the gift of the Holy Ghost, and enduring to the end.
 
-
-To fulfill the plan of salvation, Christ paid the penalty for our sins. He alone was able to do that. He was called and prepared in pre-earth life. He was the literal Son of God in
-
-
-51
-3 Study and Teach
-=================
-
-
-Lesson 2: The Plan of Salvation
-
-
-Notes
-
-
-the flesh. He was sinless and completely obedient to His Father. Though tempted, He never gave in to temptation. When the Father asked His Beloved Son to pay the price of the world’s sins, Jesus was prepared and willing. The Atonement included His suffering in the Garden of Gethsemane and His suffering and death on the cross, and it ended with His Resurrection. Though He suffered beyond comprehension—so much so that He bled from every pore and asked whether it were possible that this burden be lifted from Him—He submitted to the Father’s will in a supreme expression of love for His Father and for us. This triumph of Jesus Christ over spiritual death by His suffering and over physical death by His Resurrection is called the Atonement.
-
+To fulfill the plan of salvation, Christ paid the penalty for our sins. He alone was able to do that. He was called and prepared in pre-earth life. He was the literal Son of God in the flesh. He was sinless and completely obedient to His Father. Though tempted, He never gave in to temptation. When the Father asked His Beloved Son to pay the price of the world’s sins, Jesus was prepared and willing. The Atonement included His suffering in the Garden of Gethsemane and His suffering and death on the cross, and it ended with His Resurrection. Though He suffered beyond comprehension—so much so that He bled from every pore and asked whether it were possible that this burden be lifted from Him—He submitted to the Father’s will in a supreme expression of love for His Father and for us. This triumph of Jesus Christ over spiritual death by His suffering and over physical death by His Resurrection is called the Atonement.
 
 Christ promises to forgive our sins on the condition that we accept Him by exercising faith in Him, repenting, receiving baptism by immersion, and the laying on of hands for the gift of the Holy Ghost, and striving faithfully to keep His commandments to the end of our lives. Through continuing repentance, we may obtain forgiveness and be cleansed of our sins by the power of the Holy Ghost. We are relieved of the burden of guilt and shame, and through Jesus Christ we become worthy to return to the presence of God.
 
+As we rely on the Atonement of Jesus Christ, He can help us endure our trials, sicknesses, and pain. We can be filled with joy, peace, and consolation. All that is unfair about life can be made right through the Atonement of Jesus Christ. In paying the penalty for our sins, Jesus did not, however, eliminate our personal responsibility. We must show that we accept Him and that we will follow His command- ments. Only through the gift of the Atonement can we return to live with God.
 
-As we rely on the Atonement of Jesus Christ, He can help us endure our trials, sicknesses, and pain. We can be filled with joy, peace, and consolation. All that is unfair about life can be made right through the Atonement of Jesus Christ.
+#### Scripture Study (Page 66)
+- Resurrection: 2 Nephi 9:6–7, Alma 11:42–45, Alma 40:23, Helaman 14:15–19, D&C 88:27–32 Luke 24:1–10, 36–39, 1 Corinthians 15:20–23, 1 Corinthians 15:41–42, JST, 1 Corinthians 15:40, Topical Guide, “Resurrection”, Bible Dictionary - “Death,” “Resurrection”
 
+- Atonement: 2 Nephi 2:6–8, Alma 7:11–13, Alma 34:8–10, D&C 19:15–19, D&C 45:3–5, John 3:16–17, 1 John 1:7, Bible Dictionary, “Atonement”
 
-In paying the penalty for our sins, Jesus did not, however, eliminate our personal responsibility. We must show that we accept Him and that we will follow His command- ments. Only through the gift of the Atonement can we return to live with God.
+  
+- The Gospel—The Way: 2 Nephi 9:1–24, 2 Nephi 31, Alma 11:40, 3 Nephi 11:31–41, 3 Nephi 27, Moroni 7:27–28
 
-
-Scripture Study
-===============
-
-
-Resurrection
-============
-
-
-2 Nephi 9:6–7 Alma 11:42–45 Alma 40:23 Helaman 14:15–19
-Atonement
-=========
-
-
-2 Nephi 2:6–8 Alma 7:11–13 Alma 34:8–10
-The Gospel—The Way
-==================
-
-
-2 Nephi 9:1–24 2 Nephi 31
-=========================
-
-
-D&C 88:27–32 Luke 24:1–10, 36–39 1 Corinthians 15:20–23 1 Corinthians 15:41–42
-D&C 19:15–19 D&C 45:3–5 John 3:16–17
-Alma 11:40 3 Nephi 11:31–41
-JST, 1 Corinthians 15:40 Topical Guide, “Resurrection” Bible Dictionary, “Death,” “Resurrection”
-================================================================================================
-
-
-1 John 1:7 Bible Dictionary, “Atonement”
-========================================
-
-
-3 Nephi 27 Moroni 7:27–28
-=========================
-
-
-The Spirit World
-================
-
-
+## The Spirit World (page 66)
 Even though Christ conquered physical death, all people must die, for death is part of the process by which we are transformed from mortality to immortality. At death our spirits go to the spirit world. Death does not change our personality or our desires for good or evil. Those who chose to obey God in this life live in a state of happiness, peace, and rest from troubles and care. Those who chose not to obey in this life and did not repent live in a state of unhappiness. In the spirit world the gospel is preached to those who did not obey the gospel or have the opportunity to hear it while on earth. We remain in the spirit world until we are resurrected.
 
+#### Scripture Study (Page 67)
 
-52
-Scripture Study
-===============
+- Gospel Preached to the Dead: D&C 138, 1 Peter 3:19–20, 1 Peter 4:6
 
+- Death and the Spirit World: Alma 34:34, Alma 40:11–14, Ecclesiastes 12:7
 
-Gospel Preached to the Dead
-
-
-D&C 138
-
-
-Death and the Spirit World
-
-
-Alma 34:34
-
-
-1 Peter 3:19–20
-
-
-Alma 40:11–14
-
-
-1 Peter 4:6
-
-
-Ecclesiastes 12:7
-
-
-3 Study and Teach
-=================
-
-
-Lesson 2: The Plan of Salvation
-===============================
-
-
-Notes
-=====
-
-
-The Resurrection, Judgment, and Immortality
-===========================================
-
-
+## The Resurrection, Judgment, and Immortality (Page 67)
 When our bodies and spirits are reunited through the resurrection, we will be brought into God’s presence to be judged. We will remember perfectly our righteousness and our guilt. If we have repented, we will receive mercy. We will be rewarded according to our works and our desires.
-
 
 Through the resurrection all people will become immortal—they will live forever. Immortality is a free gift to all people, whether they are righteous or wicked. Eternal life is not, however, the same as immortality. Eternal life is a gift of God given only to those who obey His gospel. It is the highest state that we can achieve. It comes to those who are freed from sin and suffering through the Atonement of Christ. It is exaltation, which means living with God forever in eternal families. It is to know God and Jesus Christ and to experience the life they enjoy.
 
-
-Resurrection and Reincarnation
-==============================
-
-
+### Resurrection and Reincarnation (Page 67)
 Some people may confuse the doctrine of resurrection with the concept of reincarnation. The concept of reincarnation involves being born into the world again in a different form and is false doctrine. The doctrine of resurrection involves receiving an eternal reward of an immortal body of flesh and bone. This is true doctrine. Make sure those you teach understand clearly the doctrine of the resurrection.
 
-
-Kingdoms of Glory
-=================
-
-
+## Kingdoms of Glory (Page 67)
 During our mortal lives we make choices regarding good and evil. God rewards us according to our works and desires. Because God rewards everyone according to deeds done in the body, there are different kingdoms of glory to which we may be assigned after the Judgment. Those who have repented of their sins and received the ordinances of the gospel and kept the associated covenants will be cleansed by the Atonement of Christ. They will receive exaltation in the highest kingdom, also known as the celestial kingdom. They will live in God’s presence, become like Him, and receive a fulness of joy. They will live together for eternity with those of their family who qualify. In the scriptures this kingdom is compared to the glory or brightness of the sun.
-
 
 People who do not accept the fulness of the gospel of Jesus Christ but live honorable lives will receive a place in the terrestrial kingdom. This kingdom is compared to the glory of the moon.
 
-
 Those who continued in their sins and did not repent in this life will receive their reward in the lowest kingdom, which is called the telestial kingdom. This kingdom is compared to the glory of the stars.
 
+#### Scripture Study (Page 68)
+- Resurrection and Restoration: 2 Nephi 9:14–15, Jacob 6:8–9,Alma 42:13–15, 22–23
 
-53
-3 Study and Teach
-=================
+- Judgment: 2 Nephi 28:23, Mosiah 3:23–25, Alma 5:15–21, Alma 12:12–14, D&C 132:12; 137:9 John 5:22
 
+- Kingdoms of Glory: 3 Nephi 28:10, D&C 76: Introduction, D&C 76, D&C 137, Matthew 5:48, 1 Corinthians 15:41–42, JST, 1 Corinthians 15:40
 
-Lesson 2: The Plan of Salvation
+- Eternal Life: 2 Nephi 31:17–21, D&C 14:7, D&C 29:43–44, D&C 45:8, D&C 93:19, John 3:16, John 17:3
 
-
-Notes
-
-
-Scripture Study
-
-
-Resurrection and Restoration
-============================
-
-
-2 Nephi 9:14–15
-
-
-Jacob 6:8–9
-
-
-Judgment
-
-
-2 Nephi 28:23 Mosiah 3:23–25
-
-
-Alma 5:15–21 Alma 12:12–14
-Kingdoms of Glory
-=================
-
-
-3 Nephi 28:10 D&C 76: Introduction D&C 76
-=========================================
-
-
-D&C 137 Matthew 5:48
-====================
-
-
-Eternal Life
-
-
-2 Nephi 31:17–21 D&C 14:7 D&C 29:43–44
-D&C 45:8 D&C 93:19
-Plan of Salvation
-=================
-
-
-Premortal Life
-==============
-
-
-\_—
-A
-=
-
-
-Earth Life
-==========
-
-
-Creation and Fall
-=================
-
-
-Faith in Jesus Christ Repentance Baptism Gift of the Holy Ghost Endure to the end
-e
-=
-
-
-Physical Death
-==============
-
-
-Alma 42:13–15, 22–23
-
-
-D&C 132:12; 137:9 John 5:22
-1 Corinthians 15:41–42 JST, 1 Corinthians 15:40
-===============================================
-
-
-John 3:16 John 17:3
-===================
-
-
-Spirit World
-============
-
-
-.
-Resurrection and Judgment
-=========================
-
-
-Celestial Terrestrial
-=====================
-
-
-Telestial
-=========
-
-
-@
-The Atonement of Jesus Christ makes salvation possible.
-
-
-Invitation to Be Baptized
-=========================
-
-
+#### Invitation to Be Baptized (Page 68)
 The invitation to be baptized and confirmed should be specific and direct: “Will you follow the example of Jesus Christ by being baptized by someone holding the priesthood authority of God? We will be holding a baptismal service on [date]. Will you prepare yourself to be baptized on that date?”
 
-
-%
-54
-Ideas for Teaching
-==================
-
-
+## Ideas for Teaching (Page 69)
 This section has ideas for you to use in preparing for and teaching this lesson. Prayerfully follow the Spirit as you decide how to use these ideas. Add the ideas you select to your lesson plan. Keep in mind that these ideas are suggestions—not requirements—to help you meet the needs of those you teach.
 
-
-3 Study and Teach
-=================
-
-
-Lesson 2: The Plan of Salvation
-
-
-Notes
-
-
-Short Lesson Plan (3–5 minutes)
-===============================
-
+### Short Lesson Plan (3–5 minutes) (Page 69)
 
 The plan of salvation teaches us where we came from, why we are here on earth, and where we will go after this life. It maps our eternal journey through premortality, mortal life, death, resurrection, and to our life in the eternities. The plan also explains what our loving Father in Heaven does to help us make this journey successfully so that we can return to His presence and become like Him. The plan focuses on the mission and Atonement of Jesus Christ in overcoming the effects of the Fall and making eternal life possible for us. We invite you to ponder and pray about this message.
+- Pre-Earth Life: God’s Purpose and Plan for Us
+- The Creation
+- Agency and the Fall of Adam and Eve
+- Our Life on Earth
+- The Atonement
+- The Spirit World
+- The Resurrection, Judgment, and Immortality
+- Kingdoms of Glory
 
+**Commitments:**
 
-• Pre-Earth Life: God’s Purpose and Plan for Us
+- Will you pray to know that what we have taught is true?
+- Will you repent of your sins?
+- Will you attend church with us this Sunday?
+- Will you follow the example of the Savior and be baptized on (date)?
+- May we set a time for our next visit?
+- Commandments from lesson 4 that you choose to include.
 
-
-* The Creation
-
-
-• Agency and the Fall of Adam and Eve
-
-
-* Our Life on Earth
-
-
-* The Atonement
-
-
-* The Spirit World
-
-
-• The Resurrection, Judgment, and Immortality
-
-
-• Kingdoms of Glory
-
-
-Commitments
-===========
-
-
-• Will you pray to know that what we have taught is true?
-
-
-• Will you repent of your sins?
-
-
-• Will you attend church with us this Sunday?
-
-
-• Will you follow the example of the Savior and be baptized on (date)?
-
-
-• May we set a time for our next visit?
-
-
-• Commandments from lesson 4 that you choose to include.
-
-
-![see page 69](#)
-Medium Lesson Plan (10–15 minutes)
-==================================
-
-
+### Medium Lesson Plan (10–15 minutes) (Page 69)
 Our message helps us understand the purpose of life and who we are. It gives us hope and helps us find peace, joy, and happiness. It tells us where we came from, why we are here on earth, and where we will go after this life. God is our Father, and He loves us. We are His children. We are part of His family, and we lived with Him before we were born on this earth. He has a plan of happiness that makes it possible for us to return to His presence after this life. Our progress depends on how we use our God-given agency, or ability to choose. As part of that plan, the Fall of Adam made it possible for us to come to earth, gain a physical body, have experience, and have families of our own. But the Fall also brought physical death, which is separation of the spirit from the body, and spiritual death, which is separation from God.
 
-
-55
-3 Study and Teach
-=================
-
-
-Lesson 2: The Plan of Salvation
-
-
-Notes
-
-
-![see page 70](#)
-![see page 70](#)
 Jesus Christ is central to God’s plan. Christ’s atoning sacrifice overcame the effects of both physical and spiritual death. We will all be resurrected and will live forever with physical bodies free of pain and sickness. Christ also made it possible to overcome spiritual death. As we live His gospel He will mercifully forgive our sins. He will heal us and replace guilt and shame with peace and happiness in this life.
-
 
 As part of God’s merciful plan, we will all suffer a physical death. Our spirits will be separated from our bodies and will live for a time in the spirit world. We will then be resurrected with an immortal body, an eternal union of our body and spirit. We will be judged according to our works and desires. Those who have lived the gospel will receive our Father in Heaven’s greatest gift, the gift of eternal life in His presence.
 
-
 Our Heavenly Father has again reached out to His children in love to reveal His plan of happiness. We learn about this wonderful plan in the Book of Mormon, which you can read, ponder, and pray about. We invite you to attend church and worship with us.
 
-
-Commitments:
-============
-
-
-• Will you pray to know that what we have taught is true?
-
-
-• Will you repent of your sins?
-
-
-• Will you attend church with us this Sunday?
-
-
-• Will you follow the example of the Savior and be baptized on (date)?
-
-
-• May we set a time for our next visit?
-
-
-• Commandments from lesson 4 that you choose to include.
-
-
-Full Lesson Plan (30–45 minutes)
-================================
-
-
-• Pre-Earth Life: God’s Purpose and Plan for Us
-
-
-– God is our Heavenly Father, and we are His children (see Acts 17:16–34; Hebrews 12:9).
-
-
-– God has a plan for our happiness. Jesus Christ is central to that plan.
-
-
-– God’s plan of happiness makes it possible to return to His presence (see Moses 1:39).
-
-
-– Our eternal progression depends on how we use our agency (see 2 Nephi 2:27–29).
-
-
-* The Creation
-
-
-– Under the Father’s direction, Jesus Christ created the earth (see Hebrews 1:1–3).
-
-
-56
-3 Study and Teach
-=================
-
-
-Lesson 2: The Plan of Salvation
-
-
-![see page 71](#)
-• Agency and the Fall of Adam and Eve
-
-
-– Adam and Eve were created in God’s image (see Genesis 1:26–27).
-
-
-– In the Garden of Eden they were innocent and lived in God’s presence.
-
-
-– Because they partook of the forbidden fruit, they were cast out of the garden (see Moses 4:19–31). This is called the Fall.
-
-
-– They became mortal, were able to have children, and were also subject to sin and death (see 2 Nephi 2:22–25; Moses 5:11).
-
-
-* Our Life on Earth
-
-
-– Our purpose in life is to find lasting peace, joy, and happiness as families and to prepare to return to live with God.
-
-
-– We came to the earth to be tested (see Abraham 3:24–25).
-
-
-– We gain a body of flesh and bones, but we are subject to physical death.
-
-
-– God gives commandments. If we obey, we are blessed. If we disobey, we sin and receive the consequences.
-
-
-– All sin must be paid for, either by ourselves or by Christ (see D&C 19:15–20).
-
-
-– We make choices, and we all commit sin (see Romans 3:23).
-
-
-– We have experiences that bring us happiness and also sorrow.
-
-
-– We cannot overcome either physical or spiritual death without Christ.
-
-
-* The Atonement
-
-
-– Because Jesus Christ overcame physical death, we will all be resurrected (see Alma 11:41–43).
-
-
-– Through Christ’s Atonement we can become clean from sin so that we can return to live in God’s presence (see 2 Nephi 9:8–9).
-
-
-– Christ will forgive our sins as we have faith in Him, repent, receive baptism and the gift of the Holy Ghost, and endure to the end.
-
-
-• The Spirit World
-==================
-
-
-– All people must die.
-
-
-– At death our spirits go to the spirit world.
-
-
-– We live in either a state of misery or a state of peace and rest, depending on how we lived in this life.
-
-
-• The Resurrection, Judgment, and Immortality
-=============================================
-
-
-– Our spirits and bodies will be reunited in the resurrection (see Alma 11:42–45; 40:23).
-
-
-– We will return to God’s presence to be judged according to our works and desires.
-
-
-Notes
-
-
-57
-3 Study and Teach
-=================
-
-
-Lesson 2: The Plan of Salvation
-
-
-Notes
-
-
-![see page 72](#)
-– If we have repented, we will receive mercy.
-
-
-– Eternal life is a gift of God given to those who fully obey the gospel of Jesus Christ (see D&C 14:7).
-
-
-• Kingdoms of Glory (see D&C 76; 137; 1 Corinthians 15:40–42).
-
-
-– We receive rewards according to our works and desires (see D&C 137:9).
-
-
-– Those who receive the gospel and live it valiantly throughout their lives will receive the celestial kingdom (see D&C 76:50–70).
-
-
-– Honorable people who are “blinded by the craftiness of men” and who are “not valiant in the testimony of Jesus [Christ]” receive the terrestrial kingdom (see D&C 76:75, 79).
-
-
-– Those who sin and do not repent will receive the telestial glory after they suffer and pay for their sins.
-
-
-Commitments
-===========
-
-
-• Will you pray to know that what we have taught is true?
-
-
-• Will you repent of your sins?
-
-
-• Will you attend church with us this Sunday?
-
-
-• Will you follow the example of the Savior and be baptized on (date)?
-
-
-• May we set a time for our next visit?
-
-
-• Commandments from lesson 4 that you choose to include.
-
-
-Questions to Ask after You Teach
-================================
-
-
-• What questions do you have about what we have taught?
-
-
-• What do you understand about God’s plan for you and your family?
-
-
-• From what we have taught you, what do you understand about the role of Jesus Christ? What does that mean to you?
-
-
-Key Definitions
-===============
-
-
+**Commitments:**
+- Will you pray to know that what we have taught is true?
+- Will you repent of your sins?
+- Will you attend church with us this Sunday?
+- Will you follow the example of the Savior and be baptized on (date)?
+- May we set a time for our next visit?
+- Commandments from lesson 4 that you choose to include.
+
+### Full Lesson Plan (30–45 minutes) (Page 70)
+- Pre-Earth Life: God’s Purpose and Plan for Us
+  - God is our Heavenly Father, and we are His children (see Acts 17:16–34; Hebrews 12:9).
+  – God has a plan for our happiness. Jesus Christ is central to that plan.
+  – God’s plan of happiness makes it possible to return to His presence (see Moses 1:39).
+  – Our eternal progression depends on how we use our agency (see 2 Nephi 2:27–29).
+
+- The Creation
+  – Under the Father’s direction, Jesus Christ created the earth (see Hebrews 1:1–3).
+
+- Agency and the Fall of Adam and Eve
+  – Adam and Eve were created in God’s image (see Genesis 1:26–27).
+  – In the Garden of Eden they were innocent and lived in God’s presence.
+  – Because they partook of the forbidden fruit, they were cast out of the garden (see Moses 4:19–31). This is called the Fall.
+  – They became mortal, were able to have children, and were also subject to sin and death (see 2 Nephi 2:22–25; Moses 5:11).
+
+- Our Life on Earth
+  – Our purpose in life is to find lasting peace, joy, and happiness as families and to prepare to return to live with God.
+  – We came to the earth to be tested (see Abraham 3:24–25).
+  – We gain a body of flesh and bones, but we are subject to physical death.
+  – God gives commandments. If we obey, we are blessed. If we disobey, we sin and receive the consequences.
+  – All sin must be paid for, either by ourselves or by Christ (see D&C 19:15–20).
+  – We make choices, and we all commit sin (see Romans 3:23).
+  – We have experiences that bring us happiness and also sorrow.
+  – We cannot overcome either physical or spiritual death without Christ.
+
+- The Atonement
+  – Because Jesus Christ overcame physical death, we will all be resurrected (see Alma 11:41–43).
+  – Through Christ’s Atonement we can become clean from sin so that we can return to live in God’s presence (see 2 Nephi 9:8–9).
+  – Christ will forgive our sins as we have faith in Him, repent, receive baptism and the gift of the Holy Ghost, and endure to the end.
+
+- The Spirit World
+  – All people must die.
+  – At death our spirits go to the spirit world.
+  – We live in either a state of misery or a state of peace and rest, depending on how we lived in this life.
+
+- The Resurrection, Judgment, and Immortality
+  – Our spirits and bodies will be reunited in the resurrection (see Alma 11:42–45; 40:23).
+  – We will return to God’s presence to be judged according to our works and desires.
+  – If we have repented, we will receive mercy.
+  – Eternal life is a gift of God given to those who fully obey the gospel of Jesus Christ (see D&C 14:7).
+
+- Kingdoms of Glory (see D&C 76; 137; 1 Corinthians 15:40–42).
+  – We receive rewards according to our works and desires (see D&C 137:9).
+  – Those who receive the gospel and live it valiantly throughout their lives will receive the celestial kingdom (see D&C 76:50–70).
+  – Honorable people who are “blinded by the craftiness of men” and who are “not valiant in the testimony of Jesus [Christ]” receive the terrestrial kingdom (see D&C 76:75, 79).
+  – Those who sin and do not repent will receive the telestial glory after they suffer and pay for their sins.
+
+**Commitments**
+- Will you pray to know that what we have taught is true?
+- Will you repent of your sins?
+- Will you attend church with us this Sunday?
+- Will you follow the example of the Savior and be baptized on (date)?
+- May we set a time for our next visit?
+- Commandments from lesson 4 that you choose to include.
+
+### Questions to Ask after You Teach (Page 72)
+- What questions do you have about what we have taught?
+- What do you understand about God’s plan for you and your family?
+- From what we have taught you, what do you understand about the role of Jesus Christ? What does that mean to you?
+
+
+## Key Definitions (Page 72)
 Following are terms that are frequently not understood. Make sure you explain them clearly and find out if those you are teaching understand.
 
+- **Atonement:** As used in the scriptures, to atone is to suffer the penalty for an act of sin, thereby removing the effects of sin from the repentant sinners and allowing them to be reconciled to God. Jesus Christ suffered in Gethsemane and on the cross. He was the only one capable of making a perfect Atonement for all mankind. He suffered the penalty for our sins in Gethsemane and died on the cross. He took upon Himself the pains, sicknesses, temptations, afflictions, and infirmities of us all (see Alma 7:11–12).
 
-• Atonement: As used in the scriptures, to atone is to suffer the penalty for an act of sin, thereby removing the effects of sin from the repentant sinners and allowing them to be reconciled to God. Jesus Christ suffered in Gethsemane and on the cross. He was the only one capable of making a perfect Atonement for all mankind. He suffered the penalty for our sins in Gethsemane and died on the cross. He took upon Himself the pains, sicknesses, temptations, afflictions, and infirmities of us all (see Alma 7:11–12).
+- **Exaltation:** Eternal life in God’s presence; to become like our Father in Heaven and live in His presence. The greatest of all the gifts of God. Exaltation comes through the Atonement of Christ and through obedience to all the laws and ordinances of the gospel.
 
+- **Fall (of Adam and Eve):** When Adam and Eve ate the forbidden fruit, they became mortal—that is, subject to sin and death. Adam became the “first flesh” upon the earth (Moses 3:7). Latter-day revelation makes clear that the Fall is a blessing and that Adam and Eve should be honored as the first parents of all mankind.
 
-• Exaltation: Eternal life in God’s presence; to become like our Father in Heaven and live in His presence. The greatest of all the gifts of God. Exaltation comes through the Atonement of Christ and through obedience to all the laws and ordinances of the gospel.
+- **Judgment:** God, through Jesus Christ, will judge us individually to determine the eternal glory we will receive. This judgment will be based on our obedience to God’s commandments, including our acceptance of the atoning sacrifice of Jesus Christ. We will receive our eternal reward based on whether our works and desires have been good or evil.
 
+- **Immortality:** The condition of living forever in a resurrected state, not subject to physical death.
 
-58
-3 Study and Teach
-=================
+- **Mortality:** The time from birth until physical death.
 
+- **Physical death:** Separation of our spirit, which lives forever and cannot die, from our physical body.
 
-Lesson 2: The Plan of Salvation
+- **Premortal life (premortality; pre-earth life):** As spirit children of our Father in Heaven, we lived in His presence before we were born on this earth. In premortal life we did not have physical bodies.
 
+- **Redemption:** To deliver, to purchase, or to ransom, such as to free a person from bondage by payment. Redemption refers to the Atonement of Jesus Christ and to deliverance from sin. Jesus’ Atonement redeems all mankind from physical death. Through His Atonement, those who have faith in Him and repent are also redeemed from spiritual death.
 
-• Fall (of Adam and Eve): When Adam and Eve ate the forbidden fruit, they became mortal—that is, subject to sin and death. Adam became the “first flesh” upon the earth (Moses 3:7). Latter-day revelation makes clear that the Fall is a blessing and that Adam and Eve should be honored as the first parents of all mankind.
+- **Resurrection:** The reuniting of the spirit body with the physical body of flesh and bones after death. After resurrection, the spirit and body will never again be separated, and the person is immortal. Every person born on earth will be resurrected because Jesus Christ overcame death.
 
+- **Salvation:** To be saved from physical and spiritual death. All people will be saved from physical death by the grace of God, through the death and Resurrection of Jesus Christ. Each individual can also be saved from spiritual death as well as by the grace of God, through faith in Jesus Christ. This faith is manifested in a life of obedience to the laws and ordinances of the gospel and service to Christ.
 
-• Judgment: God, through Jesus Christ, will judge us individually to determine the eternal glory we will receive. This judgment will be based on our obedience to God’s commandments, including our acceptance of the atoning sacrifice of Jesus Christ. We will receive our eternal reward based on whether our works and desires have been good or evil.
+- **Spiritual death:** Separation from God and His influences; to die as to things pertaining to righteousness. Spiritual death was introduced into the world by the fall of Adam (see Alma 42:6–7). Mortals with evil thoughts, words, and works are spiritually dead while still alive on earth (see 2 Nephi 9:39). Through the Atonement of Jesus Christ and by obedience to the principles and ordinances of the gospel, men and women can become clean from sin and overcome spiritual death.
 
 
-• Immortality: The condition of living forever in a resurrected state, not subject to physical death.
+### Other Terms That May Need Further Definition for Those You Teach (Page 73)
+- Baptism by immersion, Forbidden fruit, Probation, Forgiven [of sin], Repent, Celestial, Garden of Eden, Sin, Cleansed [from sin], Kingdoms of glory, Spirit world, Creation, Opposition, Telestial, Eternal progression, Physical death, Terrestrial, Eternal life, Faith, Plan of salvation, Tree of knowledge of good and evil
 
 
-• Mortality: The time from birth until physical death.
-
-
-• Physical death: Separation of our spirit, which lives forever and cannot die, from our physical body.
-
-
-• Premortal life (premortality; pre-earth life): As spirit children of our Father in Heaven, we lived in His presence before we were born on this earth. In premortal life we did not have physical bodies.
-
-
-• Redemption: To deliver, to purchase, or to ransom, such as to free a person from bondage by payment. Redemption refers to the Atonement of Jesus Christ and to deliverance from sin. Jesus’ Atonement redeems all mankind from physical death. Through His Atonement, those who have faith in Him and repent are also redeemed from spiritual death.
-
-
-• Resurrection: The reuniting of the spirit body with the physical body of flesh and bones after death. After resurrection, the spirit and body will never again be separated, and the person is immortal. Every person born on earth will be resurrected because Jesus Christ overcame death.
-
-
-• Salvation: To be saved from physical and spiritual death. All people will be saved from physical death by the grace of God, through the death and Resurrection of Jesus Christ. Each individual can also be saved from spiritual death as well as by the grace of God, through faith in Jesus Christ. This faith is manifested in a life of obedience to the laws and ordinances of the gospel and service to Christ.
-
-
-pertaining to righteousness. Spiritual death was introduced into the world by the fall of Adam (see Alma 42:6–7). Mortals with evil thoughts, words, and works are spiritually dead while still alive on earth (see 2 Nephi 9:39). Through the Atonement of Jesus Christ and by obedience to the principles and ordinances of the gospel, men and women can become clean from sin and overcome spiritual death.
-
-
-Other Terms That May Need Further Definition for Those You Teach
-================================================================
-
-
-* Baptism by immersion
-
-
-* Forbidden fruit
-
-
-* Probation
-
-
-• Forgiven [of sin]
-
-
-* Repent
-
-
-* Celestial
-
-
-* Garden of Eden
-
-
-* Sin
-
-
-• Cleansed [from sin]
-
-
-• Kingdoms of glory
-
-
-* Spirit world
-
-
-* Creation
-
-
-* Opposition
-
-
-* Telestial
-
-
-• Eternal progression
-
-
-* Physical death
-
-
-* Terrestrial
-
-
-* Eternal life
-
-
-* Faith
-
-
-* Plan of salvation
-
-
-• Tree of knowledge of good and evil
-
-
-Notes
-
-
-59
-3 Study and Teach
-=================
-
-
-Lesson 3: The Gospel of Jesus Christ
+# Lesson 3: The Gospel of Jesus Christ (Page 74)
 
 
 Notes
