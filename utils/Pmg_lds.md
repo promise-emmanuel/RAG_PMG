@@ -765,11 +765,11 @@ Invite a few missionaries (or each group) to share their answers. Discuss their 
 # What Do I Study and Teach? (Page 43)
 
 The lessons in this chapter contain the essential doctrines, principles, and commandments that you are to study, believe, love, live, and teach. They are what the living prophets and apostles have directed you to teach. They are organized so that you can help others clearly understand the doctrines of Christ. The lessons in this chapter are:
-- The Message of the Restoration of the Gospel of Jesus Christ
-- The Plan of Salvation
-- The Gospel of Jesus Christ
-- The Commandments
-- Laws and Ordinances
+1. The Message of the Restoration of the Gospel of Jesus Christ
+2. The Plan of Salvation
+3. The Gospel of Jesus Christ
+4. The Commandments
+5. Laws and Ordinances
 
 Teach the first four lessons before baptism. Make sure those you teach qualify for baptism and confirmation by making and keeping all of the commitments in these lessons. Full-time missionaries take the lead in teaching lessons before baptism with the help of ward missionaries and other members. After baptism, new members are taught the first four lessons again, as well as “Laws and Ordinances.” Ward leaders determine whether ward missionaries or full-time missionaries lead out in ensuring that these lessons are taught and how long full-time missionaries are involved. Encourage each new member to keep all the commitments in these lessons.
 
@@ -798,7 +798,7 @@ Study Mosiah 18:18–20, D&C 43:15–16 and D&C 52:9 to find the answers to this
 Why must you study the doctrines in the lessons?
 Study Alma 17:2–3 and D&C 84:85 to find answers to this question.
 
-
+> Lesson One
 # 1. The Message of the Restoration of the Gospel of Jesus Christ (Page 45)
 
 ## Your Purpose (Page 45)
@@ -818,7 +818,7 @@ As you teach, prepare your investigators to meet the qualifications for baptism 
 - May we set a time for our next visit?
 - Other commandments from lesson 4 that you choose to include.
 
-
+> Lesson one: First Principle
 ## God Is Our Loving Heavenly Father (Page 45)
 
 God is our Heavenly Father. We are His children. He has a body of flesh and bone that is glorified and perfected. He loves us. He weeps with us when we suffer and rejoices when we do what is right. He wants to communicate with us, and we can communicate with Him through sincere prayer.
@@ -845,15 +845,15 @@ Study the following scriptures to find answers to the question.
 | 3 Nephi 12:48 | Moses 1:39 | Hebrews 12:9 |
 | 3 Nephi 14:9-11 | Matthew 5:48 | 1 John 4:7-9 |
 
-
+> Lesson Two: Second Principle 
 ## The Gospel Blesses Families (Page 46)
 
 The restored gospel blesses and helps husbands and wives, parents and children as they strive to develop stronger relationships and spiritual strength in their families. These blessings are available now and in eternity. The gospel of Jesus Christ provides help with current concerns and challenges.
 
 Because families are ordained of God, they are the most important social unit in time and in eternity. God has established families to bring happiness to His children, allow them to learn correct principles in a loving atmosphere, and prepare them for eternal life. The home is the best place to teach, learn, and apply principles of the gospel of Jesus Christ. A home established on gospel principles will be a place of refuge and safety. It will be a place where the Spirit of the Lord can abide, blessing family members with peace, joy, and happiness. Through prophets in every age, including our own, God has revealed His plan of happiness for individuals and families.
 
+> Lesson Three: Third Principle
 ## Heavenly Father Reveals His Gospel in Every Dispensation (Page 46)
-
 One important way that God shows His love for us is by calling prophets, who are given the priesthood—the power and authority given to man to act in God’s name for the salvation of His children. Prophets learn the gospel of Jesus Christ by revelation. They in turn teach the gospel to others and testify of Jesus Christ as the Savior and Redeemer. The teachings of prophets are found in sacred books called scriptures.
 
 Our Father’s plan for us to be successful in this life and to return to live with Him is called the gospel of Jesus Christ, with Jesus’ Atonement at the center of that plan. Through the Atonement of Jesus Christ, we can receive eternal life if we exercise faith in Jesus Christ, repent, are baptized by immersion for the remission of sins, receive the gift of the Holy Ghost, and endure to the end. “This is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God. And now, behold, this is the doctrine of Christ” (2 Nephi 31:21). All people have the gift of agency, which includes the freedom to accept or reject the gospel as taught by the prophets and apostles. Those who choose to obey are blessed, but those who ignore, reject, or distort the gospel do not receive God’s promised blessings.
@@ -877,7 +877,7 @@ Study about Prophets using the following scriptures:
 Study about Dispensations using the following scriptures:
   - D&C 136:36–38, Moses 5:4–12, 55–59, Moses 8:19–30, Bible Dictionary, “Dispensations”
 
-
+> Lesson One: Fourth Principle
 ## The Savior’s Earthly Ministry and Atonement (Page 48)
 
 A few hundred years before the birth of Jesus Christ, people again fell into apostasy. But when the Savior began His mortal ministry He established His Church again on the earth. Heavenly Father sent His Son to the earth to atone for the sins of all mankind and overcome death: “For God so loved the world, that he gave his only begotten Son . . . that the world through him might be saved” (John 3:16–17). Our Heavenly Father sent His Son, Jesus Christ, to take upon Him, by His suffering, the sins of all who would live on this earth and to overcome physical death. The Savior made an infinite atoning sacrifice so that if we have faith in Him, repent, are baptized, receive the Holy Ghost, and endure to the end, we can receive forgiveness of our sins and enter and follow the path that will lead us to eternal life in God’s presence (see 2 Nephi 31:13–21).
@@ -889,6 +889,7 @@ Before the Savior’s death and Resurrection, He gave His Apostles authority to 
 ### Scripture Study (Page 49)
 Articles of Faith 1:5, Matthew 10:1–10, Luke 6:13, John 15:16, and Hebrews 5:4.
 
+> Lesson one: Fifth Principle
 ## The Great Apostasy (Page 49)
 After the death of Jesus Christ, wicked people persecuted the Apostles and Church members and killed many of them. With the death of the Apostles, priesthood keys and the presiding priesthood authority were taken from the earth. The Apostles had kept the doctrines of the gospel pure and maintained the order and standard of worthiness for Church members. Without the Apostles, over time the doctrines were corrupted, and unauthorized changes were made in Church organization and priesthood ordinances, such as baptism and conferring the gift of the Holy Ghost.
 
@@ -916,6 +917,7 @@ Investigators must understand that a universal apostasy occurred following the d
 - Therefore, a restoration, not a reformation, was required. Priesthood authority did not continue in an unbroken line of succession from the Apostle Peter. To reform is to change what already exists; to restore is to bring back something in its original form. Thus, restoration of priesthood authority through divine messengers was the only possible way to overcome the Great Apostasy.
 
 
+> Lesson One: Sixth Principle
 ## The Restoration of the Gospel of Jesus Christ through Joseph Smith (Page 50)
 
 When the circumstances were right, Heavenly Father once again reached out to His children in love. He called a young man named Joseph Smith as a prophet. Through him the fulness of the gospel of Jesus Christ was restored to the earth.
@@ -946,6 +948,7 @@ An important part of a missionary’s duty is to bear testimony of the current p
 Study 2 Nephi 3, D&C 112:30, Ephesians 1:10, Ephesians 4:5, James 1:5, and Brochure, The Testimony of the Prophet Joseph Smith
 
 
+> Lesson One: Seventh Principle
 ## The Book of Mormon: Another Testament of Jesus Christ (Page 52)
 Knowing that doubt, disbelief, and misinformation would remain after centuries of darkness, our loving Heavenly Father brought forth an ancient volume of holy scripture comparable to the Bible, which contains the fulness of the everlasting gospel of Jesus Christ. This volume of holy scripture provides convincing evidence that Joseph Smith is a true prophet of God. This record is the Book of Mormon: Another Testament of Jesus Christ. Joseph Smith was directed by a heavenly messenger named Moroni to a hill where gold plates had lain hidden for centuries. These gold plates contained the writings of prophets giving an account of God’s dealings with some of the ancient inhabitants of the Americas. Joseph Smith translated the contents of these plates by the power of God. The prophets in the Book of Mormon knew about the mission of the Savior and taught His gospel. After His Resurrection, Christ appeared to these people. He taught them His gospel and established His Church. The Book of Mormon proves that “God does inspire men and call them to his holy work in this age and generation, as well as in generations of old” (D&C 20:11). In order to know that the Book of Mormon is true, a person must read, ponder, and pray about it. The honest seeker of truth will soon come to feel that the Book of Mormon is the word of God.
 
@@ -962,6 +965,8 @@ When introducing a person to the Book of Mormon, it is helpful to show him or he
 #### Scripture study (page 53)
 Study the Title page of the Book of Mormon, Introduction to the Book of Mormon - paragraphs 1-7, D&C 1:17-23, D&C 20:5-12, and Joseph Smith—History 1:27-64
 
+
+> Lesson One: Eighth Principle
 ## Pray to Know the Truth through the Holy Ghost (Page 53)
 This message of the Restoration is either true or it is not. We can know that it is true by the Holy Ghost, as promised in Moroni 10:3-5. After reading and pondering the message of the Book of Mormon, any who desire to know the truth must ask in prayer to our Heavenly Father in the name of Jesus Christ if it is true. In order to do this, we address our Heavenly Father. We thank Him for our blessings and ask to know that the message of the Book of Mormon is true. No one can know of spiritual truths without prayer.
 
@@ -1137,6 +1142,7 @@ Just as the Christian world was blessed by the courage and vision of the reforme
 - **Mohammed:** Born in 570 A.D. in Mecca. Orphaned in childhood. Lived a life of poverty. Gained reputation as a trusted peacemaker. Married at age 25. In 610 prayed and meditated on Mount Hira. Said the angel Gabriel appeared to him and delivered a message from Allah (God). Claimed to receive communication from God through Gabriel from 620 to 632. These communications, which he recited to his disciples, were later written in the Koran, the sacred book of Islam.
 
 
+> Lesson Two
 # The Plan of Salvation (Page 61)
 
 ## Your Purpose (Page 61)
@@ -1186,6 +1192,7 @@ Consider the suggestions below. This may be done as part of this or other lesson
 | The Living Christ | Prophets and apostles testify of the Savior. |
 
 
+> Lesson Two: First Principle
 ## Pre-Earth Life: God’s Purpose and Plan for Us (Page 62)
 Many people wonder, “Where did we come from? Why are we here? Where are we going?” The plan of salvation gives us the answers to these questions.
 
@@ -1203,6 +1210,7 @@ We are physically separated from God during life on earth, but He wants every on
 - **Premortal Life** - D&C 138:53–56, Moses 3:5, Abraham 3:22–26, Jeremiah 1:5, and Topical Guide, “Man, Antemortal Existence of”
 
 
+> Lesson Two: Second Principle
 ## The Creation (Page 63)
 Under the direction of the Father, Jesus Christ created the earth as a place for us to live and gain experience. In order to progress and become like God, each of us had to obtain a body and be tested during a time of probation on the earth. While on the earth we are out of God’s physical presence. We do not remember our pre-earth life. We must walk by faith rather than by sight.
 
@@ -1211,6 +1219,8 @@ Under the direction of the Father, Jesus Christ created the earth as a place for
 - Moses 2:1, Moses 6:63, Abraham 3:24–25
 - JST, John 1:1–3 2, Corinthians 5:6–7
 
+
+> Lesson Two: Third Principle
 ## Agency and the Fall of Adam and Eve (Page 63)
 Adam and Eve were the first of God’s children to come to the earth. God created Adam and Eve and placed them in the Garden of Eden. Adam and Eve were created in God’s image, with bodies of flesh and bones. While Adam and Eve were in the garden, they were still in God’s presence and could have lived forever. They lived in innocence, and God provided for their needs.
 
@@ -1226,6 +1236,8 @@ When first teaching this doctrine, do not teach everything you know about it. Ex
 
 - The Fall: 2 Nephi 2:25, Alma 12:22–34, Moses 4, Moses 5:10–12, Genesis 3
 
+
+> Lesson Two: Fourth Principle
 ## Our Life on Earth (Page 64)
 
 Life on earth is an opportunity and a blessing. Our purpose in this life is to have joy and prepare to return to God’s presence. In mortality we live in a condition where we are subject to both physical and spiritual death. God has a perfect, glorified, immortal body of flesh and bones. To become like God and return to His presence, we too must have a perfect, immortal body of flesh and bones. However, because of the Fall of Adam and Eve, every person on earth has an imperfect, mortal body and will eventually die. If not for the Savior Jesus Christ, death would end all hope for a future existence with Heavenly Father. Along with physical death, sin is a major obstacle that keeps us from becoming like our Father in Heaven and returning to His presence. In our mortal condition we often yield to temptation, break God’s commandments, and sin. During our life on earth each of us makes mistakes. Although it sometimes appears otherwise, sin always leads to unhappiness. Sin causes feelings of guilt and shame. Because of our sins, we are unable to return to live with Heavenly Father unless we are first forgiven and cleansed.
@@ -1243,6 +1255,8 @@ While we are in mortality, we have experiences that bring us happiness. We also 
 
 - The Unclean Cannot Be with God: 1 Nephi 10:20–21, Alma 41:10–11, 3 Nephi 27:19, Moses 6:57
 
+
+> Lesson Two: Fifth Principle
 ## The Atonement (page 65)
 
 Before the world was organized, our Heavenly Father chose Jesus Christ to be our Savior and Redeemer. The atoning sacrifice of Jesus Christ made it possible for us to overcome the effects of the Fall. All of the prophets since the world began have testified of Jesus Christ as our Redeemer.
@@ -1265,6 +1279,8 @@ As we rely on the Atonement of Jesus Christ, He can help us endure our trials, s
   
 - The Gospel—The Way: 2 Nephi 9:1–24, 2 Nephi 31, Alma 11:40, 3 Nephi 11:31–41, 3 Nephi 27, Moroni 7:27–28
 
+
+> Lesson Two: Sixth Principle
 ## The Spirit World (page 66)
 Even though Christ conquered physical death, all people must die, for death is part of the process by which we are transformed from mortality to immortality. At death our spirits go to the spirit world. Death does not change our personality or our desires for good or evil. Those who chose to obey God in this life live in a state of happiness, peace, and rest from troubles and care. Those who chose not to obey in this life and did not repent live in a state of unhappiness. In the spirit world the gospel is preached to those who did not obey the gospel or have the opportunity to hear it while on earth. We remain in the spirit world until we are resurrected.
 
@@ -1274,6 +1290,8 @@ Even though Christ conquered physical death, all people must die, for death is p
 
 - Death and the Spirit World: Alma 34:34, Alma 40:11–14, Ecclesiastes 12:7
 
+
+> Lesson Two: Seventh Principle
 ## The Resurrection, Judgment, and Immortality (Page 67)
 When our bodies and spirits are reunited through the resurrection, we will be brought into God’s presence to be judged. We will remember perfectly our righteousness and our guilt. If we have repented, we will receive mercy. We will be rewarded according to our works and our desires.
 
@@ -1282,6 +1300,8 @@ Through the resurrection all people will become immortal—they will live foreve
 ### Resurrection and Reincarnation (Page 67)
 Some people may confuse the doctrine of resurrection with the concept of reincarnation. The concept of reincarnation involves being born into the world again in a different form and is false doctrine. The doctrine of resurrection involves receiving an eternal reward of an immortal body of flesh and bone. This is true doctrine. Make sure those you teach understand clearly the doctrine of the resurrection.
 
+
+> Lesson Two: Eighth Principle
 ## Kingdoms of Glory (Page 67)
 During our mortal lives we make choices regarding good and evil. God rewards us according to our works and desires. Because God rewards everyone according to deeds done in the body, there are different kingdoms of glory to which we may be assigned after the Judgment. Those who have repented of their sins and received the ordinances of the gospel and kept the associated covenants will be cleansed by the Atonement of Christ. They will receive exaltation in the highest kingdom, also known as the celestial kingdom. They will live in God’s presence, become like Him, and receive a fulness of joy. They will live together for eternity with those of their family who qualify. In the scriptures this kingdom is compared to the glory or brightness of the sun.
 
@@ -1436,1647 +1456,561 @@ Following are terms that are frequently not understood. Make sure you explain th
 - Baptism by immersion, Forbidden fruit, Probation, Forgiven [of sin], Repent, Celestial, Garden of Eden, Sin, Cleansed [from sin], Kingdoms of glory, Spirit world, Creation, Opposition, Telestial, Eternal progression, Physical death, Terrestrial, Eternal life, Faith, Plan of salvation, Tree of knowledge of good and evil
 
 
-# Lesson 3: The Gospel of Jesus Christ (Page 74)
-
-
-Notes
-
-
-The Gospel of Jesus Christ
-==========================
-
-
-![see page 74](#)
-Your Purpose
-============
-
-
+> Lesson Three
+# The Gospel of Jesus Christ (Page 74)
 As you teach, prepare your investigators to meet the qualifications for baptism taught in Doctrine and Covenants 20:37 and in the baptismal interview questions. This is best accomplished by inviting your investigators to make and keep the commitments listed below.
 
-
-Baptismal Interview Questions
-=============================
-
-
-* Do you believe that God is our Eternal Father?
-
-
-* Do you believe that Jesus Christ is the Son of God, the Savior and Redeemer of the world?
-
-
-* Do you believe the Church and the gospel of Jesus Christ have been restored through the
-
-
-Prophet Joseph Smith?
-=====================
+**Baptismal Interview Questions**
+- Do you believe that God is our Eternal Father?
+- Do you believe that Jesus Christ is the Son of God, the Savior and Redeemer of the world?
+- Do you believe the Church and the gospel of Jesus Christ have been restored through the Prophet Joseph Smith?
+  
+**Commitments**
+- Will you continue to develop faith in Jesus Christ by continuing to learn about His gospel?
+- Will you repent and pray for forgiveness of sins?
+- Will you be baptized a member of The Church of Jesus Christ of Latter-day Saints on (date)?
+- Will you be confirmed and receive the gift of the Holy Ghost?
+- Will you attend church with us this Sunday?
+- May we set a time for our next visit?
+- Commandments from lesson 4 that you choose to include.
 
 
-Commitments
-===========
-
-
-* Will you continue to develop faith in Jesus Christ by continuing to learn about His gospel?
-
-
-* Will you repent and pray for forgiveness of sins?
-
-
-* Will you be baptized a member of The Church of Jesus Christ of Latter-day Saints on (date)?
-
-
-Will you be confirmed and receive the gift of the Holy Ghost?
-
-
-* Will you attend church with us this Sunday?
-
-
-* May we set a time for our next visit?
-
-
-* Commandments from lesson 4 that you choose to include.
-
-
-Through Christ We Can Be Cleansed from Sin
-==========================================
-
+> Lesson Three: First Principle
+## Through Christ We Can Be Cleansed from Sin (Page 74)
 
 God sent His Beloved Son, Jesus Christ, into the world so that all of God’s children would have the possibility of returning to live in His presence after they die. Only through the Savior’s grace and mercy can we become clean from sin so that we can live in our Heavenly Father’s presence. Becoming clean from sin is being healed spiritually (see 3 Nephi 9:13; 18:32).
 
-
 Because of Christ’s Atonement and Resurrection, all people will be brought back into the presence of the Lord to be judged according to their works and their desires (see 2 Nephi 9:10–16; Helaman 14:15–18; 3 Nephi 27:14–22; D&C 137:9). We will be judged according to the laws of justice and mercy.
 
-
-%
-60
 Justice is the unchanging law that brings consequences for actions—blessings for obedience to God’s commandments and penalties for disobedience. We all commit sin. Sin makes us unclean, and no unclean thing can live in God’s presence (see 1 Nephi 10:21; 3 Nephi 27:19; Moses 6:57).
 
-
-endeavor to keep all of His commandments when He stood in our place and suffered the penalty for our sins. This act is called the Atonement. Because of this selfless act, Christ can plead with the Father on our behalf. Heavenly Father can apply mercy, withhold punishment from us, and welcome us into His presence. Our Heavenly Father shows mercy when He forgives us of our sins and helps us return to dwell in His presence.
-
+The Savior satisfied the demands of justice for those who repent of their sins and endeavor to keep all of His commandments when He stood in our place and suffered the penalty for our sins. This act is called the Atonement. Because of this selfless act, Christ can plead with the Father on our behalf. Heavenly Father can apply mercy, withhold punishment from us, and welcome us into His presence. Our Heavenly Father shows mercy when He forgives us of our sins and helps us return to dwell in His presence.
 
 However, Jesus did not eliminate our personal responsibility. He forgives our sins when we accept Him, repent, and obey His commandments. Through the Atonement and living the gospel we become worthy to enter the presence of our Heavenly Father permanently. We must show that we accept Christ and that we have faith in Him by keeping His commandments and obeying the first principles and ordinances of the gospel.
 
-
-s
-=
-
-
-Sin
-===
-
-
+#### Sin (Page 75)
 The notion of “sin” means different things in different cultures. In some cultures it is closely associated with the concept of committing crime. In others it applies only if one is caught doing something wrong and thus brings shame to a family or community. Clarify that sin is disobedience to God’s commandments and results in becoming separated from God. God knows all that we do and think, and we displease Him when we sin. Do not discuss your past transgressions. Discourage or ask investigators not to discuss their transgressions.
 
+#### Scripture Study (Page 75)
 
-Scripture Study
-===============
-
-
-God Sent His Son
-
-
-Alma 11:40
+- God Sent His Son: Alma 11:40, John 3:16–17
+- Salvation through Christ: 2 Nephi 2:6–8, 2 Nephi 9:21–24, Alma 34:8–9, 14–16
+- Christ Is Our Advocate: D&C 45:3–5
+- Mercy and Justice: Mosiah 15:9, Alma 42:22–25
 
 
-Salvation through Christ
-
-
-2 Nephi 2:6–8 2 Nephi 9:21–24
-John 3:16–17
-
-
-Alma 34:8–9, 14–16
-
-
-Christ Is Our Advocate
-
-
-D&C 45:3–5
-
-
-Mercy and Justice
-
-
-Mosiah 15:9
-
-
-Alma 42:22–25
-
-
-3 Study and Teach
-=================
-
-
-Lesson 3: The Gospel of Jesus Christ
-
-
-Notes
-
-
-Faith in Jesus Christ
-=====================
-
+> Lesson Three: Second Principle
+## Faith in Jesus Christ (Page 75)
 
 The first principle of the gospel is faith in the Lord Jesus Christ. Having faith in Christ includes having a firm belief that He is the Only Begotten Son of God and the Savior and Redeemer of the world. We recognize that we can return to live with our Heavenly Father only by relying on His Son’s grace and mercy. When we have faith in Christ, we accept and apply His Atonement and His teachings. We trust Him and what He says. We know that He has the power to keep His promises. Heavenly Father blesses those who have faith to obey His Son.
 
+Faith in Christ leads to action. It leads to sincere and lasting repentance. Having faith causes us to try as hard as we can to learn about and become more like our Savior. We want to learn what His commandments are and then obey them. Even though we will still make mistakes, we show our love for Him by striving to keep His commandments and avoid sin.
 
-Faith in Christ leads to action. It leads to sincere and lasting repentance. Having faith causes us to try as
-
-
-![see page 75](#)
-61
-3 Study and Teach
-=================
-
-
-Lesson 3: The Gospel of Jesus Christ
-
-
-Notes
-
-
-hard as we can to learn about and become more like our Savior. We want to learn what His commandments are and then obey them. Even though we will still make mistakes, we show our love for Him by striving to keep His commandments and avoid sin.
-
-
-We want to show our faith by obeying Him. We pray in faith for strength to conquer temptation. We can also develop faith in a particular principle, such as the Word of Wisdom or tithing, by first believing in Jesus Christ strongly enough to obey His commandments. As we live a specific commandment, we learn the truthfulness of it by experience (see John 7:17). We also grow in faith by hearing the word of God (see Romans 10:17) and by reading the word of God (see Helaman 15:7–8).
-
+We believe in Christ, and we believe that He wants us to keep all His commandments. We want to show our faith by obeying Him. We pray in faith for strength to conquer temptation. We can also develop faith in a particular principle, such as the Word of Wisdom or tithing, by first believing in Jesus Christ strongly enough to obey His commandments. As we live a specific commandment, we learn the truthfulness of it by experience (see John 7:17). We also grow in faith by hearing the word of God (see Romans 10:17) and by reading the word of God (see Helaman 15:7–8).
 
 As we obey God, He blesses us. He gives us power to meet life’s challenges. He helps us change the desires of our hearts. Through our faith in Jesus Christ, He can heal us, both physically and spiritually.
 
+#### Scripture Study (Page 76)
 
-Scripture Study
-===============
-
-
-Faith, Power, and Salvation
-
-
-1 Nephi 7:12 2 Nephi 9:23 2 Nephi 25:23
-Moroni 7:33–34 Moroni 10:7
-==========================
+- Faith, Power, and Salvation: 1 Nephi 7:12, 2 Nephi 9:23, 2 Nephi 25:23, Moroni 7:33–34, Moroni 10:7
+- The Doctrine of Faith: Alma 32, Ephesians 2:8, Bible Dictionary, “Faith”
+- Examples of Faith: Ether 12, Hebrews 11
+- Works and Obedience: 1 Nephi 3:7, James 2:17–26, D&C 130:20–21
+- Faith unto Repentance: Alma 34
 
 
-The Doctrine of Faith
-
-
-Alma 32 Ephesians 2:8
-=====================
-
-
-Bible Dictionary, “Faith”
-
-
-Examples of Faith
-
-
-Ether 12
-
-
-Works and Obedience
-
-
-1 Nephi 3:7 D&C 130:20–21
-Faith unto Repentance
-
-
-Alma 34
-
-
-Hebrews 11
-
-
-James 2:17–26
-
-
-o
-=
-
-
-J
-=
-
-
-Repentance
-==========
-
-
+> Lesson Three: Third Principle
+## Repentance (Page 76)
 The second principle of the gospel is repentance. Our faith in Christ and our love for Him lead us to repent, or to change our thoughts, beliefs, and behaviors that are not in harmony with His will. Repentance includes forming a fresh view of God, ourselves, and the world. When we repent, we feel godly sorrow, then we stop doing things that are wrong and continue doing things that are right. Bringing our lives in line with God’s will through repentance is a central purpose of our lives. We can return to live with God the Father only through Christ’s mercy, and we receive Christ’s mercy only on condition of repentance.
-
 
 To repent, we recognize our sins and feel remorse, or godly sorrow. We confess our sins to God. We also confess very serious sins to God’s authorized Church leaders, who can help us repent. We ask God in prayer to forgive us. We do all we can to correct the problems our actions may have caused; this is called restitution. As we repent, our view of ourselves and the world changes. As we change, we recognize that we are children of God and that we need not continue making the same mistakes over and over. If we sincerely repent, we turn away from our sins and do them no more. We resist any desire to commit sin. Our desire to follow God grows stronger and deeper.
 
-
 Sincere repentance brings several results. We feel God’s forgiveness and His peace in our lives. Our guilt and sorrow are swept away. We feel the influence of the Spirit in greater abundance. And when we pass from this life, we will be more prepared to live with our Heavenly Father and His Son.
 
+Even after we have accepted Christ and repented of our sins, we may fall short and sin again. We should continually try to correct these transgressions. In addition, we should continually improve—to develop Christlike qualities, to grow in knowledge, and to serve more effectively. As we learn more about what the Savior expects of us, we will want to show our love by obeying Him. Thus, as we repent daily, we will find that our lives will change and improve. Our hearts and our behavior will become more Christlike. We will come to feel great joy in repenting daily.
 
-62
-again. We should continually try to correct these transgressions. In addition, we should continually improve—to develop Christlike qualities, to grow in knowledge, and to serve more effectively. As we learn more about what the Savior expects of us, we will want to show our love by obeying Him. Thus, as we repent daily, we will find that our lives will change and improve. Our hearts and our behavior will become more Christlike. We will come to feel great joy in repenting daily.
+#### Scripture Study (Page 77)
 
-
-Scripture Study
-===============
-
-
-We All Sin
+- We All Sin: Romans 3:23, 1 John 1:7–8
+- Repentance: Alma 34:8–17, D&C 58:42–43, D&C 61:2, 2 Corinthians 7:9–10, Bible Dictionary, “Repentance”
+- Redemption and Forgiveness: Helaman 5:10–11
+- Mercy Claims the Penitent: Alma 12:32–35, Alma 42:13, 21–24, D&C 18:10–13
 
 
-Romans 3:23
-
-
-Repentance
-
-
-Alma 34:8–17 D&C 58:42–43 D&C 61:2
-1 John 1:7–8
-
-
-2 Corinthians 7:9–10 Bible Dictionary, “Repentance”
-===================================================
-
-
-Redemption and Forgiveness
-
-
-Helaman 5:10–11
-
-
-Mercy Claims the Penitent
-
-
-Alma 12:32–35 Alma 42:13, 21–24
-D&C 18:10–13
-
-
-3 Study and Teach
-=================
-
-
-Lesson 3: The Gospel of Jesus Christ
-
-
-Notes
-
-
-Baptism, Our First Covenant
-===========================
-
-
+> Lesson Three: Fourth Principle
+## Baptism, Our First Covenant (Page 77)
 Faith in Jesus Christ and repentance prepare us for the ordinances of baptism and confirmation. An ordinance is a sacred ceremony or rite that shows that we have entered into a covenant with God.
 
+God has always required His children to make covenants. A covenant is a binding and solemn agreement between God and man. God promises to bless us, and we promise to obey Him. God sets the terms of gospel covenants, which we either accept or reject. Keeping covenants brings blessings in this life and exaltation in the life to come.
 
-covenants. A covenant is a binding and solemn agreement between God and man. God promises to bless us, and we promise to obey Him. God sets the terms of gospel covenants, which we either accept or reject. Keeping covenants brings blessings in this life and exaltation in the life to come.
-
-
-![see page 77](#)
-honor our commitments to God. To keep our covenants, we must give up activities or interests that prevent us from honoring those covenants. For example, we give up shopping and recreational pursuits on Sunday so we can keep the Sabbath day holy. We should desire to receive worthily the covenants that God offers us and then strive to keep them. Our covenants remind us to repent every day of our lives. By keeping the commandments and serving others we receive and retain a remission of our sins.
-
+Covenants place us under a strong obligation to honor our commitments to God. To keep our covenants, we must give up activities or interests that prevent us from honoring those covenants. For example, we give up shopping and recreational pursuits on Sunday so we can keep the Sabbath day holy. We should desire to receive worthily the covenants that God offers us and then strive to keep them. Our covenants remind us to repent every day of our lives. By keeping the commandments and serving others we receive and retain a remission of our sins.
 
 Covenants are usually made by means of sacred ordinances, such as baptism. These ordinances are administered by priesthood authority. Through the ordinance of baptism, for example, we covenant to take upon ourselves the name of Jesus Christ, always remember Him, and keep His commandments. As we keep our part of the covenant, God promises the constant companionship of the Holy Ghost, a remission of our sins, and being born again.
 
-
-63
-3 Study and Teach
-=================
-
-
-Lesson 3: The Gospel of Jesus Christ
-
-
-Notes
-
-
 Through sacred ordinances, such as baptism and confirmation, we learn about and experience God’s power (see D&C 84:20). Jesus taught that we must be baptized by immersion for the remission, or forgiveness, of our sins. Baptism is an essential ordinance of salvation. No person can enter the kingdom of God without being baptized. Christ set the example for us by being baptized.
-
 
 Baptism by immersion is a symbol of the death, burial, and resurrection of the Savior. In a similar way, it represents the end of our old life of sin and a commitment to live a new life as a disciple of Christ. The Savior taught that baptism is a rebirth. When we are baptized we begin the process of being born again and become spiritual sons and daughters of Christ (see Mosiah 5:7–8; Romans 8:14–17).
 
-
 We must be baptized to become members of the restored Church, The Church of Jesus Christ of Latter-day Saints, and to eventually enter the kingdom of heaven. This ordinance is a law of God and must be performed by His authority. A bishop or mission president must give a priesthood holder permission to perform a baptism or confirmation.
-
 
 Little children do not need to be baptized and are redeemed through the mercy of Jesus Christ (see Moroni 8:4–24). They are not to be baptized until they reach the age of accountability, which is eight years of age (see D&C 68:27).
 
-
 Before baptism we show our willingness to enter a covenant to keep all the command- ments for the rest of our lives. After baptism we show our faith by keeping our covenants. We also regularly renew the covenants we make when baptized by partaking of the sacrament. Partaking of the sacrament weekly is a commandment. It helps us remain worthy to have the Spirit with us always. It is a weekly reminder of our covenants. Jesus Christ introduced this ordinance to His Apostles just before His Atonement. He restored it through the Prophet Joseph Smith. The Savior commanded that priesthood holders should administer the sacrament in remembrance of His body and His blood, which was shed for us. By partaking of the sacrament worthily we promise always to remember His sacrifice, we renew our promises, and we receive anew the promise that the Spirit will always be with us.
 
-
-Before Baptism
-==============
-
-
+#### Before Baptism (Page 78)
 “Ensure that [investigators] have developed faith in Christ, repented of transgressions, and made sufficient changes in their lives to qualify as commanded in Doctrine and Covenants 20:37. Investigators should live the principles of moral worthiness, the Word of Wisdom, and commit to pay tithing. If missionaries feel additional preparation is needed, they should postpone baptism until the investigator meets the standard.
 
+*“Before baptism each investigator should receive all the missionary [lessons], meet the bishop or branch president, and attend several sacrament meetings”* (“Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002).
 
-“Before baptism each investigator should receive all the missionary [lessons], meet the bishop or branch president, and attend several sacrament meetings” (“Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002).
-
-
-64
-Scripture Study
-
-
-Christ’s Example
-================
-
-
-2 Nephi 31:4–18
+#### Scripture Study (Page 79)
+- Christ’s Example: 2 Nephi 31:4–18, Matthew 3:13–17
+- The Baptismal Covenant: Mosiah 5:8–10, Mosiah 18:8–10, D&C 20:37
+- Qualifications for Baptism: 2 Nephi 9:23, Mosiah 18:8–10, Alma 7:14–15, 3 Nephi 11:23–27, Moroni 6:1–4, D&C 20:37, Acts 2:37–39
+- The Lord Institutes the Sacrament: 3 Nephi 18:1–18, Luke 22:15–20
+- Promised Blessings of Baptism: Mosiah 4:11–12, 26, Moroni 8:25–26, John 3:5, Romans 6:4
+- The Sacrament Prayers: Moroni 4 and 5, D&C 20:75–79
+- Partaking of the Sacrament: D&C 27:2, 1 Corinthians 11:23–29
+- Necessity for Authority: D&C 22, Hebrews 5:4
 
 
-Matthew 3:13–17
-
-
-The Baptismal Covenant
-======================
-
-
-Mosiah 5:8–10 Mosiah 18:8–10
-D&C 20:37
-
-
-Qualifications for Baptism
-
-
-2 Nephi 9:23 Mosiah 18:8–10 Alma 7:14–15 3 Nephi 11:23–27
-Moroni 6:1–4 D&C 20:37 Acts 2:37–39
-The Lord Institutes the Sacrament
-=================================
-
-
-3 Nephi 18:1–18
-
-
-Luke 22:15–20
-
-
-Promised Blessings of Baptism
-=============================
-
-
-Mosiah 4:11–12, 26 Moroni 8:25–26
-John 3:5 Romans 6:4
-===================
-
-
-The Sacrament Prayers
-
-
-Moroni 4 and 5
-
-
-D&C 20:75–79
-
-
-Partaking of the Sacrament
-
-
-D&C 27:2
-
-
-1 Corinthians 11:23–29
-
-
-Necessity for Authority
-
-
-D&C 22
-
-
-Hebrews 5:4
-
-
-3 Study and Teach
-=================
-
-
-Lesson 3: The Gospel of Jesus Christ
-
-
-Notes
-
-
-The Gift of the Holy Ghost
-==========================
-
-
-Jesus taught that we must be baptized of water and also of the Spirit. Baptism by water
-
-
-must be followed by baptism of the Spirit or it is incomplete. Only when we receive baptism and the gift of the Holy Ghost can we receive a remission of our sins and become completely spiritually reborn. We then begin a new spiritual life as disciples of Christ. After a person is baptized by water, one or more authorized priesthood holders lay their hands upon the person’s head and confirm the person a member of The Church of Jesus Christ of Latter-day Saints. They then confer the gift of the Holy Ghost.
-
+> Lesson Three: Fifth Principle
+## The Gift of the Holy Ghost (Page 79)
+Jesus taught that we must be baptized of water and also of the Spirit. Baptism by water must be followed by baptism of the Spirit or it is incomplete. Only when we receive baptism and the gift of the Holy Ghost can we receive a remission of our sins and become completely spiritually reborn. We then begin a new spiritual life as disciples of Christ. After a person is baptized by water, one or more authorized priesthood holders lay their hands upon the person’s head and confirm the person a member of The Church of Jesus Christ of Latter-day Saints. They then confer the gift of the Holy Ghost.
 
 companionship throughout their lives. The Holy Ghost has a sanctifying, cleansing effect upon us. The Holy Ghost testifies of Christ and helps us recognize the truth. He provides spiritual strength and helps us do what is right. He comforts us during times of trial or sorrow. He warns us of spiritual or physical danger. The Holy Ghost provides the power by which we teach and learn. The gift of the Holy Ghost is one of our Heavenly Father’s most precious gifts. Through the power of the Holy Ghost we can feel God’s love and direction for us. This gift is a foretaste of eternal joy and a promise of eternal life.
 
-
 The priesthood authority needed to perform this ordinance, which was lost centuries ago through apostasy, was restored through the Prophet Joseph Smith. Only through membership in the Church can one receive the gift of the Holy Ghost. This authority makes the Church different from any other religion in the world. By the Lord’s own declaration, it is “the only true and living church upon the face of the whole earth” (D&C 1:30).
 
-
-Guidance from the Holy Ghost
-============================
-
-
+#### Guidance from the Holy Ghost (Page 79)
 Explain to those whom you are teaching that Satan opposes God and entices people to commit sin. To retain the good feelings they have had while meeting the missionaries, they should read the Book of Mormon, pray, attend church, and obey the commandments. Explain that having the continued guidance of the Holy Ghost is one of the benefits of being baptized and confirmed.
 
-
-65
-3 Study and Teach
-=================
-
-
-Lesson 3: The Gospel of Jesus Christ
+#### Scripture Study (Page 80)
+- Nature of the Holy Ghost: D&C 130:22–23, John 3:1–8, Galatians 5:22–23, Bible Dictionary, “Earnest” and “Holy Ghost”
+- Blessings and Influence from the Holy Ghost: 2 Nephi 32:1–5, 2 Nephi 33:1–2, Moses 6:61, John 14:26, Topical Guide, “Holy Ghost, Comforter” and “Holy Ghost, Gifts of”
+- Importance of the Gift of the Holy Ghost: 2 Nephi 31:11–12, 18, 21, 3 Nephi 18:36–37, 3 Nephi 19:13, 3 Nephi 27:19–20, D&C 19:31, D&C 33:15, Acts 19:1–6
 
 
-Notes
-
-
-Scripture Study
-===============
-
-
-Nature of the Holy Ghost
-========================
-
-
-D&C 130:22–23 John 3:1–8
-Galatians 5:22–23
-
-
-Blessings and Influence from the Holy Ghost
-
-
-2 Nephi 32:1–5 2 Nephi 33:1–2
-Moses 6:61 John 14:26
-=====================
-
-
-Importance of the Gift of the Holy Ghost
-========================================
-
-
-2 Nephi 31:11–12, 18, 21 3 Nephi 18:36–37 3 Nephi 19:13
-3 Nephi 27:19–20 D&C 19:31
-Bible Dictionary,
-
-
-“Earnest” and “Holy Ghost”
-
-
-Topical Guide, “Holy Ghost, Comforter” and “Holy Ghost, Gifts of”
-
-
-D&C 33:15 Acts 19:1–6
-66
-Endure to the End
-=================
-
+> Lesson Three: Sixth Principle
+## Endure to the End (Page 80)
 
 Once we have entered the strait and narrow path by our faith in Jesus Christ, repentance, and the ordinances of baptism and confirmation, we must exert every effort to stay on the path. We do so by continually exercising faith in Jesus Christ, repenting, making commitments, and following the Spirit.
 
-
 Once we have been forgiven of our sins, we should try every day to remain free from sin so that we can always have the Holy Ghost with us. In the covenant of baptism, we promise our Father in Heaven that we will obey His commandments for the rest of our lives. If we fall short, we must repent in order to retain the blessings of the covenant. We promise to do good works, serve others, and follow the Savior’s example. In the scriptures this lifelong commitment is often called “enduring to the end.”
-
 
 By following the gospel path, we can draw closer to God, conquer temptation and sin, and enjoy the gift of the Holy Ghost more abundantly. As we patiently, faithfully, and consistently follow this path throughout our lives, we will qualify for eternal life.
 
+Faith in Christ; repentance; making, renewing, and keeping covenants; and being cleansed by the Spirit become a pattern of living. Our actions in daily life are shaped and governed by these principles. Peace and joy come by following this way, and we gradually grow in Christlike attributes. Eventually, as we follow this way and “press forward with a steadfastness in Christ . . . and endure to the end,” we are promised, “Ye shall have eternal life” (2 Nephi 31:20).
 
-cleansed by the Spirit become a pattern of living. Our actions in daily life are shaped and governed by these principles. Peace and joy come by following this way, and we gradually grow in Christlike attributes. Eventually, as we follow this way and “press forward with a steadfastness in Christ . . . and endure to the end,” we are promised, “Ye shall have eternal life” (2 Nephi 31:20).
+#### Scripture Study (Page 80)
 
+- Endure to the End: 2 Nephi 9:24, 2 Nephi 31:14–20, 3 Nephi 27:16–17, Matthew 10:22
+- Blessings for Those Who Endure: 1 Nephi 13:37, 3 Nephi 15:9, D&C 14:7
 
-Scripture Study
-===============
-
-
-Endure to the End
-
-
-2 Nephi 9:24 2 Nephi 31:14–20
-3 Nephi 27:16–17
-
-
-Matthew 10:22
-
-
-Blessings for Those Who Endure
-==============================
-
-
-1 Nephi 13:37
-
-
-3 Nephi 15:9
-
-
-D&C 14:7
-
-
-Invitation to Be Baptized
-=========================
-
+#### Invitation to Be Baptized (Page 81)
 
 The invitation to be baptized and confirmed should be specific and direct: “Will you follow the example of Jesus Christ by being baptized by someone holding the priesthood authority of God? We will be holding a baptismal service on [date]. Will you prepare yourself to be baptized on that date?”
 
-
-/
-Ideas for Teaching
-==================
-
-
+## Ideas for Teaching
 This section has ideas for you to use in preparing for and teaching this lesson. Prayerfully follow the Spirit as you decide how to use these ideas. Add the ideas you select to your lesson plan. Keep in mind that these ideas are suggestions—not requirements—to help you meet the needs of those you teach.
 
-
-3 Study and Teach
-=================
-
-
-Lesson 3: The Gospel of Jesus Christ
-
-
-Notes
-
-
-Short Lesson Plan (3–5 minutes)
-===============================
-
-
+### Short Lesson Plan (3–5 minutes) (Page 81)
 The gospel of Jesus Christ is the only way to eternal life. The first principles and ordinances of His gospel are faith in Jesus Christ, repentance, baptism by immersion for the remission of sins, and the gift of the Holy Ghost. We must then endure to the end. By applying these principles throughout our lives, we follow the example of the Savior, learn to live His commandments, and develop Christlike attributes. We can be forgiven of our sins, and we will be able to return to live in the presence of our Father in Heaven.
+- Through Christ We Can Be Cleansed from Sin
+- Faith in Jesus Christ
+- Repentance
+- Baptism, Our First Covenant
+- The Gift of the Holy Ghost
+- Endure to the End
 
+**Commitments**
+- Will you continue to develop faith in Jesus Christ by continuing to learn about His gospel?
+- Will you repent and pray for forgiveness of sins?
+- Will you be baptized a member of The Church of Jesus Christ of Latter-day Saints on (date)? Will you be confirmed and receive the gift of the Holy Ghost?
+- Will you attend church with us this Sunday?
+- May we set a time for our next visit?
+- Commandments from lesson 4 that you choose to include.
 
-• Through Christ We Can Be Cleansed from Sin
-
-
-* Faith in Jesus Christ
-
-
-* Repentance
-
-
-• Baptism, Our First Covenant
-
-
-• The Gift of the Holy Ghost
-
-
-* Endure to the End
-
-
-Commitments
-===========
-
-
-• Will you continue to develop faith in Jesus Christ by continuing to learn about His gospel?
-
-
-• Will you repent and pray for forgiveness of sins?
-
-
-• Will you be baptized a member of The Church of Jesus Christ of Latter-day Saints on (date)? Will you be confirmed and receive the gift of the Holy Ghost?
-
-
-• Will you attend church with us this Sunday?
-
-
-• May we set a time for our next visit?
-
-
-• Commandments from lesson 4 that you choose to include.
-
-
-Medium Lesson Plan (10–15 minutes)
-==================================
-
+### Medium Lesson Plan (10–15 minutes) (Page 81)
 
 Our message is one of faith and hope. We love and worship Jesus Christ. He is central to God’s plan for our happiness. Christ’s atoning sacrifice makes it possible for us to have eternal life in the presence of God. As we live His gospel, He will mercifully forgive our sins. He will heal us and replace guilt and shame with peace and happiness in this life.
 
-
-The gospel of Jesus Christ is simple. It begins with faith in Christ. We believe in Him, trust Him, and depend on Him. Such faith leads us to repent—to stop doing things that are wrong and continue doing things that are right. Our faith in Him also makes us want to show our love by keeping His commandments, including baptism. After baptism, He promises to give us the gift of the Holy Ghost. The Holy Ghost will guide us, comfort us, and help us know the truth. We can know in our hearts
-
-
-)
-~
-67
-3 Study and Teach
-=================
-
-
-Lesson 3: The Gospel of Jesus Christ
-
-
-Notes
-
-
-![see page 82](#)
-and our minds when the Holy Ghost is with us. We will have feelings of peace, love, and joy. We will want to serve others. We will strive throughout our lives to please the Lord.
-
+The gospel of Jesus Christ is simple. It begins with faith in Christ. We believe in Him, trust Him, and depend on Him. Such faith leads us to repent—to stop doing things that are wrong and continue doing things that are right. Our faith in Him also makes us want to show our love by keeping His commandments, including baptism. After baptism, He promises to give us the gift of the Holy Ghost. The Holy Ghost will guide us, comfort us, and help us know the truth. We can know in our hearts and our minds when the Holy Ghost is with us. We will have feelings of peace, love, and joy. We will want to serve others. We will strive throughout our lives to please the Lord.
 
 Jesus Christ has restored His gospel through a latter-day prophet. We learn about the gospel in the Book of Mormon, which you can read, ponder, and pray about. God will tell you by the power of the Holy Ghost that it is true. As you come to know it is true, you will want to repent and be baptized so that you may receive a remission of your sins and the gift of the Holy Ghost.
 
-
-Commitments
-===========
-
-
-• Will you continue to develop faith in Jesus Christ by continuing to learn about His gospel?
-
-
-• Will you repent and pray for forgiveness of sins?
-
-
-• Will you be baptized a member of The Church of Jesus Christ of Latter-day Saints on (date)? Will you be confirmed and receive the gift of the Holy Ghost?
-
-
-• Will you attend church with us this Sunday?
-
-
-• May we set a time for our next visit?
-
-
-• Commandments from lesson 4 that you choose to include.
-
-
-Full Lesson Plan (30–45 minutes)
-================================
-
-
-• Through Christ We Can Be Cleansed from Sin
-
-
-– God sent His Beloved Son, Jesus Christ, into the world (see John 3:16–17).
-
-
-– Only through Christ’s grace and mercy can we become clean from sin (see 2 Nephi 2:6–8).
-
-
-– We are responsible to accept Christ, repent, and obey.
-
-
-* Faith in Jesus Christ
-
-
-– We are to believe in Christ as the Savior of the world.
-
-
-– He wants us to accept and follow His teachings.
-
-
-– We receive blessings when we obey (see D&C 130:20–21).
-
-
-* Repentance
-
-
-– Faith in Christ leads to repentance (see Alma 34).
-
-
-– We feel godly sorrow (see 2 Corinthians 7:9–10).
-
-
-– We stop doing things that are wrong and continue doing things that are right.
-
-
-– We confess our sins, and we confess serious sins to Church leaders, who can help us repent (see D&C 58:43).
-
-
-– We receive forgiveness; guilt and sorrow are replaced by peace (see Alma 36:17–21).
-
-
-68
-3 Study and Teach
-
-
-Lesson 3: The Gospel of Jesus Christ
-
-
-• Baptism, Our First Covenant
-
-
-– An ordinance is a sacred rite by which we make covenants with God.
-
-
-– A covenant is a solemn agreement between God and His children.
-
-
-– Keeping covenants brings blessings.
-
-
-– We are baptized by immersion for the remission of sins (see Articles of Faith 1:4).
-
-
-– When we are baptized we begin a new life of commitment to Christ (see Romans 6:3–8).
-
-
-– Baptism must be performed by one holding priesthood authority.
-
-
-– We renew our covenants by partaking of the sacrament weekly (D&C 20:77, 79).
-
-
-• The Gift of the Holy Ghost
-============================
-
-
-– Baptism by immersion is followed by baptism of the Spirit; the two are inseparable.
-
-
-– Priesthood holders confer the gift of the Holy Ghost by the laying on of hands.
-
-
-– The Holy Ghost teaches us, cleanses us, comforts us, testifies of the truth, warns us, and directs us (see 2 Nephi 32:1–5; Mosiah 5:1–6; Moroni 10:5; D&C 36:2).
-
-
-* Endure to the End
-
-
-– We must continue on the path once we have been baptized and confirmed.
-
-
-– We do our best to remain free of sin so that we can enjoy the gift of the Holy Ghost.
-
-
-– By faithfully following the gospel path of faith, repentance, making and keeping covenants, and receiving the Holy Ghost, we can qualify for eternal life (see 2 Nephi 31:14–20).
-
-
-– We must continually repent throughout our lives (see D&C 19:15–20).
-
-
-Commitments
-===========
-
-
-• Will you continue to develop faith in Jesus Christ by continuing to learn about His gospel?
-
-
-• Will you repent and pray for forgiveness of sins?
-
-
-• Will you be baptized a member of The Church of Jesus Christ of Latter-day Saints on (date)? Will you be confirmed and receive the gift of the Holy Ghost?
-
-
-• Will you attend church with us this Sunday?
-
-
-• May we set a time for our next visit?
-
-
-• Commandments from lesson 4 that you choose to include.
-
-
-/
-![see page 83](#)
-Notes
-
-
-69
-3 Study and Teach
-=================
-
-
-Lesson 3: The Gospel of Jesus Christ
-
-
-Notes
-
-
-Questions to Ask after You Teach
-================================
-
-
-• What questions do you have about what we have taught?
-
-
-• What does it mean to repent?
-
-
-• Why is the gift of the Holy Ghost an essential part of the gospel?
-
-
-• Why is it important for you to be baptized and receive the gift of the Holy Ghost?
-
-
-• Was there anything about our Church meetings that you did not understand?
-
-
-• What did you enjoy about our Church meetings?
-
-
-Key Definitions
-===============
-
-
-• Confirmation: The laying on of hands by those holding the Melchizedek Priesthood in order to become a member of the Church and to confer the gift of the Holy Ghost.
-
-
-• Covenant: An agreement between God and His children. We do not act as equals in the agreement. God gives the conditions for the covenant, and we agree to do what He asks us to do. God then promises us certain blessings for our obedience. We receive ordinances by covenant. When we make such covenants, we promise to honor them. For example, members of the Church covenant with the Lord at baptism and renew those covenants by partaking of the sacrament. We make further covenants in the temple. The Lord’s people are a covenant people. We are greatly blessed as we keep our covenants with the Lord.
-
-
-• Endure to the End: To remain true to the commandments of God despite temptation, opposition, and adversity throughout life.
-
-
-• Eternal Life: To live forever as families in God’s presence (see D&C 132:19–20). Eternal life is God's greatest gift to man.
-
-
-• Gospel: God’s plan of salvation, made possible through the Atonement of Jesus Christ. The gospel includes the eternal truths or laws, covenants, and ordinances needed for mankind to return to the presence of God.
-
-
-• Grace: The enabling power from Jesus Christ that allows us to obtain blessings in this life and to gain eternal life and exaltation after we have exercised faith, repented, and given our best effort to keep the commandments. Such divine help or strength is given through the mercy and love of Jesus Christ. We all need divine grace because of Adam’s Fall and also because of our weaknesses.
-
-
-• Mercy: The spirit of compassion, tenderness, and forgiveness. Mercy is one of the attributes of God. Jesus Christ offers mercy to us through His atoning sacrifice on conditions of repentance.
-
-
-• Restitution: The return of something that has been taken away or lost. For example, the Restoration of the goepel is called a restitution (see Acts 3:19–21). The word restoration also refers to the restoration of the body (see Alma 41:10–15).
-
-
-Other Terms That May Need Further Definition for Those You Teach
-================================================================
-
-
-* Clean from sin
-
-
-* Prayer
-
-
-* Temptation
-
-
-* Confession
-
-
-* Sacrament
-
-
-* Forgiveness
-
-
-• Strait and narrow path
-
-
-70
-The Commandments Preparing for Baptism and Confirmation
-=======================================================
-
-
-![see page 85](#)
-Teaching This Lesson
-====================
-
+**Commitments**
+- Will you continue to develop faith in Jesus Christ by continuing to learn about His gospel?
+- Will you repent and pray for forgiveness of sins?
+- Will you be baptized a member of The Church of Jesus Christ of Latter-day Saints on (date)? Will you be confirmed and receive the gift of the Holy Ghost?
+- Will you attend church with us this Sunday?
+- May we set a time for our next visit?
+- Commandments from lesson 4 that you choose to include.
+
+### Full Lesson Plan (30–45 minutes) (Page 82)
+- Through Christ We Can Be Cleansed from Sin
+  - God sent His Beloved Son, Jesus Christ, into the world (see John 3:16–17).
+  – Only through Christ’s grace and mercy can we become clean from sin (see 2 Nephi 2:6–8).
+  – We are responsible to accept Christ, repent, and obey.
+
+- Faith in Jesus Christ
+  – We are to believe in Christ as the Savior of the world.
+  – He wants us to accept and follow His teachings.
+  – We receive blessings when we obey (see D&C 130:20–21).
+
+- Repentance
+  – Faith in Christ leads to repentance (see Alma 34).
+  – We feel godly sorrow (see 2 Corinthians 7:9–10).
+  – We stop doing things that are wrong and continue doing things that are right.
+  – We confess our sins, and we confess serious sins to Church leaders, who can help us repent (see D&C 58:43).
+  – We receive forgiveness; guilt and sorrow are replaced by peace (see Alma 36:17–21).
+
+- Baptism, Our First Covenant
+  – An ordinance is a sacred rite by which we make covenants with God.
+  – A covenant is a solemn agreement between God and His children.
+  – Keeping covenants brings blessings.
+  – We are baptized by immersion for the remission of sins (see Articles of Faith 1:4).
+  - When we are baptized we begin a new life of commitment to Christ (see Romans 6:3–8).
+  – Baptism must be performed by one holding priesthood authority.
+  – We renew our covenants by partaking of the sacrament weekly (D&C 20:77, 79).
+
+- The Gift of the Holy Ghost
+  – Baptism by immersion is followed by baptism of the Spirit; the two are inseparable.
+  – Priesthood holders confer the gift of the Holy Ghost by the laying on of hands.
+  – The Holy Ghost teaches us, cleanses us, comforts us, testifies of the truth, warns us, and directs us (see 2 Nephi 32:1–5; Mosiah 5:1–6; Moroni 10:5; D&C 36:2).
+
+- Endure to the End
+  – We must continue on the path once we have been baptized and confirmed.
+  – We do our best to remain free of sin so that we can enjoy the gift of the Holy Ghost.
+  – By faithfully following the gospel path of faith, repentance, making and keeping covenants, and receiving the Holy Ghost, we can qualify for eternal life (see 2 Nephi 31:14–20).
+  – We must continually repent throughout our lives (see D&C 19:15–20).
+
+**Commitments**
+- Will you continue to develop faith in Jesus Christ by continuing to learn about His gospel?
+- Will you repent and pray for forgiveness of sins?
+- Will you be baptized a member of The Church of Jesus Christ of Latter-day Saints on (date)? Will you be confirmed and receive the gift of the Holy Ghost?
+- Will you attend church with us this Sunday?
+- May we set a time for our next visit?
+- Commandments from lesson 4 that you choose to include.
+
+### Questions to Ask after You Teach (Page 84)
+- What questions do you have about what we have taught?
+- What does it mean to repent?
+- Why is the gift of the Holy Ghost an essential part of the gospel?
+- Why is it important for you to be baptized and receive the gift of the Holy Ghost?
+- Was there anything about our Church meetings that you did not understand?
+- What did you enjoy about our Church meetings?
+
+### Key Definitions (Page 84)
+- **Confirmation:** The laying on of hands by those holding the Melchizedek Priesthood in order to become a member of the Church and to confer the gift of the Holy Ghost.
+
+- **Covenant:** An agreement between God and His children. We do not act as equals in the agreement. God gives the conditions for the covenant, and we agree to do what He asks us to do. God then promises us certain blessings for our obedience. We receive ordinances by covenant. When we make such covenants, we promise to honor them. For example, members of the Church covenant with the Lord at baptism and renew those covenants by partaking of the sacrament. We make further covenants in the temple. The Lord’s people are a covenant people. We are greatly blessed as we keep our covenants with the Lord.
+
+- **Endure to the End:** To remain true to the commandments of God despite temptation, opposition, and adversity throughout life.
+
+- **Eternal Life:** To live forever as families in God’s presence (see D&C 132:19–20). Eternal life is God's greatest gift to man.
+
+- **Gospel:** God’s plan of salvation, made possible through the Atonement of Jesus Christ. The gospel includes the eternal truths or laws, covenants, and ordinances needed for mankind to return to the presence of God.
+
+- **Grace:** The enabling power from Jesus Christ that allows us to obtain blessings in this life and to gain eternal life and exaltation after we have exercised faith, repented, and given our best effort to keep the commandments. Such divine help or strength is given through the mercy and love of Jesus Christ. We all need divine grace because of Adam’s Fall and also because of our weaknesses.
+
+- **Mercy:** The spirit of compassion, tenderness, and forgiveness. Mercy is one of the attributes of God. Jesus Christ offers mercy to us through His atoning sacrifice on conditions of repentance.
+
+- **Restitution:** The return of something that has been taken away or lost. For example, the Restoration of the goepel is called a restitution (see Acts 3:19–21). The word restoration also refers to the restoration of the body (see Alma 41:10–15).
+
+
+### Other Terms That May Need Further Definition for Those You Teach (Page 84)
+- Clean from sin
+- Prayer
+- Temptation
+- Confession
+- Sacrament
+- Forgiveness
+- Strait and narrow path
+
+
+> Lesson Four
+# The Commandments: Preparing for Baptism and Confirmation (Page 85)
 
 There are many ways to teach the commandments found in this lesson. For example, you might teach a few of the commandments from this lesson as part of the first three lessons, or you might teach several commandments as a single lesson. What you do should be determined by the needs of the investigators and direction from the Spirit.
 
+## Prepare to Teach (Page 85)
+Your purpose in teaching the commandments is to help people live the gospel by exercising faith in Jesus Christ and repenting as they prepare for baptism and confirmation. By obeying the commandments, people will grow in their testimony of the gospel, show that they have “broken hearts and contrite spirits,” and begin to repent of all their sins (see Moroni 6:1–4; D&C 20:37).
 
-3 Study and Teach
-=================
+This lesson is organized differently from the first three. The first three lessons explain the doctrinal foundation for the gospel of Jesus Christ. This lesson explains specific commandments God has given that help us apply gospel principles in our lives. There are many ways to teach this lesson. The approach you take should be determined by the needs of the investigators and direction from the Spirit. Constantly think and pray about how to help investigators live the gospel. Ideas include:
 
+- Teaching one or more commandments as part of the first three lessons. When doing so, consider the principle taught in Alma 12:32: “God gave unto them commandments, after having made known unto them the plan of redemption” (italics added). Certain commandments, such as prayer and scripture study, might be taught best as part of the first three lessons. Other commandments might be best taught after you have laid the doctrinal foundation of the gospel found in the first three lessons.
 
-Lesson 4: The Commandments
+- Teaching two or three of the commandments as a single lesson.
 
+- Teaching a single commandment as a lesson.
 
-Notes
-=====
-
-
-Prepare to Teach
-================
-
-
-exercising faith in Jesus Christ and repenting as they prepare for baptism and confirmation. By obeying the commandments, people will grow in their testimony of the gospel, show that they have “broken hearts and contrite spirits,” and begin to repent of all their sins (see Moroni 6:1–4; D&C 20:37).
-
-
-This lesson is organized differently from the first three. The first three lessons explain
-
-
-the doctrinal foundation for the gospel of Jesus Christ. This lesson explains specific commandments God has given that help us apply gospel principles in our lives. There are many ways to teach this lesson. The approach you take should be
-
-
-determined by the needs of the investigators and direction from the Spirit. Constantly think and pray about how to help investigators live the gospel. Ideas include:
-
-
-• Teaching one or more commandments as part of the first three lessons. When doing so, consider the principle taught in Alma 12:32: “God gave unto them commandments, after having made known unto them the plan of redemption” (italics added). Certain commandments, such as prayer and scripture study, might be taught best as part of the first three lessons. Other commandments might be best taught after you have laid the doctrinal foundation of the gospel found in the first three lessons.
-
-
-• Teaching two or three of the commandments as a single lesson.
-
-
-• Teaching a single commandment as a lesson.
-
-
-71
-3 Study and Teach
-=================
-
-
-Lesson 4: The Commandments
-==========================
-
-
-Notes
-=====
-
-
-• Teaching the commandments in the context of the gospel. Briefly review the lesson on the gospel of Jesus Christ before teaching one or more of the commandments. As you do so, you can help investigators see how the commandments fit into the larger picture of exercising faith in the Savior and repenting in preparation for baptism and confirmation. Their lives can be blessed as they see the gospel of Jesus Christ as a pattern for living.
-
+- Teaching the commandments in the context of the gospel. Briefly review the lesson on the gospel of Jesus Christ before teaching one or more of the commandments. As you do so, you can help investigators see how the commandments fit into the larger picture of exercising faith in the Savior and repenting in preparation for baptism and confirmation. Their lives can be blessed as they see the gospel of Jesus Christ as a pattern for living.
 
 You may be able to teach some investigators in a few visits; others may require more visits. You have the flexibility to teach the lessons in whatever way best helps people fully prepare for their baptism and confirmation. Your purpose is not only to cover the material; it is to help others come unto Christ through faith in Jesus Christ, repentance, baptism, receiving the gift of the Holy Ghost, and enduring to the end.
 
+Rarely should a lesson go over 45 minutes. You may find that time may only allow shorter teaching visits. In this case, you may need frequent, short teaching visits covering smaller portions of material. There are many ways you may approach teaching this lesson. Which commandment you teach, when you teach it, and how much time you give to it is best determined by the needs of the investigators and the direction of the Spirit.
 
-Rarely should a lesson go over 45 minutes. You may find that time may only allow shorter teaching visits. In this case, you may need frequent, short teaching visits covering smaller portions of material.
-
-
-There are many ways you may approach teaching this lesson. Which commandment you teach, when you teach it, and how much time you give to it is best determined by the needs of the investigators and the direction of the Spirit.
-
-
-Learn about the Commandments and Commitments
-============================================
-
-
+## Learn about the Commandments and Commitments (Page 86)
 As you study this lesson, follow the pattern below:
 
+- Study the section that describes the commandment and write a simple lesson plan with three to five main points.
+- Teach a two- or three-minute version to your companion. Practice how you will extend each commitment invitation and how you will resolve concerns.
+- Discuss ways to follow through on each commitment that investigators have accepted.
 
-• Study the section that describes the commandment and write a simple lesson plan with three to five main points.
+## Obedience (Page 86)
+God gives us commandments for our benefit. They are instructions from a loving Father in Heaven to help us have happy lives. He also gives us agency, or the ability and opportunity to choose between good and evil. When we obey God, we follow the influence of the Spirit and choose to conform to His will. Obedience to the commandments brings us peace in this life and eternal life in the world to come. Obedience shows our love for God. Disobedience brings us sorrow. Heavenly Father knows our weaknesses and is patient with us. He blesses us as we strive to obey His commandments. He expects us to obey Him so He can bless us.
 
+#### Scripture Study (Page 86)
+- Agency: 2 Nephi 2:26-29, Alma 12:31, D&C 58:26-29, D&C 82:8-10, Topical Guide, “Agency” |
+- Obedience: D&C 130:20-21, John 14:15, 21, Ecclesiastes 12:13
 
-• Teach a two- or three-minute version to your companion. Practice how you will extend each commitment invitation and how you will resolve concerns.
+**Commitment**
+- Will you obey the laws of God?
 
-
-• Discuss ways to follow through on each commitment that investigators have accepted.
-
-
-Obedience
-=========
-
-
-Father in Heaven to help us have happy lives. He also gives us agency, or the ability and opportunity to choose between good and evil. When we obey God, we follow the influence of the Spirit and choose to conform to His will. Obedience to the commandments brings us peace in this life and eternal life in the world to come. Obedience shows our love for God. Disobedience brings us sorrow.
-
-
-Heavenly Father knows our weaknesses and is patient with us. He blesses us as we strive to obey His commandments. He expects us to obey Him so He can bless us.
-
-
-
-
-| Scripture Study |  |  |
-| --- | --- | --- |
-| Agency |  |  |
-| 2 Nephi 2:26-29 Alma 12:31 | D&C 58:26-29 D&C 82:8-10 | Topical Guide, “Agency” |
-| Obedience | | |
-| D&C 130:20-21 | John 14:15, 21 | Ecclesiastes 12:13 |
-
-
-| commitwert |
-==============
-
-
-Commitment
-
-
-• Will you obey the laws of God?
-
-
-* 
-
-
-72
-Pray Often
-==========
-
-
+## Pray Often (Page 87)
 God commands us to pray to Him. You can pray at any time and in any setting. The Lord has taught us to kneel and pray in the morning and in the evening, as individuals and with our families. Our Heavenly Father hears and answers our prayers. Through daily prayer we receive divine guidance and blessings. We should always pray sincerely. We should also pray with “real intent,” which means we are committed to act on the answer that we receive.
-
 
 We pray with faith to our Father in Heaven in the name of Jesus Christ (see Moses 5:8). Because He is our Father and we are His children, He will answer our prayers. We begin our prayers by addressing our Father in Heaven. We end our prayers by saying, “In the name of Jesus Christ, amen.”
 
-
 In prayer we speak openly and honestly with our loving Father in Heaven. We express gratitude and thanksgiving for our blessings. We may acknowledge our love for Him. We also ask for help, protection, and direction according to our needs.
 
-
 As we pray with faith, sincerity, and real intent, we will see God’s influence in our lives. He will guide us in our daily lives and help us make good decisions. He will bless us with feelings of comfort and peace. He will warn us of danger and strengthen us to resist temptation. He will forgive our sins. We will feel closer to Him. We must learn to recognize His influence in our lives. We must learn to listen to the still, small voice of the Spirit.
-
 
 We can recognize when the Holy Ghost is teaching us the truth. Our minds will be filled with inspiring and uplifting thoughts. We will be enlightened, or given new knowledge. Our hearts will have feelings of peace, joy, and love. We will want to do good and be helpful to others. These feelings are hard to describe but can be recognized as we experience them.
 
 
-Scripture Study
+#### Scripture Study (Page 87)
 
-
-
-
-| 2 Nephi 32:8-9 | D&C 6:22-23 | D&C 19:28 |
+|  |  |  |
 | --- | --- | --- |
+| 2 Nephi 32:8-9 | D&C 6:22-23 | D&C 19:28 |
 | Enos 1:1-12 | D&C 8:2-3 | 1 Kings 19:11-12 |
 | Alma 34:17-28 | D&C 9:7-9 | Bible Dictionary, “Prayer” |
 | Moroni 10:3-5 |  |  |
 
-
-3 Study and Teach
-=================
-
-
-Lesson 4: The Commandments
+**Commitment**
+- Will you kneel and pray daily as individuals and as a family?
 
 
-Notes
-
-
-Commitment
-==========
-
-
-• Will you kneel and pray daily as individuals and as a family?
-
-
-Study the Scriptures
-====================
-
-
+## Study the Scriptures (Page 87)
 The scriptures are written records of God’s dealings with His children as recorded by prophets under the influence of the Holy Ghost. We show our faith by studying, believing, and obeying God’s revealed word. We diligently search the scriptures to understand the truth. We feast upon them because they open the door to revelation and show us what we need to do and become. We search the scriptures to learn about Jesus Christ and His gospel. Faith in Jesus Christ is a gift from God and comes through studying and living His word and His gospel. The approved scriptures of the Church, also called the standard works, are the Holy Bible, the Book of Mormon, the Doctrine and Covenants, and the Pearl of Great Price. We should study these sacred books daily.
 
+#### Scripture Study (Page 88)
 
-73
-3 Study and Teach
-=================
-
-
-Lesson 4: The Commandments
-
-
-Notes
-
-
-Scripture Study
-===============
-
-
-
-
-| 1 Nephi 19:22-23 | 2 Nephi 31:19-20 | John 20:31 |
+|  |  |  |
 | --- | --- | --- |
+| 1 Nephi 19:22-23 | 2 Nephi 31:19-20 | John 20:31 |
 | 2 Nephi 9:50-51 | 2 Nephi 32:3-5 | 2 Timothy 3:14-17 |
 | 2 Nephi 25:26 | Alma 32:28-30 | 2 Peter 1:20-21 |
 | 2 Nephi 29:1-13 | John 5:39 |  |
 
-
-Commitment
-==========
-
-
-• Will you read the scriptures daily as individuals and as a family?
+**Commitment**
+- Will you read the scriptures daily as individuals and as a family?
 
 
-Keep the Sabbath Day Holy
-=========================
-
-
+## Keep the Sabbath Day Holy (Page 88)
 Our Sabbath-day behavior is a reflection of our commitment to honor and worship God. By keeping the Sabbath day holy, we show God our willingness to keep our covenants. Each Sabbath day we go to the Lord’s house to worship Him. While there we partake of the sacrament to remember Jesus Christ and His Atonement. We renew our covenants and show that we are willing to repent of our sins and mistakes.
-
-
 On this day, we enjoy a rest from our labors. As we attend Church services and worship together, we strengthen each other. We are renewed by our association with friends and family. Our faith is strengthened as we study the scriptures and learn more about the restored gospel.
-
-
 When a community or nation grows careless in its Sabbath activities, its religious life decays and all aspects of life are negatively affected. The blessings associated with keeping the Sabbath day holy are lost. We should refrain from shopping on the Sabbath and participating in other commercial and sporting activities that now commonly desecrate the Sabbath.
-
-
 Latter-day Saints should set this holy day apart from activities of the world by entering into a spirit of worship, thanksgiving, service, and family-centered activities appropriate to the Sabbath. As Church members endeavor to make their Sabbath activities compatible with the intent and Spirit of the Lord, their lives will be filled with joy and peace.
 
+#### Scripture Study (Page 88)
+- 3 Nephi 18:1–25, D&C 59:9–15, Exodus 20:8–11, Exodus 31:12–17, Isaiah 58:13–14
 
-Scripture Study
-===============
-
-
-3 Nephi 18:1–25 D&C 59:9–15
-
-
-Exodus 20:8–11 Exodus 31:12–17
-Isaiah 58:13–14
-
-
-Sit with Investigators or Members at Church
-===========================================
-
-
+#### Sit with Investigators or Members at Church (Page 88)
 When attending sacrament meetings or stake conferences, missionary companionships should sit with investigators, recent converts, or members. They should not sit with other missionaries.
+- Will you keep the Sabbath day holy?
+- Will you prepare yourself to partake of the sacrament worthily?
 
+**Baptismal Interview Questions That Apply**
+- What do you understand of the Sabbath day, including partaking of the sacrament weekly and rendering service to others? Are you willing to obey this law [before your baptism]?
 
-|
-• Will you keep the Sabbath day holy?
+## Baptism and Confirmation (Page 89)
+The way we show our desire to follow in God’s way is through baptism and confirmation. When we are baptized and confirmed, we enter into a covenant that we will take upon ourselves the name of Jesus Christ and that we will always remember Him and keep His commandments. We also promise to stand as witnesses of God at all times and to assist those in need (see Mosiah 18:8–9). In return, God promises the constant companionship of the Holy Ghost, a remission of our sins, and being born again.
 
-
-• Will you prepare yourself to partake of the sacrament worthily?
-
-
-Baptismal Interview Questions That Apply
-========================================
-
-
-• What do you understand of the Sabbath day, including partaking of the sacrament weekly and rendering service to others? Are you willing to obey this law [before your baptism]?
-
-
-* 
-
-
-74
-Baptism and Confirmation
-========================
-
-
-When we are baptized and confirmed, we enter into a covenant that we will take upon ourselves the name of Jesus Christ and that we will always remember Him and keep His commandments. We also promise to stand as witnesses of God at all times and to assist those in need (see Mosiah 18:8–9). In return, God promises the constant companionship of the Holy Ghost, a remission of our sins, and being born again.
-
-
-A
-=
-
-
-Commitments
-===========
-
-
-• Will you be baptized and confirmed?
-
-
-• Will you invite your friends and family to attend a baptismal service?
-
+#### Commitments (Page 89)
+- Will you be baptized and confirmed?
+- Will you invite your friends and family to attend a baptismal service?
 
 If possible, invite investigators to attend a baptismal service and a sacrament meeting during which someone is confirmed.
 
+**Baptismal Interview Questions That Apply**
+- All baptismal interview questions.
 
-Baptismal Interview Questions That Apply
-========================================
+- Invitation to Be Baptize: The invitation to be baptized and confirmed should be specific and direct: “Will you follow the example of Jesus Christ by being baptized by someone holding the priesthood authority of God? We will be holding a baptismal service on [date]. Will you prepare yourself to be baptized on that date?”
 
-
-• All baptismal interview questions.
-
-
-Invitation to Be Baptized
-=========================
-
-
-The invitation to be baptized and confirmed should be specific and direct: “Will you follow the example of Jesus Christ by being baptized by someone holding the priesthood authority of God? We will be holding a baptismal service on [date]. Will you prepare yourself to be baptized on that date?”
-
-
-3 Study and Teach
-=================
-
-
-Lesson 4: The Commandments
-
-
-Notes
-
-
-Follow the Prophet
-==================
-
+## Follow the Prophet (Page 89)
 
 Truth is a knowledge of things as they really are, were, and will be. It does not change with conditions or time. Truth is the same in every age and culture. God is the source of all truth. We can have faith in Him because we know He will teach us only truth. God wants all His children to know the truth. Therefore, He reveals the truths necessary for salvation through prophets and apostles. He reveals truth to us personally through the scriptures and personal revelation.
 
-
-A prophet is called and chosen by God and is a righteous man with great faith. The Lord
-
-
-reveals truth to him through the Holy Ghost. He commands His prophet to teach truth to all people. Those who believe God’s words as revealed through His prophet are blessed. Christ’s Church is built on the foundation of apostles and prophets, who direct the Church by revelation. The Lord called Joseph Smith as the first prophet and head of this last dispensation. His successors who lead The Church of Jesus Christ of Latter-day Saints today are also prophets and apostles. The President of the Church today is a living prophet. We are to have faith in God’s chosen prophet, gain conviction of his divine calling, and follow his teachings.
-
+A prophet is called and chosen by God and is a righteous man with great faith. The Lord reveals truth to him through the Holy Ghost. He commands His prophet to teach truth to all people. Those who believe God’s words as revealed through His prophet are blessed. Christ’s Church is built on the foundation of apostles and prophets, who direct the Church by revelation. The Lord called Joseph Smith as the first prophet and head of this last dispensation. His successors who lead The Church of Jesus Christ of Latter-day Saints today are also prophets and apostles. The President of the Church today is a living prophet. We are to have faith in God’s chosen prophet, gain conviction of his divine calling, and follow his teachings.
 
 We have frequent opportunities to sustain Church leaders publicly. Sustain means to support. We are to prepare ourselves so that when the prophets and apostles speak, the Holy Ghost can confirm the truths they teach, and we can then determine to follow the counsel they give us.
 
-
 Those who listen to and follow the counsel of living prophets and apostles will not go astray. The teachings of living prophets provide an anchor of eternal truth in a world of shifting values and help us avoid misery and sorrow. The confusion and strife of the world will not overwhelm us, and we can enjoy the assurance of being in harmony with God’s will.
 
+#### Scripture Study (Page 90)
 
-75
-3 Study and Teach
-=================
-
-
-Lesson 4: The Commandments
-
-
-Notes
-=====
-
-
-Scripture Study
-
-
-
-
-| Mosiah 15:11-12 | D&C 21:1-7 | Ephesians 2:19-20 |
+|  |  |  |
 | --- | --- | --- |
+| Mosiah 15:11-12 | D&C 21:1-7 | Ephesians 2:19-20 |
 | Alma 13:1-16 | D&C 136:37-38 | Ephesians 4:11-14 |
 | 3 Nephi 12:1-2 | John 15:16 | Hebrews 5:4 |
 | D&C 1:37-38 | Acts 10:34-44 | Amos 3:7 |
 
+**Commitments**
+- Will you meet the bishop?
+- Will you sustain and follow the counsel of Church leaders?
 
-| Commitwerss |
-===============
+**Baptismal Interview Questions That Apply**
+- Do you believe that [current Church President] is a prophet of God? What does that mean to you?
 
-
-• Will you meet the bishop?
-
-
-• Will you sustain and follow the counsel of Church leaders?
-
-
-Baptismal Interview Questions That Apply
-========================================
-
-
-• Do you believe that [current Church President] is a prophet of God? What does that mean to you?
-
-
-Keep the Ten Commandments
-=========================
-
-
+## Keep the Ten Commandments (Page 90)
 Heavenly Father gives us commandments so that we will know what to do and what to avoid in order to receive the blessings He wants to give us (joy, peace of conscience, lasting happiness). God revealed to Moses the Ten Commandments to guide His people:
 
-
-• “Thou shalt have no other gods before me” (Exodus 20:3). Other “gods” can include possessions, power, or prominence.
-
-
-• “Thou shalt not make unto thee any graven image” (Exodus 20:4).
-
-
-• “Thou shalt not take the name of the Lord thy God in vain” (Exodus 20:7).
-
-
-• “Remember the sabbath day, to keep it holy” (Exodus 20:8).
-
-
-• “Honour thy father and thy mother” (Exodus 20:12).
-
-
-• “Thou shalt not kill” (Exodus 20:13).
-
-
-• “Thou shalt not commit adultery” (Exodus 20:14).
-
-
-• “Thou shalt not steal” (Exodus 20:15).
-
-
-• “Thou shalt not bear false witness against thy neighbour” (Exodus 20:16).
-
-
-• “Thou shalt not covet” (Exodus 20:17).
-
+- “Thou shalt have no other gods before me” (Exodus 20:3). Other “gods” can include possessions, power, or prominence.
+- “Thou shalt not make unto thee any graven image” (Exodus 20:4).
+- “Thou shalt not take the name of the Lord thy God in vain” (Exodus 20:7).
+- “Remember the sabbath day, to keep it holy” (Exodus 20:8).
+- “Honour thy father and thy mother” (Exodus 20:12).
+- “Thou shalt not kill” (Exodus 20:13).
+- “Thou shalt not commit adultery” (Exodus 20:14).
+- “Thou shalt not steal” (Exodus 20:15).
+- “Thou shalt not bear false witness against thy neighbour” (Exodus 20:16).
+- “Thou shalt not covet” (Exodus 20:17).
 
 The Ten Commandments are still valid today. They teach us to worship and show reverence for God. They also teach us how to treat one another.
 
-
-No Other Gods
-=============
-
-
+#### No Other Gods (Page 90)
 People in many cultures own or pay respect to objects that remind them of Deity or ancestors. Sometimes those objects, such as statues, religious emblems, or small shrines, might also be the focus of their worship. Help them understand that the Lord has commanded us not to worship idols. Encourage them to remove from their home any object they worship or to which they pray. Help them focus their faith and worship on their Heavenly Father and Jesus Christ. Teach them that the restored gospel of Jesus Christ focuses on the living Christ.
-
 
 In the restored gospel the Lord has taught us how to remember Him. We remember Him through prayer, the sacrament, and temple worship. Your mission president will provide guidance in specific areas.
 
+#### Scripture Study (Page 91)
+- Mosiah 13, D&C 59:5–6, Matthew 22:36–40, Exodus 20:1–17, Deuteronomy 5:6–21
 
-%
-76
-Scripture Study
-===============
-
-
-Mosiah 13 D&C 59:5–6
+**Commitment**
+- Will you keep the Ten Commandments?
 
 
-Commitment
-==========
-
-
-Matthew 22:36–40 Exodus 20:1–17
-• Will you keep the Ten Commandments?
-
-
-Deuteronomy 5:6–21
-
-
-3 Study and Teach
-=================
-
-
-Lesson 4: The Commandments
-
-
-Notes
-
-
-Live the Law of Chastity
-========================
-
-
+## Live the Law of Chastity (Page 91)
 God delights in chastity and hates sexual sin. Chastity includes strict abstinence from sexual relations before marriage and complete fidelity and loyalty to one’s spouse after marriage. Those who live the law of chastity enjoy the strength that comes from self-control. They enjoy confidence and trust in their family relationships. They can enjoy more fully the influence of the Holy Ghost in their lives. Those who break this law are subject to a lasting sense of shame and guilt that burdens their lives.
-
 
 Chastity requires faithfulness in thought and action. We must keep our thoughts clean and be modest in our dress, speech, and actions. We must avoid pornography in any form. We should treat the God-given procreative power and our bodies as sacred. Baptismal candidates are to live the law of chastity, which prohibits any sexual relations outside of a legal marriage between a man and a woman. They are not to participate in abortions or homosexual or lesbian relations. Those who have committed sexual sin can repent and be forgiven.
 
 
-Couples Living Together
-=======================
-
+####Couples Living Together (Page 91)
 
 Men and women who are living together but are not married may not be baptized without first getting married or separated. Those who are married to more than one person at a time may not be baptized. Seek counsel from your mission president, who will give you specific direction in each case.
 
-
-| serpurestagy |
-================
-
-
-
-
-| Jacob 2:28 | 3 Nephi 12:27-30 | Matthew 5:27-28 |
+#### Scripture Study (Page 91)
+|  |  |  |
 | --- | --- | --- |
+| Jacob 2:28 | 3 Nephi 12:27-30 | Matthew 5:27-28 |
 | Mosiah 13:22 | D&C 42:22-24 | Romans 1:26-32 |
 | Alma 39:3-5 | D&C 63:16 | Ephesians 5:3-5 |
 
+**Commitment**
+- Will you live the law of chastity?
 
-|
-• Will you live the law of chastity?
+**Baptismal Interview Questions That Apply**
+- What do you understand of the law of chastity, which prohibits any sexual relationship outside the bonds of a legal marriage between a man and a woman? Are you willing to obey this law [before your baptism]?
 
-
-Baptismal Interview Questions That Apply
-========================================
-
-
-• What do you understand of the law of chastity, which prohibits any sexual relationship outside the bonds of a legal marriage between a man and a woman? Are you willing to obey this law [before your baptism]?
+- Have you ever participated in an abortion? A homosexual relationship? [Note: A person who answers yes to either of these questions must be interviewed by the mission president before being baptized.]
 
 
-• Have you ever participated in an abortion? A homosexual relationship? [Note: A person who answers yes to either of these questions must be interviewed by the mission president before being baptized.]
-
-
-77
-3 Study and Teach
-=================
-
-
-Lesson 4: The Commandments
-
-
-Notes
-
-
-Obey the Word of Wisdom
-=======================
-
-
+## Obey the Word of Wisdom (Page 92)
 The Lord revealed to the Prophet Joseph Smith a law of health called the Word of Wisdom. This law teaches us what foods and substances we should and should not use to maintain the health of our bodies and to keep us free from evil influences. The Lord promises blessings of health, strength, protection against evil, and greater receptiveness to spiritual truths.
-
 
 Remember that our bodies are sacred. We should treat them with respect and reverence. The Word of Wisdom teaches that we are to eat healthy foods. It teaches very specifically that we are to avoid harmful substances, including alcohol, tobacco, tea, and coffee. We must also avoid harmful drugs in any form. To be baptized and confirmed, those you teach must give up these substances. People who obey the Word of Wisdom are more receptive to spiritual truths.
 
-
 Your mission president will answer questions about whether other specific substances in your culture are included in the Word of Wisdom.
 
-
-Overcoming Addictions
-=====================
-
-
+#### Overcoming Addictions (Page 92)
 You can best help those who are struggling to overcome smoking, alcohol, and other habits by following these principles. The suggestions below are applied particularly to the Word of Wisdom but can be adapted for other addictions as well.
 
+1. Help the people set goals as to when and how they will live the Word of Wisdom.
+2. Pray for them in your personal prayers and when you are with them.
+3. Be positive and supportive—even if they relapse.
+4. Continue teaching them the gospel. Teach them how to use prayer and faith as sources of strength.
+5. Help them attend church regularly and develop friendships with people who live the Word of Wisdom and have overcome the same addiction.
+6. As appropriate, offer to give them priesthood blessings.
+7. Encourage them to remove harmful substances from their home.
 
-* 1. Help the people set goals as to when and how they will live the Word of Wisdom.
+#### Scripture Study (Page 92)
+- D&C 89, 1 Corinthians 3:16–17, 1 Corinthians 6:19–20,
 
+**Commitment**
+- Will you live the Word of Wisdom?
 
-* 2. Pray for them in your personal prayers and when you are with them.
-
-
-* 3. Be positive and supportive—even if they relapse.
-
-
-* 4. Continue teaching them the gospel. Teach them how to use prayer and faith as sources
-
-
-of strength.
-============
-
-
-* 5. Help them attend church regularly and develop friendships with people who live the Word of
+**Baptismal Interview Questions That Apply**
+- What do you understand of the Word of Wisdom? Are you willing to obey this law [before your baptism]?
 
 
-Wisdom and have overcome the same addiction.
-
-
-* 6. As appropriate, offer to give them priesthood blessings.
-
-
-* 7. Encourage them to remove harmful substances from their home.
-
-
-See chapter 10 for more instruction on helping people overcome addictions.
-
-
-| serpurestagy |
-================
-
-
-D&C 89
-
-
-1 Corinthians 3:16–17
-
-
-1 Corinthians 6:19–20
-
-
-|
-• Will you live the Word of Wisdom?
-
-
-Baptismal Interview Questions That Apply
-========================================
-
-
-• What do you understand of the Word of Wisdom? Are you willing to obey this law [before your baptism]?
-
-
-Keep the Law of Tithing
-=======================
-
+## Keep the Law of Tithing (Page 92)
 
 One of the great blessings of membership in The Church of Jesus Christ of Latter-day Saints is the privilege of contributing to the growth of the kingdom of God through paying tithing. Tithing is an ancient, divine law. For example, the Old Testament prophet Abraham paid tithes of all he possessed (see Alma 13:15).
 
-
-78
 To those who pay tithing, the Lord promises that He will “open . . . the windows of heaven, and pour . . . out a blessing, that there shall not be room enough to receive it” (Malachi 3:10). These blessings may be temporal or spiritual, but they will come to those who obey this divine law.
-
-
 Tithing means one-tenth, and the Lord has commanded us to give a tenth of our increase, which is understood to mean income, that we may be blessed. The law of tithing gives us the opportunity to help build His kingdom. Our tithes are holy to the Lord, and we honor Him by paying tithing. God promises to abundantly bless those who pay an honest tithe. Those who do not pay tithing rob God (see Malachi 3:8). They keep for themselves something that rightfully belongs to Him. We should seek first the kingdom of God, and tithing is an important way of doing that. Paying tithing is an expression of our faith. It is an outward sign of our belief in God and His work.
-
-
 Tithing funds are used to support the ongoing activities of the Church, such as building and maintaining temples and meetinghouses, carrying the gospel to all the world, con- ducting temple and family history work, and many other worldwide activities. Tithing does not pay local Church leaders, who serve without receiving payment of any kind.
-
-
 Local Church leaders send the tithing received each week directly to Church headquarters. A council comprised of the First Presidency, the Quorum of the Twelve, and the Presiding Bishopric determines specific ways to use the sacred tithing funds.
 
+#### Scripture Study (page 93)
+- Tithing: D&C 119, D&C 120, Hebrews 7:1–2, Genesis 14:18–20, Leviticus 27:30–33, Malachi 3:7–12
 
-Scripture Study
-===============
-
-
-Tithing
-=======
+- Faith: 3 Nephi 13:33, Ether 12:6,
 
 
-D&C 119 D&C 120
-Hebrews 7:1–2 Genesis 14:18–20
-==============================
+**Commitment**
+- Will you live the law of tithing when you are baptized?
+
+**Baptismal Interview Questions That Apply**
+- What do you understand of the law of tithing? Are you willing to obey this law?
 
 
-Leviticus 27:30–33 Malachi 3:7–12
-=================================
-
-
-Faith
-=====
-
-
-3 Nephi 13:33
-Ether 12:6
-==========
-
-
-\_commitmert |
-==============
-
-
-• Will you live the law of tithing when you are baptized?
-
-
-Baptismal Interview Questions That Apply
-========================================
-
-
-• What do you understand of the law of tithing? Are you willing to obey this law?
-
-
-3 Study and Teach
-=================
-
-
-Lesson 4: The Commandments
-
-
-Notes
-
-
-Observe the Law of the Fast
-===========================
-
+## Observe the Law of the Fast (page 93)
 
 Great blessings are available to those who obey God’s commandment to fast. Fasting means going without food and drink for a period of time. Usually the first Sunday of each month is set aside as a special day to fast for two consecutive meals, pray, and bear testimony. Fasting and prayer go together. When we fast and pray with faith, we are more receptive to receiving answers to our prayers and blessings from the Lord. He promises us that He will guide us continually. We should fast and pray for specific purposes. Fasting is private and spiritual, and we should not draw attention to the fact that we are fasting.
 
 
-Pure religion includes caring for the poor. We are to help them meet their physical and spiritual needs. When we fast, we donate money to the Church for the care of the poor and the needy. We call this a fast offering. We give at least the amount of money we save
+Pure religion includes caring for the poor. We are to help them meet their physical and spiritual needs. When we fast, we donate money to the Church for the care of the poor and the needy. We call this a fast offering. We give at least the amount of money we save by fasting for two meals. However, we need not limit our contribution to the cost of two meals. We are encouraged to be as generous as our means allow. By caring for the poor, we help fulfill our baptismal covenants and retain a remission of our sins.
+
+#### Scripture Study (Page 94)
+- Fasting: Omni 1:26, Alma 5:45–46, Alma 6:6, Alma 17:2–3, Moroni 6:5, D&C 59:12–16, D&C 88:76, Matthew 6:1–4, 16–18, Isaiah 58:6–11
+- Caring for the Poor: Mosiah 4:16–27, Mosiah 18:8–10, Alma 4:12–13, Matthew 25:34–46, James 1:27, Isaiah 58:3–12
+
+**Conmitments**
+- Will you fast and pray on the next fast Sunday for some special need?
+- Will you donate a generous fast offering [after you are baptized]?
 
 
-79
-3 Study and Teach
-=================
-
-
-Lesson 4: The Commandments
-
-
-Notes
-
-
-by fasting for two meals. However, we need not limit our contribution to the cost of two meals. We are encouraged to be as generous as our means allow. By caring for the poor, we help fulfill our baptismal covenants and retain a remission of our sins.
-
-
-Scripture Study
-===============
-
-
-Fasting
-=======
-
-
-Omni 1:26 Alma 5:45–46 Alma 6:6
-Alma 17:2–3 Moroni 6:5 D&C 59:12–16
-D&C 88:76 Matthew 6:1–4, 16–18 Isaiah 58:6–11
-Caring for the Poor
-
-
-Mosiah 4:16–27 Mosiah 18:8–10
-Alma 4:12–13 Matthew 25:34–46
-James 1:27 Isaiah 58:3–12
-=========================
-
-
-\_\_conmitments |
-=================
-
-
-• Will you fast and pray on the next fast Sunday for some special need?
-
-
-• Will you donate a generous fast offering [after you are baptized]?
-
-
-%
-How to Donate Tithes and Offerings
-==================================
-
+## How to Donate Tithes and Offerings (Page 94)
 
 Tithes and offerings are paid voluntarily and privately. Members may pay tithes and offerings at any time, but it is usually best to pay tithing on income as it is received and fast offerings on the day of the fast. Members make donations by completing a donation slip, which is obtained from the bishopric. The member keeps the yellow copy and seals the white copy and the donation in an envelope that is provided. The envelope is given to a member of the bishopric. These donations are considered sacred and belong to the Lord. A member of the bishopric and a clerk keep a careful, confidential accounting of all donations. Members attend tithing settlement with the bishop at the end of each year to declare their tithing faithfulness. At this private meeting, members receive a year-end report of all their donations. All financial information is kept strictly confidential.
 
-
-Teach How to Donate Tithes and Offerings
-========================================
-
+#### Teach How to Donate Tithes and Offerings (Page 94)
 
 Show a donation form and explain how to use it. After converts are baptized, you may need to help them fill out the form.
 
 
-Obey and Honor the Law
-======================
-
+## Obey and Honor the Law (Page 94)
 
 Latter-day Saints everywhere believe in obeying the laws of the country in which they live. Members of the Church are counseled to be good citizens, to participate in civil government and the political process, and to render community service. They do so, however, as concerned citizens, not as representatives of the Church.
 
+#### Scripture Study (Page 94)
+- D&C 58:21, D&C 130:20-21, Articles of Faith 1:12, D&C 98:5, D&C 134 
 
+ #### Commitment (Page 95)
+- Will you obey the laws of the country in which you reside?
 
+**Baptismal Interview Questions That Apply**
+- Have you ever committed a serious crime? If so, are you now on probation or parole? [Note: A person who answers yes to either of these questions must be interviewed by the mission president before being baptized.]
 
-| Scripture Study |  |  |
-| --- | --- | --- |
-| D&C 58:21 | D&C 130:20-21 | Articles of Faith 1:12 |
-| D&C 98:5 | D&C 134 |  |
-
-
-80
-| commitwent |
-==============
-
-
-• Will you obey the laws of the country in which you reside?
-
-
-Baptismal Interview Questions That Apply
-========================================
-
-
-• Have you ever committed a serious crime? If so, are you now on probation or parole? [Note: A person who answers yes to either of these questions must be interviewed by the mission president before being baptized.]
-
-
-Activity
-========
-
-
+#### Activity (Page 95)
 For each commandment in this lesson, list the scriptural promises the Lord makes to those who keep the commandment. Record in your study journal the promises that have been realized in your life.
 
 
-3 Study and Teach
-=================
-
-
-Lesson 4: The Commandments
-
-
-Notes
-
-
-81
-3 Study and Teach
-=================
 
 
 Lesson 5: Laws and Ordinances
