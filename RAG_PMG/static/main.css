@@ -1,0 +1,112 @@
+body {
+    font-family: Arial, sans-serif;
+    margin: 0;
+    padding: 0;
+    background-color: rgba(220, 240, 225, 0.724);
+
+}
+
+header {
+    background-color: rgb(127, 98, 17);
+    color: white;
+    text-align: center;
+    padding: 1em 0;
+}
+
+main {
+    padding: 20px;
+    text-align: center;
+    position: relative;
+}
+
+/* styling the query input and submit button */
+#search-section{
+    position: absolute;
+    top: 22em;
+    left: 25%;
+    margin: 0px auto;
+} 
+
+#query {
+    padding: 10px;
+    width: 50em;
+    border: 2px solid rgb(237, 153, 27);
+    border-radius: 2em;
+    resize: vertical;
+    box-sizing: border-box;
+}
+#query::placeholder {
+    color: #888; 
+    font-style: italic; 
+    font-size: 14px; 
+    padding: 5px
+}
+
+#query:focus {
+    outline: none; 
+    border-color: #ccc; 
+}
+
+button {
+    height: 40px;
+    margin-left: 10px;
+    top: 10px;
+    position: absolute;
+    padding: 0 20px;
+    background-color: #4CAF50;
+    color: white;
+    border: none;
+    border-radius: 1em;
+    cursor: pointer;
+}
+
+button:hover {
+    background-color: #d8de41;
+}
+
+
+/* styling the response section */
+
+/* Styling the response section */
+#results-section {
+    text-align: center;
+    margin: 0 auto;
+    max-width: 600px;
+}
+
+.queried {
+    text-align: right;
+    background-color: #ccc;
+    border: 1px solid #ddd;
+    padding: 10px;
+    margin-bottom: 20px;
+    border-radius: 5px; /* Optional: adds rounded corners */
+}
+
+.response {
+    text-align: center;
+    border: 1px solid #ddd;
+    padding: 10px;
+    margin-bottom: 10px;
+    background-color: #fff; /* White background */
+    border-radius: 5px; /* Optional: adds rounded corners */
+}
+
+/* .result { */
+    /* background-color: white; */
+    /* border: 1px solid #ddd; */
+    /* padding: 10px; */
+    /* margin-bottom: 10px; */
+/* } */
+
+
+/* styling the footer */
+footer {
+    background-color: rgb(127, 98, 17);
+    color: white;
+    text-align: center;
+    padding: 1em 0;
+    position: fixed;
+    bottom: 0;
+    width: 100%;
+}

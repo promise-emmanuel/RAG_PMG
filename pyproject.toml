@@ -5,10 +5,13 @@ description = "This project builds a RAG system using the preach my gospel manua
 authors = ["promise-emmanuel-20 <promiseemmanuel2019@gmail.com>"]
 
 [tool.poetry.dependencies]
-python = "^3.11"
+python = ">=3.11,<3.13"
 unstructured-client = "^0.23.8"
 mydependency = "^0.0.0"
 PyMuPDF = "^1.24.7"
+python-dotenv = "^1.0.1"
+llama-index = "^0.10.55"
+Flask = "^3.0.3"
 
 [tool.poetry.dev-dependencies]
 ipykernel = "^6.29.5"

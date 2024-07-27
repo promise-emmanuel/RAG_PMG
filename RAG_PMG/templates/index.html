@@ -1,0 +1,43 @@
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <link href="{{ url_for('static', filename='main.css') }}" rel="stylesheet">
+    
+    <title>Preach My Gospel Chatbot</title>
+</head>
+<body>
+    <header>
+        <h1>Preach My Gospel Companion</h1>
+    </header>
+
+    <main>
+        <section id="results-section">
+            {% if query %}
+                <div class="queried">    
+                    <p>{{ query }}</p>
+                </div>
+                <div class="response">
+        
+                    <p>{{ response }}</p>
+                </div>
+            {% endif %}
+        </section>
+
+        <section id="search-section">
+            <form id="search-form" method="POST" action="/">
+                <textarea id="query" name="query" placeholder="What are you looking for?" required></textarea>
+                <button type="submit">Search</button>
+            </form>
+        </section>
+            
+    </main>
+    
+    <footer>
+        <p>&copy; 2024 RAG System for Preach My Gospel</p>
+    </footer>
+
+    <script></script>
+</body>
+</html>
