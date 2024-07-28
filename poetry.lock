@@ -251,6 +251,14 @@ optional = false
 python-versions = ">=3.6"
 
 [[package]]
+name = "dotenv"
+version = "0.0.5"
+description = "Handle .env files"
+category = "main"
+optional = false
+python-versions = "*"
+
+[[package]]
 name = "executing"
 version = "2.0.1"
 description = "Get the currently executing AST node of a frame, and other information"
@@ -1521,7 +1529,7 @@ multidict = ">=4.0"
 [metadata]
 lock-version = "1.1"
 python-versions = ">=3.11,<3.13"
-content-hash = "b2b15805b9d694dce0fb9d5ee0c693f7fd143d63bd6e0c9120c05d3f38513823"
+content-hash = "0ec51840d1cd370dbf905ce76359509eec7f3ff0eb70f8eae6922894667d29a3"
 
 [metadata.files]
 aiohttp = []
@@ -1546,6 +1554,7 @@ deepdiff = []
 deprecated = []
 dirtyjson = []
 distro = []
+dotenv = []
 executing = []
 flask = []
 frozenlist = []

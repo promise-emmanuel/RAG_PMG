@@ -11,7 +11,7 @@ from flask import Flask, request, render_template
 _ = load_dotenv(find_dotenv())
 app=Flask(__name__)
 
-documents = SimpleDirectoryReader(input_files=["data/Pmg_lds.md"]).load_data()
+documents = SimpleDirectoryReader(input_files=["./data/Pmg_lds.md"]).load_data()
 
 index = VectorStoreIndex.from_documents(documents)
 query_engine = index.as_query_engine()
