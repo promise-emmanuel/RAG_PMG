@@ -146,7 +146,7 @@ Many missionaries serve in branches and districts. Although this manual refers t
 
 Preach My Gospel is for the full-time missionaries of the Church. However, the principles and doctrines taught herein are also applicable to ward missionaries and leaders as they seek to build the Lord’s kingdom. Frequent study of this manual will enable them to fulfill their responsibilities as member missionaries and will foster unity with the full-time missionaries.
 
-
+> Beginning of Chapter 1 of 13 chapters in the preach my gospel manual
 # What Is My Purpose as a Missionary? (Page 15)
 
 ## Your Purpose (Page 15)
@@ -498,6 +498,7 @@ Following are statements made by Presidents of the Church in this dispensation.
 3. Send a letter of congratulations to new members.
 
 
+> Beginning of Chapter 2 of 13 chapters in the preach my gospel manual
 # How Do I Study Effectively and Prepare to Teach? (Page 31)
 
 ### Consider This (Page 31)
@@ -762,6 +763,7 @@ Invite a few missionaries (or each group) to share their answers. Discuss their 
 7. During interviews, invite missionaries to share one of their lesson plans from one of the missionary lessons. Ask them what these doctrines mean to them.
 
 
+> Beginning of chapter 3 of the 13 chapters in the preach my gospel manual
 # What Do I Study and Teach? (Page 43)
 
 The lessons in this chapter contain the essential doctrines, principles, and commandments that you are to study, believe, love, live, and teach. They are what the living prophets and apostles have directed you to teach. They are organized so that you can help others clearly understand the doctrines of Christ. The lessons in this chapter are:
@@ -797,6 +799,7 @@ Study Mosiah 18:18–20, D&C 43:15–16 and D&C 52:9 to find the answers to this
 
 Why must you study the doctrines in the lessons?
 Study Alma 17:2–3 and D&C 84:85 to find answers to this question.
+
 
 > Lesson One
 # 1. The Message of the Restoration of the Gospel of Jesus Christ (Page 45)
@@ -2010,844 +2013,255 @@ Latter-day Saints everywhere believe in obeying the laws of the country in which
 #### Activity (Page 95)
 For each commandment in this lesson, list the scriptural promises the Lord makes to those who keep the commandment. Record in your study journal the promises that have been realized in your life.
 
-
-
-
-Lesson 5: Laws and Ordinances
-
-
-Notes
-
-
-Laws and Ordinances After Baptism and Confirmation
-==================================================
-
-
-![see page 96](#)
-Prepare to Teach
-================
-
+## Lesson 5: Laws and Ordinances After Baptism and Confirmation (Page 96)
+### Prepare to Teach
 
 After converts are baptized and confirmed, ward leaders determine whether ward missionaries or full-time missionaries lead out in teaching and how long the full-time missionaries are involved. This lesson should be taught to new members soon after they are baptized and confirmed. You may begin teaching them about these laws and ordinances between their baptism and confirmation or even before baptism. Baptismal candidates should at least be aware of these laws and ordinances before baptism.
 
-
 This lesson works much like lesson 4. The approach you take should be determined by the needs of the recent converts and direction from the Spirit. Constantly think and pray about how to help recent converts live the gospel. Ideas include:
 
+- Teaching the new member each of the laws and ordinances from this lesson while reviewing “The Message of the Restoration,” “The Plan of Salvation,” and “The Gospel of Jesus Christ” lessons. For example, while reviewing the message of the Restoration you may want to teach about priesthood and missionary work; while reviewing the plan of salvation you may teach about eternal marriage, temples and family history work, and teaching and learning in the Church. When reviewing the gospel of Jesus Christ you may want to teach about the strait and narrow way and serving in the Church.
 
-reviewing “The Message of the Restoration,” “The Plan of Salvation,” and “The Gospel of Jesus Christ” lessons. For example, while reviewing the message of the Restoration you may want to teach about priesthood and missionary work; while reviewing the plan of salvation you may teach about eternal marriage, temples and family history work, and teaching and learning in the Church. When reviewing the gospel of Jesus Christ you may want to teach about the strait and narrow way and serving in the Church.
-
-
-• Teaching two or three of the laws and ordinances as a single lesson.
-
-
-• Teaching a single law or ordinance as a lesson.
-
+- Teaching two or three of the laws and ordinances as a single lesson.
+- Teaching a single law or ordinance as a lesson.
 
 Work with members to help the new members accept and begin living these laws and ordinances. Help new members recognize that by keeping God’s laws, they will retain a remission of their sins and stay on the pathway to eternal life. They will experience greater peace and joy. They will find answers to life’s questions and security in the knowledge that they belong to the true Church of Jesus Christ. The laws and ordinances serve as directions for living joyfully, with faith in Jesus Christ and a firm hope of receiving eternal life with our Father in Heaven.
 
-
-. y p o c t o n o D . n o s r a P l e D 8 9 9 1 ©
-
-
-82
-Learn about the Laws, Ordinances, and Commitments
-=================================================
-
+### Learn about the Laws, Ordinances, and Commitments (Page 97)
 
 As you study “Laws and Ordinances,” it is helpful to follow the pattern below.
+- Study the section that describes the doctrine, and write a simple lesson plan with three to five main points.
+- Teach a two- or three-minute version to your companion. Practice how you will extend each commitment invitation and how you will resolve concerns.
+- Discuss effective ways to follow through on each commitment that people you are teaching have accepted.
 
-
-• Study the section that describes the doctrine, and write a simple lesson plan with three to five main points.
-
-
-• Teach a two- or three-minute version to your companion. Practice how you will extend each commitment invitation and how you will resolve concerns.
-
-
-• Discuss effective ways to follow through on each commitment that people you are teaching have accepted.
-
-
-Priesthood and Auxiliaries
-==========================
-
-
+### Priesthood and Auxiliaries (Page 97)
 Priesthood is the power and authority given to man to act in God’s name for the salvation of His children. Through the priesthood we receive the ordinances of salvation, as well as blessings of healing, comfort, and counsel.
-
-
 The Church of Jesus Christ of Latter-day Saints is led by Jesus Christ through apostles and prophets. These are righteous men who are called of God and given the priesthood. Anciently Christ ordained His Apostles and gave them the priesthood. That authority was lost when the people rejected the gospel and killed Christ and the Apostles.
-
-
 Priesthood authority was restored in 1829 when John the Baptist appeared to the Prophet Joseph Smith and Oliver Cowdery. He laid his hands on their heads and conferred on them the Aaronic Priesthood (see D&C 13). A short time later Peter, James, and John of the original Twelve Apostles laid their hands on Joseph Smith and Oliver Cowdery and conferred upon them the Melchizedek Priesthood, which Peter, James, and John had received from Jesus Christ (see D&C 27:12–13).
-
-
-hands by one who has the authority. A man who receives the priesthood is given a marvelous opportunity. He enters a covenant to fulfill sacred duties, serve others, and help build up the Church. He must have a desire to serve God and must be ordained to this power (see D&C 4:3; 63:57). It is also necessary for priesthood holders to perform sacred ordinances, such as baptism and confirmation. When priesthood authority is used worthily, the power of God is manifest. Priesthood power can be used only in righteousness, love, and patience.
-
-
+A man can receive priesthood authority only by proper ordination by the laying on of hands by one who has the authority. A man who receives the priesthood is given a marvelous opportunity. He enters a covenant to fulfill sacred duties, serve others, and help build up the Church. He must have a desire to serve God and must be ordained to this power (see D&C 4:3; 63:57). It is also necessary for priesthood holders to perform sacred ordinances, such as baptism and confirmation. When priesthood authority is used worthily, the power of God is manifest. Priesthood power can be used only in righteousness, love, and patience.
 All priesthood comes from God. There are two priesthoods in the Church: the Aaronic Priesthood and the Melchizedek Priesthood. The Aaronic Priesthood administers ordinances such as baptism and the sacrament. Worthy males ages 12 and over receive the Aaronic Priesthood soon after baptism and confirmation.
-
-
 Worthy adult males will eventually receive the Melchizedek, or higher, Priesthood. Members of the Church receive many spiritual and temporal blessings through the power of this priesthood. Worthy Melchizedek Priesthood holders can confer the gift of the Holy Ghost, ordain others to the priesthood as assigned, anoint the sick with consecrated oil, and give blessings of healing and comfort. Worthy husbands and fathers who hold the Melchizedek Priesthood can give their spouses, children, and other family members special blessings. Home teachers visit the homes of Church members and care for those individuals and families. Bishops and stake presidents are judges in the Church. They have the authority to help Saints who have sinned to repent and enjoy the full blessings of Church membership. They interview people to ensure their worthiness to enter the temple.
+Under priesthood direction, auxiliary organizations assist in strengthening members. They are a great resource in missionary work as they assist in finding and teaching investigators and fellowshipping new converts. Women age 18 and older are members of the Relief Society, which reaches out in service to families, individuals, and the community. Young women ages 12 to 18 are members of the Young Women program. Boys of similar ages participate in the Young Men program. All children ages 3 to 11 are part of the Primary organization. All members age 12 and older are enrolled in Sunday School classes.
 
+#### Scripture Study (Page 98)
+- Mosiah 18:17, D&C 84:19-20, Luke 9:1-6
+- Alma 13:1-19,  D&C 107,  John 15:16 
+- D&C 20:38-65,  D&C 121:34-46, James 5:14-15
 
-3 Study and Teach
+#### Commitments (Page 98)
+- Will you prepare to receive the Aaronic Priesthood (eligible and worthy males age 12 and over)?
+- Will you prepare to receive the Melchizedek Priesthood (eligible and worthy adult males)?
+- Will you participate actively in the appropriate auxiliary organization?
 
-
-Lesson 5: Laws and Ordinances
-=============================
-
-
-Notes
-=====
-
-
-83
-3 Study and Teach
-=================
-
-
-Lesson 5: Laws and Ordinances
-
-
-Notes
-
-
-They are a great resource in missionary work as they assist in finding and teaching investigators and fellowshipping new converts. Women age 18 and older are members of the Relief Society, which reaches out in service to families, individuals, and the community. Young women ages 12 to 18 are members of the Young Women program. Boys of similar ages participate in the Young Men program. All children ages 3 to 11 are part of the Primary organization. All members age 12 and older are enrolled in Sunday School classes.
-
-
-Scripture Study
-===============
-
-
-
-
-| Mosiah 18:17 | D&C 84:19-20 | Luke 9:1-6 |
-| --- | --- | --- |
-| Alma 13:1-19 | D&C 107 | John 15:16 |
-| D&C 20:38-65 | D&C 121:34-46 | James 5:14-15 |
-
-
-|
-• Will you prepare to receive the Aaronic Priesthood (eligible and worthy males age 12 and over)?
-
-
-• Will you prepare to receive the Melchizedek Priesthood (eligible and worthy adult males)?
-
-
-• Will you participate actively in the appropriate auxiliary organization?
-
-
-* 
-
-
-Missionary Work
-===============
-
-
+### Missionary Work (Page 98)
 Members who share the gospel experience joy and have the Spirit of the Lord more abundantly. As we share the gospel, we appreciate how precious and meaningful it is to us, and we feel a greater love for God and others. The Lord commanded His followers to preach the gospel in all the world, giving every person the opportunity to accept or reject it. When people are baptized, they make a covenant to always stand as witnesses of God. They are commanded to share the gospel with those who have not yet received it. As they live the gospel faithfully, they will set an example, showing their family members and friends the great blessings that come from living the gospel. They should also take advantage of opportunities to answer questions, share printed or audiovisual materials, and invite others to learn more about the message of the restored gospel. Members should pray for those who are not members of the Church. They should pray for missionary opportunities—to serve those who are not of our faith and share what they believe. The Lord promises to help members know what to say and do as they share the gospel.
 
+#### Scripture Study (Page 98)
+- Jacob 5:70-75, D&C 19:29, D&C 84:74-76, 88 
+- Mosiah 28:3, D&C 33:8-11, D&C 88:81
+- D&C 18:10-16, D&C 38:40-42, D&C 100:5-8
 
-A
-=
-
-
-Scripture Study
-===============
-
-
-
-
-| Jacob 5:70-75 | D&C 19:29 | D&C 84:74-76, 88 |
-| --- | --- | --- |
-| Mosiah 28:3 | D&C 33:8-11 | D&C 88:81 |
-| D&C 18:10-16 | D&C 38:40-42 | D&C 100:5-8 |
-
-
-|
-• Will you prepare to invite friends and relatives who do not belong to the Church to meet with the missionaries to be taught the gospel?
-
-
-• Will you pray for the missionaries and for opportunities to share the gospel?
-
-
-• Will you prepare to serve a mission?
-
-
-* 
-
-
-84
-Eternal Marriage
-================
-
-
+#### Commitment (Page 98)
+- Will you prepare to invite friends and relatives who do not belong to the Church to meet with the missionaries to be taught the gospel?
+- Will you pray for the missionaries and for opportunities to share the gospel?
+- Will you prepare to serve a mission?
+ 
+### Eternal Marriage (Page 99)
 The basic unit of the Church is the family. Within the family, people experience many of life’s greatest joys and sorrows. Marriage between a man and a woman is ordained of God and is central to God’s eternal plan for the salvation of His children. The means by which mortal life is created is divinely appointed and is safeguarded by marriage. The divine plan of happiness enables family relationships to endure beyond the grave. Marriage, however, can be eternal only when authorized priesthood holders perform the sealing ordinance in sacred temples and when husbands and wives who have been sealed together keep the covenants they have made. Husbands and wives are to love each other. As they keep the commandments and live gospel principles, they are to honor their marital vows with complete fidelity (see “The Family: A Proclamation to the World,” Ensign, Nov. 1995, 102; see also D&C 42:22).
-
-
-of Jesus Christ and when parents make their family their highest priority. “By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families. Mothers are primarily responsible for the nurture of their children. In these sacred responsibilities, fathers and mothers are obligated to help one another as equal partners” (Ensign, Nov. 1995, 102). Together, parents are to teach their children the gospel of Jesus Christ and help them live it.
-
-
+Happiness in family life is most likely to be achieved when founded upon the teachings of Jesus Christ and when parents make their family their highest priority. “By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families. Mothers are primarily responsible for the nurture of their children. In these sacred responsibilities, fathers and mothers are obligated to help one another as equal partners” (Ensign, Nov. 1995, 102). Together, parents are to teach their children the gospel of Jesus Christ and help them live it.
 Satan is making a concentrated attack on families. Years ago Church leaders set aside Monday evening as a time for family home evening. Parents should use this time to teach their children the gospel, strengthen their relationships with them, and have fun together. Other ways of strengthening the family include daily family prayer and scripture study, worshiping at church as a family, and serving others. Heaven is a continuation of the ideal home. Through priesthood ordinances and righteous living, we can live as families in God’s presence eternally.
 
+#### Scripture Study (Page 99)
+**Marriage:** 
+- D&C 42:22, D&C 1327, “The Family: A Proclamation to the world"
+- D&C 49:15, Genesis 2:24
+- D&C 131:1-4, Ephesians 5:25
+
+**Family:**
+- Mosiah 4:14-15, 3 Nephi 18:21, D&C 130:2, 1Timothy 5:8, “The Family: A Proclamation to the World”
+  
+**Teach Children:**
+- Alma 56:47, Alma 57:21, D&C 68:25-30, Moses 6:55-62, Ephesians 6:4, Proverbs 22:6
+
+#### Commitments
+- Will you hold weekly family home evening, daily family prayer, daily family scripture study, and other family activities?
+- Will you prepare to enter the temple to (1) receive your endowment? (2) be married for time and eternity? (3) if married, be sealed for eternity as husband and wife? and (4) have your children sealed to you?
+- Will you worship on the Sabbath as a family?
+- Will you serve others?
 
 
-
-| Scripture Study |  |  |
-| --- | --- | --- |
-| Marriage | | |
-| D&C 42:22 | D&C 1327 | “The Family: A Proclamation |
-| D&C 49:15 | Genesis 2:24 | to the World” |
-| D&C 131:1-4 | Ephesians 5:25 |  |
-| Family | | |
-| Mosiah 4:14-15 3 Nephi 18:21 | D&C 130:2 1Timothy 5:8 | “The Family: A Proclamation to the World” |
-| Teach Children | | |
-| Alma 56:47 Alma 57:21 | D&C 68:25-30 Moses 6:55-62 | Ephesians 6:4 Proverbs 22:6 |
-
-
-3 Study and Teach
-=================
-
-
-Lesson 5: Laws and Ordinances
-=============================
-
-
-Notes
-=====
-
-
-85
-3 Study and Teach
-=================
-
-
-Lesson 5: Laws and Ordinances
-
-
-Notes
-
-
-Commitments
-===========
-
-
-• Will you hold weekly family home evening, daily family prayer, daily family scripture study, and other family activities?
-
-
-• Will you prepare to enter the temple to (1) receive your endowment? (2) be married for time and eternity? (3) if married, be sealed for eternity as husband and wife? and (4) have your children sealed to you?
-
-
-• Will you worship on the Sabbath as a family?
-
-
-* Will you serve others?
-
-
-Temples and Family History
-==========================
-
-
+### Temples and Family History (Page 100)
 God has commanded His people to build temples. In the temple we make sacred covenants and are endowed with, or are given, a gift of power and knowledge from on high. This power helps us in our daily lives and enables us to build God’s kingdom. In the temple we can also be married for time and eternity, thus making it possible for families to be together forever in God’s presence. After at least one year of membership, worthy adults may be eligible to receive from their bishop a recommend to receive their own endowment. After receiving their endowments, married couples may be sealed or married for eternity.
-
-
 The Savior loves all people and desires their salvation. Yet millions of people have died without having any opportunity to hear the message of the restored gospel of Jesus Christ or receive saving ordinances. Through His loving grace and mercy the Lord makes salvation possible for everyone who did not have the opportunity to receive, understand, and obey the gospel during their mortal lives. The gospel is preached to these deceased people in the spirit world. Members of the Church on earth perform the saving ordinances in behalf of their deceased ancestors and others. Deceased persons living in the spirit world have the opportunity to accept or reject the gospel and the ordinances performed in their behalf.
-
-
 For this reason, Church members search for information about their ancestors. They complete pedigree charts and family group records and submit the names of deceased relatives who need to have saving ordinances performed on their behalf in sacred temples. This is family history work. Worthy members ages 12 and over, including new members, may receive from their bishop a recommend to perform baptisms for the dead.
 
-
-A
-=
-
-
+#### Family History (Page 100)
 Invite new members to meet with a member or go to a local family history center (where available) for an introduction to family history work and to the resources available to them. Provide them with a copy of family history materials.
 
+#### Scripture Study (Page 100)
+- D&C 43:16, D&C 128, D&C 138, 1 Peter 3:18-21
+- D&C 95:8-9,  D&C 131, Psalm 65:4,  1 Corinthians 15:29
+- D&C 124:22-42,  D&C 132, Brochure, Welcome to the Family History Center 
 
-Scripture Study
-===============
+#### Commitments (Page 100)
+- Will you prepare to receive temple ordinances? (Soon after baptism and confirmation, worthy members over age 12 can receive a recommend to go to the temple and participate in baptisms for the dead.)
+- Will you participate in family history work and submit the names of ancestors to receive proxy temple ordinances?
 
-
-
-
-| D&C 43:16 | D&C 128 | D&C 138 | 1 Peter 3:18-21 |
-| --- | --- | --- | --- |
-| D&C 95:8-9 | D&C 131 | Psalm 65:4 | 1 Corinthians 15:29 |
-| D&C 124:22-42 | D&C 132 | Brochure, Welcome | to the Family History Center |
-
-
-86
-Commitments
-===========
-
-
-• Will you prepare to receive temple ordinances? (Soon after baptism and confirmation, worthy members over age 12 can receive a recommend to go to the temple and participate in baptisms for the dead.)
-
-
-• Will you participate in family history work and submit the names of ancestors to receive proxy temple ordinances?
-
-
-3 Study and Teach
-=================
-
-
-Lesson 5: Laws and Ordinances
-=============================
-
-
-Notes
-=====
-
-
-Service
-=======
-
-
+### Service (Page 101)
 One of the great blessings of membership in the Church is the opportunity to serve. When we give loving service to others, we are serving God. When we are baptized, we covenant to give such service (see Mosiah 18:8–10). We are to become aware of others’ physical and spiritual needs. We then give of our time, talents, and means to help meet those needs. We follow the example of the Savior, who came to serve others. We are to do what Jesus did and become like Him.
-
-
 Soon after baptism new members receive from priesthood leaders the blessing of a responsibility to help in the Church. This is referred to as a calling. All of the work in the Church is voluntary. No one is paid for such service. When we accept callings, we are sustained publicly in a Church meeting so that other members can acknowledge our calling and provide support. We are also set apart by a priesthood leader and given special blessings to help us fulfill our callings. The Church needs the talents and abilities of every member to fill a wide variety of callings. All callings are important and help build God’s kingdom. We are to accept such callings and work diligently to learn and fulfill our duties. As we do so, we grow in faith, develop new talents and a greater ability to serve, and receive numerous other blessings.
-
-
 Priesthood holders may be called as home teachers. Home teachers make at least monthly visits to the homes of assigned member families. They teach the gospel, support parents, nurture friendships, and help families prepare to receive and keep temple covenants. Visiting teachers represent the Relief Society by making monthly visits to each adult sister as assigned.
 
+#### Scripture Study (Page 101)
+**Charity:**
+- Moroni 7:43-48, D&C 88:125, Matthew 22:36-40,  1 Corinthians 13:1-8
 
+**Care for the Poor:**
+- Mosiah 4:26,  Alma 34:28-29,  D&C 52:40,  Matthew 25:40
 
+**We Are to Serve:**
+- Mosiah 2:17, Mosiah 18:8-10, D&C 42:29,  D&C 107:99-100 
 
-| Scripture Study |  |  |  |
-| --- | --- | --- | --- |
-| Charity |  |  |  |
-| Moroni 7:43-48 | D&C 88:125 | Matthew 22:36-40 | 1 Corinthians 13:1-8 |
-| Care for the Poor | | | |
-| Mosiah 4:26 | Alma 34:28-29 | D&C 52:40 | Matthew 25:40 |
-| We Are to Serve | | | |
-| Mosiah 2:17 | Mosiah 18:8-10 | D&C 42:29 | D&C 107:99-100 |
+#### Commitments (Page 101)
+- Will you accept and fulfill the duties of a calling (including an assignment as a home teacher or visiting teacher)?
+- Will you support others in their callings?
 
-
-| Commitmerss |
-===============
-
-
-• Will you accept and fulfill the duties of a calling (including an assignment as a home teacher or visiting teacher)?
-
-
-• Will you support others in their callings?
-
-
-87
-3 Study and Teach
-=================
-
-
-Lesson 5: Laws and Ordinances
-
-
-Notes
-
-
-Teaching and Learning in the Church
-===================================
-
-
+### Teaching and Learning in the Church (Page 102)
 The Church is organized to perfect and bless the lives of the members. It gives us opportunities to teach one another the gospel, fellowship and serve one another, and support one another in our quest for salvation. In the family and through the Church, each member is taught the doctrines of the gospel. When members are called to teaching assignments, they are provided materials and help to enable them to succeed.
 
+#### Scripture Study (Page 102)
+- D&C 88:77–79, Ephesians 4:11–14
 
-Scripture Study
-===============
-
-
-D&C 88:77–79
-Ephesians 4:11–14
-=================
+#### Commitment (Page 102)
+- Will you attend church?
 
 
-Commitment
-==========
-
-
-* Will you attend church?
-
-
-Endure to the End
-=================
-
-
+### Endure to the End (Page 102)
 As we continue to live the gospel, we grow closer to our Heavenly Father. We enjoy and appreciate more the Atonement of the Savior. Our families are drawn closer together. We experience greater feelings of the love, joy, and peace that come from the Atonement. Our hearts are changed, and we find security in living the restored gospel.
-
-
 As we continue to exercise faith in Christ, repent, and renew our covenants, we enjoy continued guidance from the Holy Ghost. If we endure to the end of our lives in being true to our covenants, we will receive eternal life.
-
-
 A few members do not endure or remain fully active. However, enduring to the end is a personal responsibility. We “work out [our] own salvation” (Philippians 2:12), and we serve and love those whose faith has grown weak through inactivity.
 
+#### Scripture Study (Page 102)
+- 2 Nephi 31:20–21, Moroni 6:4, D&C 20:37, Articles of Faith 1:3
+- John 14:15, 21, Ephesians 4:11–14, Philippians 2:12
 
-Scripture Study
-===============
-
-
-2 Nephi 31:20–21 Moroni 6:4
-D&C 20:37 Articles of Faith 1:3
-===============================
+#### Commitment (Page 102)
+- Will you continue to live the gospel by keeping baptismal covenants throughout your life?
 
 
-John 14:15, 21 Ephesians 4:11–14
-Philippians 2:12
-================
+> Beginning of Chapter 4 of 13 chapters in the preach my gospel manual
+# How Do I Recognize and Understand the Spirit? (Page 103)
 
+### Consider This
+- Why do I need to receive personal revelation?
+- Who is the Holy Ghost and how does He work?
+- Why must I pray in faith?
+- What is the role of the Spirit in missionary work?
+- How can I recognize the promptings of the Spirit?
 
-Commitment
-==========
-
-
-• Will you continue to live the gospel by keeping baptismal covenants throughout your life?
-
-
-88
-\
-'7
-N X v\:j} y (¥
-==============
-
-
-a\\
-* ~
-
-
-W\ N\ ,“ Q%
-A Y
-===
-
-
-Sy-( .\
-Al
-==
-
-
-4
-iy Uy
-=====
-
-
-'W. it
-======
-
-
-. R
-===
-
-
-How Do I Recognize and Understand the Spirit?
-=============================================
-
-
-Consider This
-=============
-
-
-• Why do I need to receive personal revelation?
-
-
-• Who is the Holy Ghost and how does He work?
-
-
-• Why must I pray in faith?
-
-
-• What is the role of the Spirit in missionary work?
-
-
-• How can I recognize the promptings of the Spirit?
-
-
-4 Recognize the Spirit
-======================
-
-
-i) ==’
-* i
-
-
-‘. e
-1
-~~ . "\
-™~
-214
-Notes
-
-
-Personal Revelation
-===================
-
-
+## Personal Revelation (Page 103)
 Joseph Smith said, “Salvation cannot come without revelation; it is in vain for anyone to minister without it” (History of the Church, 3:389). You will succeed in your work as you learn to receive and follow personal revelation. Joseph Smith also taught that revelation is vital for your daily work: “This is the principle on which the government of heaven is conducted—by revelation adapted to the circumstances in which the children of the kingdom are placed” (History of the Church, 5:135).
-
-
 God loves you and all His children. He is anxious to support you in your practical and specific challenges. You have been promised inspiration to know what to do and have been given the power to do it (see D&C 43:15–16). He will help you as you try to recognize and understand the Spirit through diligent scripture study. He will guide you to people who will receive the message of the Restoration. He will give you power to deliver the message and to testify of Christ and His gospel. He will shower His blessings upon you through the gift of the Holy Ghost. He asks that you remain worthy of this gift and that you ask, seek, and knock (see D&C 4:7; Matthew 7:7–8).
-
-
-We live in the day prophesied by Book of Mormon prophets—a day when people will “contend one with another, and they shall teach with their learning, and deny the Holy Ghost, which giveth utterance” (2 Nephi 28:4; see also 3 Nephi 29:6; Mormon 9:7–8). Yet
-
-
-89
-4 Recognize the Spirit
-======================
-
-
-Notes
-
-
-many people also yearn for spiritual things. As you learn to receive personal revelation, you will teach with power and authority (see Alma 17:3) because the Holy Ghost gives you power to speak (see 1 Nephi 10:22).
-
-
+We live in the day prophesied by Book of Mormon prophets—a day when people will “contend one with another, and they shall teach with their learning, and deny the Holy Ghost, which giveth utterance” (2 Nephi 28:4; see also 3 Nephi 29:6; Mormon 9:7–8). Yet many people also yearn for spiritual things. As you learn to receive personal revelation, you will teach with power and authority (see Alma 17:3) because the Holy Ghost gives you power to speak (see 1 Nephi 10:22).
 You need to seek and receive personal revelation through the Holy Ghost as you help people become baptized and confirmed. Have faith that you will receive personal revelation to guide you from day to day. The Holy Ghost will help you in every aspect of your work.
 
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 104)
 In Moroni’s concluding testimony, he wrote “a few words by way of exhortation” (Moroni 10:2). Read Moroni 10 and write in your own words what Moroni exhorts the reader of the Book of Mormon to do. (Exhort means to encourage strongly or urge someone to do something.)
 
-
-o
-=
-
-
-The Light of Christ
-===================
-
-
+## The Light of Christ (Page 104)
 A person is capable of receiving spiritual guidance before being baptized and confirmed. This spiritual influence begins with the Light of Christ, which “is given to every man, that he may know good from evil” (Moroni 7:16; see also verses 14–19).
-
-
 “The light of Christ is just what the words imply: enlightenment, knowledge, and an uplifting, ennobling, persevering influence that comes upon mankind because of Jesus Christ. . . .
-
-
 “The light of Christ should not be confused with the personage of the Holy Ghost, for the light of Christ is not a personage at all. Its influence is preliminary to and preparatory to one’s receiving the Holy Ghost. The light of Christ will lead the honest soul who ‘hearkeneth to the voice’ to find the true gospel and the true Church and thereby receive the Holy Ghost” (Bible Dictionary, “Light of Christ,” 725; see also D&C 84:46–47).
-
-
 President Boyd K. Packer said, “It is important for a . . . missionary . . . to know that the Holy Ghost can work through the Light of Christ. A teacher of gospel truths is not planting something foreign or even new into an adult or a child. Rather, the missionary or teacher is making contact with the Spirit of Christ already there. The gospel will have a familiar ‘ring’ to them” (“The Light of Christ,” address delivered at the seminar for new mission presidents, 22 June 2004, 2).
 
 
-The Holy Ghost
-==============
-
-
-The personage of the Holy Ghost. The Holy Ghost is the third member of the Godhead. He is a personage of spirit and does not have a body of flesh and bones (see D&C 130:22). He is the Comforter, who the Savior promised would teach His followers all things and bring to their remembrance all things that He had taught them (see John 14:26).
-
-
-The power of the Holy Ghost. The witness that comes to sincere investigators before baptism comes through the power of the Holy Ghost. “The power [of the Holy Ghost] can come upon one before baptism, and is the convincing witness that the gospel is true. It gives one a testimony of Jesus Christ and of his work and the work of his servants upon the earth” (Bible Dictionary, “Holy Ghost,” 704). The Holy Ghost testifies of truth. All people can know the truthfulness of the Book of Mormon through the power of the Holy Ghost. “By the power of the Holy Ghost ye may know the truth of all things” (Moroni 10:5).
-
-
-90
-4 Recognize the Spirit
-======================
-
-
-The gift of the Holy Ghost. Investigators who receive a witness do not yet have the promise of the constant companionship of the Holy Ghost. Joseph Smith said: “There is a difference between the Holy Ghost and the gift of the Holy Ghost. Cornelius received the Holy Ghost before he was baptized, which was the convincing power of God unto him of the truth of the Gospel, but he could not receive the gift of the Holy Ghost until after he was baptized. Had he not taken this sign or ordinance upon him, the Holy Ghost which convinced him of the truth of God, would have left him” (History of the Church, 4:555).
-
-
-after proper and authorized baptism, and is conferred by the laying on of hands. . . . The gift of the Holy Ghost is the right to have, whenever one is worthy, the companionship of the Holy Ghost” (Bible Dictionary, “Holy Ghost,” 704).
-
-
-“The gift of the Holy Ghost comes after one repents and becomes worthy. . . . The Holy Ghost bears witness of the truth and impresses upon the soul the reality of God the Father and the Son Jesus Christ so deeply that no earthly power or authority can separate him from that knowledge.”
-
-
-– PRESIDENT JAMES E. FAUST “THE GIFT OF THE HOLY GHOST—A SURE COMPASS,”
-ENSIGN, APR. 1996, 4
-====================
-
-
+## The Holy Ghost (Page 104)
+- **The personage of the Holy Ghost.** The Holy Ghost is the third member of the Godhead. He is a personage of spirit and does not have a body of flesh and bones (see D&C 130:22). He is the Comforter, who the Savior promised would teach His followers all things and bring to their remembrance all things that He had taught them (see John 14:26).
+- **The power of the Holy Ghost.** The witness that comes to sincere investigators before baptism comes through the power of the Holy Ghost. “The power [of the Holy Ghost] can come upon one before baptism, and is the convincing witness that the gospel is true. It gives one a testimony of Jesus Christ and of his work and the work of his servants upon the earth” (Bible Dictionary, “Holy Ghost,” 704). The Holy Ghost testifies of truth. All people can know the truthfulness of the Book of Mormon through the power of the Holy Ghost. “By the power of the Holy Ghost ye may know the truth of all things” (Moroni 10:5).
+- **The gift of the Holy Ghost.** Investigators who receive a witness do not yet have the promise of the constant companionship of the Holy Ghost. Joseph Smith said: “There is a difference between the Holy Ghost and the gift of the Holy Ghost. Cornelius received the Holy Ghost before he was baptized, which was the convincing power of God unto him of the truth of the Gospel, but he could not receive the gift of the Holy Ghost until after he was baptized. Had he not taken this sign or ordinance upon him, the Holy Ghost which convinced him of the truth of God, would have left him” (History of the Church, 4:555).
+“The gift [of the Holy Ghost] can come only after proper and authorized baptism, and is conferred by the laying on of hands. . . . The gift of the Holy Ghost is the right to have, whenever one is worthy, the companionship of the Holy Ghost” (Bible Dictionary, “Holy Ghost,” 704).
 As a member of the Church, you have received the gift of the Holy Ghost by priesthood authority. This gift entitles you to the constant companionship of the Holy Ghost as you remain worthy of it. Pray for the Spirit’s guidance, and valiantly follow the promptings you receive.
 
+“The gift of the Holy Ghost comes after one repents and becomes worthy. . . . The Holy Ghost bears witness of the truth and impresses upon the soul the reality of God the Father and the Son Jesus Christ so deeply that no earthly power or authority can separate him from that knowledge." – PRESIDENT JAMES E. FAUST “THE GIFT OF THE HOLY GHOST—A SURE COMPASS,” ENSIGN, APR. 1996, 4
 
-The Holy Spirit of Promise. The Holy Ghost is also referred to as the Holy Spirit of Promise (see D&C 88:3). To be sealed by the Holy Spirit of Promise means that the Holy Ghost confirms that righteous acts, ordinances, and covenants are acceptable to God. The Holy Spirit of Promise testifies to the Father that the saving ordinances have been performed properly and that the covenants associated with them have been kept. Those who are sealed by the Holy Spirit of Promise receive all that the Father has (see D&C 76:51–60; Ephesians 1:13–14). All covenants and performances must be sealed by the Holy Spirit of Promise if they are to be valid after this life (see D&C 132:7, 18–19, 26). Breaking covenants may remove the sealing.
+- **The Holy Spirit of Promise.** The Holy Ghost is also referred to as the Holy Spirit of Promise (see D&C 88:3). To be sealed by the Holy Spirit of Promise means that the Holy Ghost confirms that righteous acts, ordinances, and covenants are acceptable to God. The Holy Spirit of Promise testifies to the Father that the saving ordinances have been performed properly and that the covenants associated with them have been kept. Those who are sealed by the Holy Spirit of Promise receive all that the Father has (see D&C 76:51–60; Ephesians 1:13–14). All covenants and performances must be sealed by the Holy Spirit of Promise if they are to be valid after this life (see D&C 132:7, 18–19, 26). Breaking covenants may remove the sealing.
+- **Gifts of the Spirit.** The gifts of the Spirit are special spiritual blessings that the Lord gives to worthy individuals for their own benefit and for their use in blessing others. For example, missionaries who must learn a new language may receive the gift of tongues to give them divine help in learning a language. Several gifts of the Spirit are described in Moroni 10:8–18; Doctrine and Covenants 46:11–33; and 1 Corinthians 12:1–12. These are only some examples of the many gifts of the Spirit. The Lord may bless you in other ways depending on your faithfulness, your needs, and the needs of those you serve. You should desire spiritual gifts and earnestly seek for them (see D&C 46:8; 1 Corinthians 12:31; 14:1, 12). These gifts come by prayer, faith, and works, according to God’s will (see D&C 63:9–12; 84:64–73).
 
-
-Gifts of the Spirit. The gifts of the Spirit are special spiritual blessings that the Lord gives to worthy individuals for their own benefit and for their use in blessing others. For example, missionaries who must learn a new language may receive the gift of tongues to give them divine help in learning a language. Several gifts of the Spirit are described in Moroni 10:8–18; Doctrine and Covenants 46:11–33; and 1 Corinthians 12:1–12. These are only some examples of the many gifts of the Spirit. The Lord may bless you in other ways depending on your faithfulness, your needs, and the needs of those you serve. You should desire spiritual gifts and earnestly seek for them (see D&C 46:8; 1 Corinthians 12:31; 14:1, 12). These gifts come by prayer, faith, and works, according to God’s will (see D&C 63:9–12; 84:64–73).
-
-
-Notes
-
-
-91
-4 Recognize the Spirit
-======================
-
-
-Notes
-
-
-Activity: Personal or Companion Study
-=====================================
-
-
+#### Activity: Personal or Companion Study (Page 106)
 Read the references below:
-==========================
-
-
-• Bible Dictionary, “Holy Ghost,” “Light of Christ,” and “Spirit.”
-
-
-• Our Search for Happiness, 84–86, 91–92.
-
-
-• True to the Faith, “Holy Ghost,” 81–84, and “Spiritual Gifts,” 165–67.
-
+- Bible Dictionary, “Holy Ghost,” “Light of Christ,” and “Spirit.”
+- Our Search for Happiness, 84–86, 91–92.
+- True to the Faith, “Holy Ghost,” 81–84, and “Spiritual Gifts,” 165–67.
 
 Write a description of the nature and role of the Holy Ghost.
+- Read Acts 4:23–33.
+- How did Peter and John seek spiritual gifts?
+- How did the Lord answer their prayers?
+- What can you learn from this experience about your own work?
 
 
-Read Acts 4:23–33.
-
-
-• How did Peter and John seek spiritual gifts?
-
-
-• How did the Lord answer their prayers?
-
-
-• What can you learn from this experience about your own work?
-
-
-The Power of the Spirit in Conversion
-=====================================
-
-
+## The Power of the Spirit in Conversion (Page 106)
 The power of the Holy Ghost is central to conversion. Strive to understand the doctrine of conversion and also the experience of conversion. President Boyd K. Packer explained the central role of the Spirit in conversion:
-
-
 “When conversion takes place, it is through the power of the Spirit. In order to succeed in missionary work, these three things must occur:
-
-
-“We must understand what an investigator must feel in order to receive conversion. “We must understand how a missionary must feel in order to teach with the converting
-
-
-power of the Spirit.
-
-
+“We must understand what an investigator must feel in order to receive conversion. “We must understand how a missionary must feel in order to teach with the converting power of the Spirit.
 “And then we must understand how a member must feel to succeed in participating in the conversion experience” (mission presidents’ conference, 3 Apr. 1985).
-
-
-gators, missionaries, and members feel when they receive the witness of the Spirit, the better you will understand your own role, which is to:
-
-
-• Be edified and have your mind enlightened as you search the scriptures and teach the doctrine.
-
-
-which the Holy Ghost can bear witness. You do this by teaching and testifying of the message of the Restoration. Teach as directed by the Spirit, and testify that you know by the power of the Holy Ghost that what you teach is true.
-
-
-![see page 106](#)
-• Follow the guidance of the Spirit in adapting the message to each person’s needs.
-
-
-• Invite people to act. Their faith will grow as they repent, obey the commandments, and make and keep covenants.
-
-
-92
-4 Recognize the Spirit
-======================
-
+The better you understand how investigators, missionaries, and members feel when they receive the witness of the Spirit, the better you will understand your own role, which is to:
+- Be edified and have your mind enlightened as you search the scriptures and teach the doctrine.
+- Create a climate when you teach in which the Holy Ghost can bear witness. You do this by teaching and testifying of the message of the Restoration. Teach as directed by the Spirit, and testify that you know by the power of the Holy Ghost that what you teach is true.
+- Follow the guidance of the Spirit in adapting the message to each person’s needs.
+- Invite people to act. Their faith will grow as they repent, obey the commandments, and make and keep covenants.
 
 Elder M. Russell Ballard spoke of the power of the Spirit: “True conversion comes through the power of the Spirit. When the Spirit touches the heart, hearts are changed. When individuals . . . feel the Spirit working with them, or when they see the evidence of the Lord’s love and mercy in their lives, they are edified and strengthened spiritually and their faith in Him increases. These experiences with the Spirit follow naturally when a person is willing to experiment upon the word. This is how we come to feel the gospel is true” (“Now Is the Time,” Ensign, Nov. 2000, 75).
-
-
 The Holy Ghost works in the hearts of people to bring about these changes. As people choose to keep commitments, they will feel the power of the Holy Ghost more strongly and will develop the faith to obey Christ. Thus, you should help the people you work with grow in faith by inviting them to repent and to make and keep commitments.
 
+#### Activity: Personal Study (Page 107)
+- Read one or two of the following passages, and ponder what an investigator must feel to be converted. Record your feelings and impressions in your study journal. Discuss your ideas with other missionaries and members: 2 Nephi 4:16–35; Enos 1; Mosiah 4–5; 18:7–14; 27–28; Alma 5; 17–22; 32; 36; 38
+- Read one or two of the following passages and ponder what you as a missionary and as a member must feel to teach with converting power. Record your feelings and impressions in your study journal. Discuss your ideas with other missionaries and members: 1 Nephi 8:11–12; Mosiah 28:1–4; Alma 26; 29; 31:26–38; 32; Moroni 7:43–48; D&C 4; 18:10–16; 50:21–22
 
-Activity: Personal Study
-========================
+#### Scripture Study (Page 107)
+**What do these scriptures teach about the power of the Spirit in your work?**
+- 2 Nephi 33:1–2, D&C 42:11–17, D&C 50:13–22, Acts 2:37–38
+- 1 Corinthians 2:11–14 Bible Dictionary, “Conversion”
 
+**What can you do to enjoy the power of the Spirit in your work?**
+- Alma 32:27–28, D&C 42:14, John 7:17
 
-• Read one or two of the following passages, and ponder what an investigator must feel to be converted. Record your feelings and impressions in your study journal. Discuss your ideas with other missionaries and members.
+**Why is it important to teach what you know and believe?**
+- Alma 5:43–47, D&C 52:9, D&C 80:4
 
-
-2 Nephi 4:16–35; Enos 1; Mosiah 4–5; 18:7–14; 27–28; Alma 5; 17–22; 32; 36; 38
-
-
-• Read one or two of the following passages and ponder what you as a missionary and as a member must feel to teach with converting power. Record your feelings and impressions in your study journal. Discuss your ideas with other missionaries and members. 1 Nephi 8:11–12; Mosiah 28:1–4; Alma 26; 29; 31:26–38; 32; Moroni 7:43–48; D&C 4; 18:10–16; 50:21–22
-
-
-Scripture Study
-===============
-
-
-What do these scriptures teach about the power of the Spirit in your work?
-
-
-2 Nephi 33:1–2 D&C 42:11–17
-D&C 50:13–22 Acts 2:37–38
-1 Corinthians 2:11–14 Bible Dictionary, “Conversion”
-====================================================
-
-
-What can you do to enjoy the power of the Spirit in your work?
-
-
-Alma 32:27–28
-
-
-D&C 42:14
-
-
-John 7:17
-
-
-Why is it important to teach what you know and believe?
-
-
-Alma 5:43–47
-
-
-D&C 52:9
-
-
-D&C 80:4
-
-
-Pray with Faith
-===============
-
-
+## Pray with Faith (Page 107)
 You can teach in the Lord’s way only by the power of the Spirit, and you receive the Spirit through the prayer of faith. The Lord said, “And the Spirit shall be given unto you by the prayer of faith; and if ye receive not the Spirit ye shall not teach” (D&C 42:14). As you pray for help in your teaching, the power of the Holy Ghost will carry your teachings “unto the hearts of the children of men” (2 Nephi 33:1).
-
-
 President Gordon B. Hinckley illustrated this principle by relating an experience from his mission:
-
-
-“I always remember two young men who served in my mission. One was a superstar. He was educated. He was bright. He was quick. He was a little arrogant. We had another who was a sign painter. He came from a sign shop with very little education, but he knew his inadequacies and he relied on the Lord. When he prayed, you knew he was talking with the Lord. It wasn’t a rote thing, it was a conversation and that young man accomplished
-
-
-/
-Notes
-
-
-93
-4 Recognize the Spirit
-======================
-
-
-Notes
-
-
-wonders while the other young man went through the motions. The power that was in the one and the absence of power in the other was so apparent. Call upon the Lord. He has extended the invitation, and He will answer” (Teachings of Gordon B. Hinckley [1997], 469).
-
-
+“I always remember two young men who served in my mission. One was a superstar. He was educated. He was bright. He was quick. He was a little arrogant. We had another who was a sign painter. He came from a sign shop with very little education, but he knew his inadequacies and he relied on the Lord. When he prayed, you knew he was talking with the Lord. It wasn’t a rote thing, it was a conversation and that young man accomplished wonders while the other young man went through the motions. The power that was in the one and the absence of power in the other was so apparent. Call upon the Lord. He has extended the invitation, and He will answer” (Teachings of Gordon B. Hinckley [1997], 469).
 Strive to pray sincerely, with real intent, and with “all the energy of heart” (Moroni 7:48). Effective prayer requires great effort (see Moroni 10:3–4; D&C 8:10; 9:7). Give serious thought to your attitude and to the words you use. Consider the following when you pray:
+- Use the language of prayer, which shows that you love and respect your Heavenly Father. Use proper and respectful language in whatever language you speak. For example, in English use scriptural pronouns such as Thee, Thou, Thy, and Thine.
+- Always express gratitude for your blessings. A conscious effort to be grateful will help you recognize how merciful the Lord has been in your life.
+- Pray specifically for the guidance and help of the Holy Ghost. Show that you value this blessing by being sensitive to and aware of spiritual promptings. Then courageously follow those promptings.
+- Pray with love and charity. Pray for people by name. Ask for inspiration to help you understand and meet their needs. Pray for the welfare of contacts, investigators, new converts, and less-active members. Pray for the members and priesthood and auxiliary leaders in your area. Pray for your family at home. Pray for your companion, other missionaries, and your mission president. Pray to know how you can help others, and then be willing to sacrifice in their behalf.
+- Pray that you will be shown where to go and what to do. Pray that you will be led to those who are prepared to receive the message of the Restoration. Pray that you will recognize them.
+- Recognize that your Heavenly Father knows what you need better than you do. Rely on the Spirit to know what to pray for (see 3 Nephi 19:24; D&C 46:28, 30).
+- In your prayers at night, give the Lord an accounting of your day’s activities. Then review with Him your plan for the next day. Listen for the promptings of the Spirit.
+- Pray to overcome temptation. Yielding to temptation interferes with the Spirit.
+- Pray and, when appropriate, fast for special blessings.
+- Pray about and ponder the scriptures. The scriptures open the window to revelation.
+- Believe that God will answer your prayers. Recognize that God’s thoughts are not your thoughts (see Isaiah 55:8–9), and trust God to answer your prayers in His own way and in His own time.
+
+“Every morning . . . , missionaries should get on their knees and plead with the Lord to loosen their tongues and speak through them to the blessing of those they will be teaching. If they will do this, a new light will come into their lives. There will be greater enthusiasm for the work. They will come to know that in a very real sense, they are servants of the Lord speaking in His behalf. They will find a different response from those they teach. As they do so by the Spirit, their investigators will respond under the influence of the same Spirit.” – PRESIDENT GORDON B. HINCKLEY “MISSIONARY SERVICE,” FIRST WORLDWIDE LEADERSHIP TRAINING MEETING, 11 JAN. 2003, 20
 
 
-• Use the language of prayer, which shows that you love and respect your Heavenly Father. Use proper and respectful language in whatever language you speak. For example, in English use scriptural pronouns such as Thee, Thou, Thy, and Thine.
-
-
-![see page 108](#)
-• Always express gratitude for your blessings. A conscious effort to be grateful will help you recognize how merciful the Lord has been in your life.
-
-
-• Pray specifically for the guidance and help of the Holy Ghost. Show that you value this blessing by being sensitive to and aware of spiritual promptings. Then courageously follow those promptings.
-
-
-• Pray with love and charity. Pray for people by name. Ask for inspiration to help you understand and meet their needs. Pray for the welfare of contacts, investigators, new converts, and less-active members. Pray for the members and priesthood and auxiliary leaders in your area. Pray for your family at home. Pray for your companion, other missionaries, and your mission president. Pray to know how you can help others, and then be willing to sacrifice in their behalf.
-
-
-“Every morning . . . , missionaries should get on their knees and plead with the Lord to loosen their tongues and speak through them to the blessing of those they will be teaching. If they will do this, a new light will come into their lives. There will be greater enthusiasm for the work. They will come to know that in a very real sense, they are servants of the Lord speaking in His behalf. They will find a different response from those they teach. As they do so by the Spirit, their investigators will respond under the influence of the same Spirit.”
-
-
-• Pray that you will be shown where to go and what to do. Pray that you will be led to those who are prepared to receive the message of the Restoration. Pray that you will recognize them.
-
-
-– PRESIDENT GORDON B. HINCKLEY “MISSIONARY SERVICE,” FIRST WORLDWIDE LEADERSHIP TRAINING MEETING, 11 JAN. 2003, 20
-
-
-• Recognize that your Heavenly Father knows what you need better than you do. Rely on the Spirit to know what to pray for (see 3 Nephi 19:24; D&C 46:28, 30).
-
-
-94
-4 Recognize the Spirit
-======================
-
-
-• In your prayers at night, give the Lord an accounting of your day’s activities. Then review with Him your plan for the next day. Listen for the promptings of the Spirit.
-
-
-• Pray to overcome temptation. Yielding to temptation interferes with the Spirit.
-
-
-• Pray and, when appropriate, fast for special blessings.
-
-
-• Pray about and ponder the scriptures. The scriptures open the window to revelation.
-
-
-• Believe that God will answer your prayers. Recognize that God’s thoughts are not your thoughts (see Isaiah 55:8–9), and trust God to answer your prayers in His own way and in His own time.
-
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 109)
 Ponder the following statements concerning sincere prayer:
-
-
 “The trouble with most of our prayers is that we give them as if we were picking up the telephone and ordering groceries—we place our order and hang up. We need to meditate, contemplate, think of what we are praying about and for and then speak to the Lord as one man speaketh to another” (Gordon B. Hinckley, Teachings of Gordon B. Hinckley, 469).
-
-
 “If prayer is only a spasmodic cry at the time of crisis, then it is utterly selfish, and we come to think of God as a repairman or a service agency to help us only in our emergencies. We should remember the Most High day and night—always—not only at times when all other assistance has failed and we desperately need help” (Howard W. Hunter, The Teachings of Howard W. Hunter, ed. Clyde J. Williams [1997], 39).
 
+#### Scripture Study (Page 109)
+**Why must you pray for the Spirit?**
+- 2 Nephi 32:8–9, D&C 42:14, D&C 50:13–22
 
-Using the following scale, privately evaluate your prayers. In your study journal, write answers to questions like these: Where would you place yourself on this scale? Where would you like to be on this scale? How are you going to change?
-
-
-Poor Fair Good Weak faith in Christ < ) Strong faith in Christ Not thankful < ) Full of thanks
-Poor
-====
-
-
-Good
-====
-
-
-Mind not focused on the work < > ind focused on the work
-
-
-No relation to actions < » Actions fulfill prayers
-==================================================
-
-
-Repetitious < p Focus on today’s needs Dull feelings < ) Edifying, refreshing
-
-
-Focus on impure thoughts < ) Focus on pure thoughts Self-centered 4 > indful of other people
-
-
-General, not specific < ) Specific, not general The Spirit is absent 4 ) The Spirit guides the prayer Do not recognize answers 4 ) Confident that God answers prayers
-
-
-Scripture Study
-===============
-
-
-Why must you pray for the Spirit?
-
-
-2 Nephi 32:8–9
-D&C 42:14
-D&C 50:13–22
-What should you pray for?
-
-
-Alma 6:6 Alma 13:28 Alma 34:17–27
-Alma 37:36–37 3 Nephi 18:20 3 Nephi 19:9
-D&C 50:29–30 Bible Dictionary, “Prayer”
-=======================================
-
-
-Notes
-
-
-95
-4 Recognize the Spirit
-======================
-
-
-Notes:
+**What should you pray for?**
+- Alma 6:6, Alma 13:28, Alma 34:17–27
+- Alma 37:36–37, 3 Nephi 18:20, 3 Nephi 19:9
+- D&C 50:29–30 Bible Dictionary, “Prayer”
 
 
 Learn to Recognize the Promptings of the Spirit
