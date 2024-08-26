@@ -2690,9 +2690,7 @@ Faith includes confidence in the mission and power of the Holy Ghost. Through fa
 
 ## Hope (Page 131)
 Hope is an abiding trust that the Lord will fulfill His promises to you. It is manifest in confidence, optimism, enthusiasm, and patient perseverance. It is believing and expecting that something will occur. When you have hope, you work through trials and difficulties with the confidence and assurance that all things will work together for your good. Hope helps you conquer discouragement. The scriptures often describe hope in Jesus Christ as the assurance that you will inherit eternal life in the celestial kingdom.
-
 President James E. Faust taught: “Hope is the anchor of our souls. . . . “Hope is trust in God’s promises, faith that if we act now, the desired blessings will be fulfilled in the future. . . . “The unfailing source of our hope is that we are sons and daughters of God and that His Son, the Lord Jesus Christ, saved us from death” (“Hope, an Anchor of the Soul,” Ensign, Nov. 1999, 59–60).
-
 
 “Being blessed with hope, let us, as disciples, reach out to all who, for whatever reason, have ‘moved away from the hope of the gospel’ (Col. 1:23). Let us reach to lift hands which hang hopelessly down.” – ELDER NEAL A. MAXWELL “BRIGHTNESS OF HOPE,” ENSIGN, NOV. 1994, 36
 
@@ -2706,206 +2704,72 @@ President James E. Faust taught: “Hope is the anchor of our souls. . . . “Ho
 | Ether 12:4, 32 | D&C 138:14 | Topical Guide, “Hope” |
 
 
-Charity and Love
-================
-
-
-great commandment in the law?” Jesus replied: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. This is the first and great commandment. And the second is like unto it, Thou shalt love thy neighbour as thyself” (Matthew 22:36–39).
-
-
+## Charity and Love (Page 132)
+A man once asked Jesus, “Which is the great commandment in the law?” Jesus replied: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. This is the first and great commandment. And the second is like unto it, Thou shalt love thy neighbour as thyself” (Matthew 22:36–39).
 Charity is “the pure love of Christ” (Moroni 7:47). It includes God’s eternal love for all His children. We are to seek to develop that kind of love. When you are filled with charity, you obey God’s commandments and do all you can to serve others and help them receive the restored gospel.
-
-
-![see page 132](#)
 Charity is a gift from God. The prophet Mormon said that we should “pray unto the Father with all the energy of heart, that [we] may be filled with this love” (Moroni 7:48). As you follow this counsel and strive to do righteous works, your love for all people will increase, especially those among whom you labor. You will come to feel a sincere concern for the eternal welfare and happiness of other people. You will see them as children of God with the potential of becoming like our Heavenly Father, and you will labor in their behalf. You will avoid negative feelings such as anger, envy, lust, or covetousness. You will avoid judging others, criticizing them, or saying negative things about them. You will try to understand them and their points of view. You will be patient with them and try to help them when they are struggling or discouraged. Charity, like faith, leads to action. You will develop charity as you look for opportunities to serve others and give of yourself.
 
 
-Scripture Study
-===============
+#### Scripture Study (Page 132)
+- What is charity?
+  - Moroni 7:45–48, 1 Corinthians 13, Bible Dictionary, “Charity”
+
+- How did Jesus Christ demonstrate charity?
+  - 1 Nephi 19:9, Alma 7:11–13, Ether 12:33–34, Luke 7:12–15
+
+- What do these verses teach you about charity?
+  - 2 Nephi 26:30, Mosiah 2:17, Mosiah 28:3, Alma 7:24, Ether 12:28, D&C 88:125, 1 Timothy 4:12, 1 Peter 4:8; see footnote a
 
 
-What is charity?
-
-
-Moroni 7:45–48
-
-
-1 Corinthians 13
-
-
-Bible Dictionary, “Charity”
-
-
-How did Jesus Christ demonstrate charity?
-=========================================
-
-
-1 Nephi 19:9 Alma 7:11–13
-Ether 12:33–34
-
-
-Luke 7:12–15
-
-
-What do these verses teach you about charity?
-=============================================
-
-
-2 Nephi 26:30 Mosiah 2:17 Mosiah 28:3
-=====================================
-
-
-Alma 7:24 Ether 12:28 D&C 88:125
-1 Timothy 4:12 1 Peter 4:8; see footnote a
-
-
-Virtue
-======
-
-
+## Virtue (Page 132)
 Virtue originates in your innermost thoughts and desires. It is a pattern of thought and behavior based on high moral standards. Since the Holy Ghost does not dwell in unclean tabernacles, virtue is prerequisite to receiving the Spirit’s guidance. What you choose to think and do when you are alone and you believe no one is watching is a strong measure of your virtue.
-
-
-/
-. y p o c t o n o D . y e w e D n o m S 1 0 0 2 © i
-
-
-6 Christlike Attributes
-=======================
-
-
-thoughts and put unworthy thoughts that lead to inappropriate actions out of their minds. They obey God’s commandments and follow the counsel of Church leaders. They pray for the strength to resist temptation and do what is right. They quickly repent of any sins or wrongdoings. They live worthy of a temple recommend.
-
-
+Virtuous people are clean and pure spiritually. They focus on righteous, uplifting thoughts and put unworthy thoughts that lead to inappropriate actions out of their minds. They obey God’s commandments and follow the counsel of Church leaders. They pray for the strength to resist temptation and do what is right. They quickly repent of any sins or wrongdoings. They live worthy of a temple recommend.
 Your mind is like a stage in a theater; in the theater of your mind, however, only one actor can be on stage at a time. If the stage is left bare, thoughts of darkness and sin often enter the stage to tempt. But these thoughts have no power if the stage of your mind is occupied by wholesome thoughts, such as a memorized hymn or verse of scripture that you can call upon in a moment of temptation. By controlling the stage of your mind, you can successfully resist persistent urges to yield to temptation and indulge in sin. You can become pure and virtuous.
 
+#### Scripture Study (Page 133)
+- What does it mean to be virtuous?
+  - D&C 4:6, D&C 25:2, D&C 38:24
+  - D&C 46:33, D&C 121:45–46, Articles of Faith 1:13
+  - 2 Peter 1:3–8, Topical Guide, “Virtue”
 
-Scripture Study
-===============
-
-
-What does it mean to be virtuous?
-
-
-D&C 4:6 D&C 25:2 D&C 38:24
-D&C 46:33 D&C 121:45–46 Articles of Faith 1:13
-2 Peter 1:3–8 Topical Guide, “Virtue”
-=====================================
-
-
-Notes
-
-
-Knowledge
-=========
-
-
+## Knowledge (Page 133)
 The Lord commanded, “Seek learning, even by study and also by faith” (D&C 88:118). He also warned, “It is impossible for a man to be saved in ignorance” (D&C 131:6). Seek knowledge, especially spiritual knowledge. Study the scriptures every day, and also study the words of the living prophets. Through study and prayer, seek help for your specific questions, challenges, and opportunities. Give special attention to scripture passages you can use as you teach and as you answer questions about the restored gospel. Think about how you can apply gospel principles in your life. As you study diligently, prayerfully, and with pure intent, the Holy Ghost will enlighten your mind, teach you, and help you understand the meaning of the scriptures and the teachings of living prophets. You can also gain knowledge by watching and listening to others, especially Church leaders. Like Nephi, you can say: “My soul delighteth in the scriptures, and my heart pondereth them. . . . Behold, my soul delighteth in the things of the Lord; and my heart pondereth continually upon the things which I have seen and heard” (2 Nephi 4:15–16).
 
+#### Scripture Study (Page 133)
+- How does knowledge assist in doing the Lord’s work?
+  - Alma 17:2–3, D&C 88:77–80
+- How can you obtain knowledge?
+  - 2 Nephi 32:1–5, Moroni 10:5, D&C 42:61, D&C 76:5–10, D&C 88:118
+  - Bible Dictionary, “Knowledge” Topical Guide, “Knowledge”
 
-Scripture Study
-===============
+## Patience (Page 134)
+Patience is the capacity to endure delay trouble, opposition, or suffering without becoming angry, frustrated, or anxious. It is the ability to do God’s will and accept His timing. When you are patient, you hold up under pressure and are able to face adversity calmly and hopefully. Patience is related to hope and faith—you must wait for the Lord’s promised blessings to be fulfilled.
+You need patience in your everyday experiences and relationships, especially with your companion. You must be patient with all people, yourself included, as you work to overcome faults and weaknesses.
 
-
-How does knowledge assist in doing the Lord’s work?
-
-
-Alma 17:2–3
-
-
-D&C 88:77–80
-
-
-How can you obtain knowledge?
+“Life is full of difficulties, some minor and others of a more serious nature. There seems to be an unending supply of challenges for one and all. Our problem is that we often expect instantaneous solutions to such challenges, forgetting that frequently the heavenly virtue of patience is required.” – PRESIDENT THOMAS S. MONSON “PATIENCE—A HEAVENLY VIRTUE,” ENSIGN, NOV. 1995, 59
 
 
-2 Nephi 32:1–5 Moroni 10:5 D&C 42:61
-D&C 76:5–10 D&C 88:118
-Bible Dictionary, “Knowledge” Topical Guide, “Knowledge”
-========================================================
+#### Activity: Personal Study (Page 134)
+- Study Mosiah 28:1–9. What were the desires of the sons of Mosiah?
+- What was the Lord’s counsel to those missionaries? (See Alma 17:10–11 and 26:27.)
+- What were some results of their patience and diligence? (See Alma 26.)
+- Write your answers in your study journal.
 
+#### Scripture Study (Page 134)
+- Why is patience important? How are patience and faith related?
+  - Mosiah 23:21, Mosiah 24:9–16, Alma 31:31, Alma 32:41–43
+  - Alma 34:40–41, D&C 101:38, Romans 5:3–5, Romans 8:24–25
+  - 2 Corinthians 6:1–10, James 5:10–11, Psalm 46:10, Topical Guide, “Patience, Patient, Patiently”
 
-119
-6 Christlike Attributes
-=======================
-
-
-Notes
-
-
-Patience
-========
-
-
-trouble, opposition, or suffering without becoming angry, frustrated, or anxious. It is the ability to do God’s will and accept His timing. When you are patient, you hold up under pressure and are able to face adversity calmly and hopefully. Patience is related to hope and faith—you must wait for the Lord’s promised blessings to be fulfilled.
-
-
-experiences and relationships, especially with your companion. You must be patient with all people, yourself included, as you work to overcome faults and weaknesses.
-
-
-“Life is full of difficulties, some minor and others of a more serious nature. There seems to be an unending supply of challenges for one and all. Our problem is that we often expect instantaneous solutions to such challenges, forgetting that frequently the heavenly virtue of patience is required.”
-
-
-– PRESIDENT THOMAS S. MONSON “PATIENCE—A HEAVENLY VIRTUE,” ENSIGN, NOV. 1995, 59
-
-
-Activity: Personal Study
-========================
-
-
-• Study Mosiah 28:1–9. What were the desires of the sons of Mosiah?
-
-
-• What was the Lord’s counsel to those missionaries? (See Alma 17:10–11 and 26:27.)
-
-
-• What were some results of their patience and diligence? (See Alma 26.)
-
-
-• Write your answers in your study journal.
-
-
-Scripture Study
-===============
-
-
-Why is patience important? How are patience and faith related?
-==============================================================
-
-
-Mosiah 23:21 Mosiah 24:9–16 Alma 31:31 Alma 32:41–43
-Alma 34:40–41 D&C 101:38 Romans 5:3–5 Romans 8:24–25
-2 Corinthians 6:1–10 James 5:10–11 Psalm 46:10 Topical Guide, “Patience, Patient, Patiently”
-============================================================================================
-
-
-Humility
-========
-
-
+## Humility (Page 134)
 Humility is willingness to submit to the will of the Lord and to give the Lord the honor for what is accomplished. It includes gratitude for His blessings and acknowledgment of your constant need for His divine help. Humility is not a sign of weakness; it is a sign of spiritual strength. When you humbly trust Him and acknowledge His power and mercy, you can have the assurance that His commandments are for your good. You are confident that you can do whatever the Lord requires of you if you rely on Him. You are also willing to trust His chosen servants and follow their counsel. Humility will help you as you strive to be obedient, to work hard, and serve selflessly.
+The opposite of humility is pride, which is condemned in the scriptures. To be prideful means to put greater trust in oneself than in God or in His servants. It also means to put the things of the world above the things of God. Prideful people take honor to themselves rather than giving God the glory. Pride is competitive; those who are prideful seek to have more and presume they are better than other people. Pride usually results in feelings of anger and hatred, and it is a great stumbling block.
 
-
-![see page 134](#)
-120
-6 Christlike Attributes
-=======================
-
-
-means to put greater trust in oneself than in God or in His servants. It also means to put the things of the world above the things of God. Prideful people take honor to themselves rather than giving God the glory. Pride is competitive; those who are prideful seek to have more and presume they are better than other people. Pride usually results in feelings of anger and hatred, and it is a great stumbling block.
-
-
-Scripture Study
-
-
-What does it mean to be humble?
-===============================
-
-
-
-
-| 2 Nephi 9:28-29 Mosiah 4:11-12 | Alma 5:26-29 Alma 26:12 | Matthew 26:39 Topical Guide, “Humility, Humble” |
+#### Scripture Study (Page 135)
+- What does it mean to be humble?
+|  |  |  |
 | --- | --- | --- |
+| 2 Nephi 9:28-29 Mosiah 4:11-12 | Alma 5:26-29 Alma 26:12 | Matthew 26:39 Topical Guide, “Humility, Humble” |
 | What blessings do you receive when you humble yourself? | | |
 | Alma 32:1-16 | D&C 67:10 | Matthew 23:12 |
 | Ether 12:27 | D&C 112:10 |  |
@@ -2914,630 +2778,130 @@ What does it mean to be humble?
 | 1 Nephi 15:7-11 | 2 Timothy 3:1-4 | Proverbs 15:10 |
 | 1 Nephi 16:1-3 | Proverbs 13:10 | Proverbs 28:25 |
 
-
-Notes
-
-
-Diligence
-=========
-
-
+## Diligence (Page 135)
 Diligence is steady, consistent, earnest, and energetic effort in doing the Lord’s work. The Lord expects you to work diligently—persistently and with great effort and care. A diligent missionary works effectively and efficiently. Diligence in missionary work is an expression of your love for the Lord and His work. When you are diligent, you find joy and satisfaction in your work.
-
-
 Do many good things of your own free will (see D&C 58:27). Don’t wait for your leaders to tell you what to do. Continue until you have done all you can, even when you are tired. Focus on the most important things and avoid wasting time. Pray for guidance and strength. Plan regularly and effectively. Avoid anything that distracts your thoughts or actions.
+“I have often said one of the greatest secrets of missionary work is work! If a missionary works, he will get the Spirit; if he gets the Spirit, he will teach by the Spirit; and if he teaches by the Spirit, he will touch the hearts of the people and he will be happy. There will be no homesickness, no worrying about families, for all time and talents and interests are centered on the work of the ministry. Work, work, work—there is no satisfactory substitute, especially in missionary work.” – PRESIDENT EZRA TAFT BENSON THE TEACHINGS OF EZRA TAFT BENSON (1988), 200
 
+#### Scripture Study (Page 136)
+- What does it mean to be diligent?
+  - Moroni 9:6 D&C 10:4, D&C 107:99–100
 
-“I have often said one of the greatest secrets of missionary work is work! If a missionary works, he will get the Spirit; if he gets the Spirit, he will teach by the Spirit; and if he teaches by the Spirit, he will touch the hearts of the people and he will be happy. There will be no homesickness, no worrying about families, for all time and talents and interests are centered on the work of the ministry. Work, work, work—there is no satisfactory substitute, especially in missionary work.”
+- Why does the Lord expect you to be diligent?
+  - D&C 75:2–5, D&C 123:12–14, D&C 127:4
 
+- How does diligence relate to agency?
+  - Mosiah 4:26–27, D&C 58:26–29, Topical Guide, “Diligence, Diligent, Diligently” D&C 130:20–21
 
-– PRESIDENT EZRA TAFT BENSON THE TEACHINGS OF EZRA TAFT BENSON (1988), 200
+## Obedience (Page 136)
+As a missionary, you are expected to keep the commandments willingly, to obey mission rules, and to follow the counsel of your leaders. Obedience is the first law of heaven. It is an act of faith. You may sometimes be required to do things you do not completely understand. As you obey, you increase in faith, knowledge, wisdom, testimony, protection, and freedom. Strive to be obedient to the Lord, the living prophet, and your mission president.
+“The discipline contained in daily obedience and clean living and wholesome lives builds an armor around you of protection and safety from the temptations that beset you as you proceed through mortality.” – ELDER L. TOM PERRY “CALLED TO SERVE,” ENSIGN, MAY 1991, 39
 
+#### Scripture Study (Page 136)
+- What does it mean to be obedient?
+  - 1 Nephi 2:3, Mosiah 5:8, Mosiah 15:7
+  - D&C 82:8–10, Matthew 7:24–27, John 7:17
+  - John 14:15, Topical Guide, “Obedience, Obedient, Obey”
 
-121
-6 Christlike Attributes
-=======================
+- What can you learn about obedience from these scriptures?
+  - 1 Nephi 3:7, D&C 105:6, 2 Kings 5:1–14
 
+- Why did the young warriors in Helaman’s army obey with exactness? How were they blessed?
+  = Alma 56:45–48, Alma 57:21–27
 
-Notes
-
-
-Scripture Study
-===============
-
-
-What does it mean to be diligent?
-
-
-Moroni 9:6 D&C 10:4
-===================
-
-
-D&C 107:99–100
-
-
-Why does the Lord expect you to be diligent?
-============================================
-
-
-D&C 75:2–5 D&C 123:12–14
-D&C 127:4
-
-
-How does diligence relate to agency?
-====================================
-
-
-Mosiah 4:26–27
-
-
-D&C 58:26–29
-
-
-Topical Guide, “Diligence, Diligent,
-
-
-Diligently”
-
-
-D&C 130:20–21
-
-
-Obedience
-=========
-
-
-the commandments willingly, to obey mission rules, and to follow the counsel of your leaders. Obedience is the first law of heaven. It is an act of faith. You may sometimes be required to do things you do not completely understand. As you obey, you increase in faith, knowledge, wisdom, testimony, protection, and freedom. Strive to be obedient to the Lord, the living prophet, and your mission president.
-
-
-“The discipline contained in daily obedience and clean living and wholesome lives builds an armor around you of protection and safety from the temptations that beset you as you proceed through mortality.”
-
-
-– ELDER L. TOM PERRY “CALLED TO SERVE,” ENSIGN, MAY 1991, 39
-
-
-Scripture Study
-===============
-
-
-What does it mean to be obedient?
-=================================
-
-
-1 Nephi 2:3 Mosiah 5:8 Mosiah 15:7
-==================================
-
-
-D&C 82:8–10 Matthew 7:24–27 John 7:17
-John 14:15 Topical Guide, “Obedience, Obedient, Obey”
-=====================================================
-
-
-What can you learn about obedience from these scriptures?
-
-
-1 Nephi 3:7
-
-
-D&C 105:6
-
-
-2 Kings 5:1–14
-
-
-Why did the young warriors in Helaman’s army obey with exactness? How were they blessed?
-
-
-Alma 56:45–48
-
-
-Alma 57:21–27
-
-
-Developing Christlike Attributes
-================================
-
-
+## Developing Christlike Attributes (Page 136)
 As you study and seek to develop the attributes described in this chapter and other attributes found in the scriptures, the following pattern may be helpful:
+- Identify the attribute you wish to develop.
+- Write a definition and description of the attribute.
+- Record questions to answer as you study.
+- List and study thoroughly passages of scripture that teach about the attribute.
+- Record your feelings and impressions.
+- Set goals and make plans to apply the attribute in your life.
+- Pray for the Lord to help you develop the attribute.
+- Evaluate your progress periodically in developing each attribute.
 
-
-• Identify the attribute you wish to develop.
-
-
-• Write a definition and description of the attribute.
-
-
-• Record questions to answer as you study.
-
-
-122
-6 Christlike Attributes
-=======================
-
-
-• List and study thoroughly passages of scripture that teach about the attribute.
-
-
-• Record your feelings and impressions.
-
-
-• Set goals and make plans to apply the attribute in your life.
-
-
-• Pray for the Lord to help you develop the attribute.
-
-
-• Evaluate your progress periodically in developing each attribute.
-
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 137)
 Identify an attribute from this chapter or from the scriptures. Follow the pattern found above to understand better and to plan for developing the attribute.
-
 
 Look at the image of the name tag. How does your name tag differ from that worn by an employee of a company? Note that the two most prominent parts are your name and the Savior’s name. How can you ensure that you represent the Savior as one of His disciples? Why is it important for people to associate your name with the Savior’s in a positive way? Write your thoughts in your study journal.
 
-
-![see page 137](#)
-Scripture Study
-===============
-
-
-What are some attributes listed in the scriptures?
-==================================================
-
-
-Mosiah 3:19 Alma 7:23 D&C 4
-===========================
-
-
-D&C 121:41–45 Articles of Faith 1:13
-====================================
-
-
-Philippians 4:8 2 Peter 1:5–8
-=============================
-
-
-\
-Remember This
-=============
-
-
-• You need to be a Christlike missionary, not just do missionary things.
-
-
-• Learning to be like Christ is a lifelong pursuit.
-
-
-• You follow Christ’s example—develop His attributes—one action and decision at a time.
-
-
-• Changing to become Christlike requires exercising faith, repenting, keeping covenants, receiving an increased measure of the Holy Ghost, and enduring to the end.
-
-
-Notes
-
-
-123
-6 Christlike Attributes
-=======================
-
-
-Notes
-
-
-Ideas for Study and Application
-===============================
-
-
-Personal Study
-==============
-
-
-• Prepare a five-minute talk on one of the attributes discussed in this chapter.
-
-
-• Using the Topical Guide, look for ways the Savior has exemplified the attributes described in this chapter. Record what you learn in your study journal.
-
-
-• Periodically complete the “Attribute Activity” at the end of this chapter.
-
-
-• Identify an attribute in this chapter. Ask yourself:
-
-
-– How can I develop this attribute?
-
-
-– What must change in my heart, mind, and actions to develop this attribute?
-
-
-– How will keeping covenants help me develop this attribute?
-
-
-– How will developing this attribute help me qualify for the Holy Spirit and become a more powerful minister of the gospel of Jesus Christ?
-
-
-• Find examples of Christlike attributes in the lives of men and women in the scriptures. Record your impressions in your study journal.
-
-
-Companion Study
-===============
-
-
-• Study references to Christlike attributes in the missionary library.
-
-
-• Discuss relationships among different attributes. For example:
-
-
-– How does faith relate to diligence?
-
-
-– In what ways are humility and love related?
-
-
-– How does knowledge strengthen patience?
-
-
-District Meetings and Zone Conferences
-======================================
-
-
-• Several days before district meeting or zone conference, ask each missionary to select one of the attributes in this chapter or in the scriptures and prepare a five- minute talk on that attribute, including scriptures that have helped him or her.
-
-
-Allow time in the meeting for a few missionaries to share their talks.
-
-
-• Divide the missionaries into three groups, and give them the following assignment:
-
-
-Group 1: Read 1 Nephi 17:7–16 and answer the following questions: – How did Nephi exercise his faith? – What did Nephi do that was Christlike? – What promises did the Lord make to Nephi if he would be faithful and keep the
-
-
-commandments?
-
-
-– How does this account apply to missionary work?
-
-
-Group 2: Read Jacob 7:1–15 and answer the following questions: – Why was Jacob’s faith strong enough to resist Sherem’s attack? – How did Jacob exercise faith when he talked with Sherem? – How were Jacob’s actions Christlike? – What can we do to develop faith like Jacob’s?
-
-
-124
-Group 3: Read Joseph Smith—History 1:8–18, and answer the following questions: – In what ways did Joseph Smith exercise faith in Jesus Christ? – How was his faith tried? – What did he do that was Christlike? – What can we do to follow Joseph Smith’s example?
+#### Scripture Study (Page 137)
+- What are some attributes listed in the scriptures?
+  - Mosiah 3:19, Alma 7:23, D&C 4, D&C 121:41–45, Articles of Faith 1:13, Philippians 4:8, 2 Peter 1:5–8
+
+#### Remember This (Page 137)
+- You need to be a Christlike missionary, not just do missionary things.
+- Learning to be like Christ is a lifelong pursuit.
+- You follow Christ’s example—develop His attributes—one action and decision at a time.
+- Changing to become Christlike requires exercising faith, repenting, keeping covenants, receiving an increased measure of the Holy Ghost, and enduring to the end.
+
+## Ideas for Study and Application (Page 138)
+
+### Personal Study (Page 138)
+- Prepare a five-minute talk on one of the attributes discussed in this chapter.
+- Using the Topical Guide, look for ways the Savior has exemplified the attributes described in this chapter. Record what you learn in your study journal.
+- Periodically complete the “Attribute Activity” at the end of this chapter.
+- Identify an attribute in this chapter. Ask yourself:
+- How can I develop this attribute?
+- What must change in my heart, mind, and actions to develop this attribute?
+- How will keeping covenants help me develop this attribute?
+- How will developing this attribute help me qualify for the Holy Spirit and become a more powerful minister of the gospel of Jesus Christ?
+- Find examples of Christlike attributes in the lives of men and women in the scriptures. Record your impressions in your study journal.
+
+### Companion Study (Page 138)
+- Study references to Christlike attributes in the missionary library.
+- Discuss relationships among different attributes. For example:
+- How does faith relate to diligence?
+- In what ways are humility and love related?
+- How does knowledge strengthen patience?
+
+### District Meetings and Zone Conferences (Page 138)
+- Several days before district meeting or zone conference, ask each missionary to select one of the attributes in this chapter or in the scriptures and prepare a five- minute talk on that attribute, including scriptures that have helped him or her. Allow time in the meeting for a few missionaries to share their talks.
+- Divide the missionaries into three groups, and give them the following assignment:
+  Group 1: Read 1 Nephi 17:7–16 and answer the following questions:
+    - How did Nephi exercise his faith?
+    - What did Nephi do that was Christlike?
+    - What promises did the Lord make to Nephi if he would be faithful and keep the commandments?
+    - How does this account apply to missionary work?
+
+
+  Group 2: Read Jacob 7:1–15 and answer the following questions:
+    - Why was Jacob’s faith strong enough to resist Sherem’s attack?
+    - How did Jacob exercise faith when he talked with Sherem?
+    - How were Jacob’s actions Christlike?
+    - What can we do to develop faith like Jacob’s?
+
+  Group 3: Read Joseph Smith—History 1:8–18, and answer the following questions:
+    - In what ways did Joseph Smith exercise faith in Jesus Christ?
+    - How was his faith tried?
+    - What did he do that was Christlike?
+    - What can we do to follow Joseph Smith’s example?
 
 
 After the groups finish, bring the missionaries together and ask them to share what they discussed.
-
-
-• Share an experience of when you were blessed or inspired by another person’s faith.
-
-
-• Have missionaries refer to the “Attribute Activity.” Give each missionary a piece of paper on which to write his or her answers.
-
-
-When they have completed the worksheet, invite them to set personal goals.
-
-
-Ask a few of the missionaries to share what they learned and felt as they completed the worksheet.
-
-
-Share your testimony concerning the importance of developing Christlike attributes.
-
-
-Mission President
-=================
-
-
-• Ask missionaries to read one of the four Gospels in the New Testament or 3 Nephi 11–28. Have them underline what the Savior did that they can also do.
-
-
-• Use goal setting and planning to teach missionaries about diligence. Show how diligence in focusing on people is an expression of love.
-
-
-• During interviews, ask missionaries to talk about an attribute they are trying to develop.
-
-
-• In a zone conference, invite missionaries to tell about Christlike attributes they admire in their companions.
-
-
-6 Christlike Attributes
-=======================
-
-
-Notes
-
-
-125
-6 Christlike Attributes
-=======================
-
-
-ATTRIBUTE ACTIVITY
-==================
-
-
-Read each item below carefully. Decide how true that statement is about you, and choose the most appropriate response from the response key. Write your response to each item in your study journal. Spiritual growth is a gradual process, and no one is perfect, so you should expect to rate yourself better on some items than on others.
-
-
-Response Key 1 = never 2 = sometimes 3 = often 4 = almost always 5 = always
-
-
-F a i t h
-=========
-
-
-—
-1. I believe in Christ and accept Him as my Savior. (2 Nephi 25:29)
-
-
-—
-2. I feel confident that God loves me. (1 Nephi 11:17)
-
-
-* 3. I trust the Savior enough to accept His will and do whatever He asks. (1 Nephi 3:7) 4. I firmly believe that through the Atonement of Jesus Christ I can be forgiven of all my sins. (Enos 1:5–8)
-
-
-5. I have enough faith in Christ to obtain
-
-
-answers to my prayers. (Mosiah 27:14) 6. I think about the Savior during the day and
-
-
-remember what He has done for me. (D&C 20:77, 79)
-
-
-7. I have the faith necessary to help make good things happen in my life or the lives of others. (Ether 12:12)
-
-
-8. I know by the power of the Holy Ghost that the Book of Mormon is true. (Moroni 10:3–5)
-
-
-9. I have enough faith in Christ to accomplish anything He wants me to do—even miracles if necessary. (Moroni 7:33)
-
-
-H o p e
-=======
-
-
-10. One of my greatest desires is to inherit eternal life in the celestial kingdom of God. (Moroni 7:41)
-
-
-—10.
-11. I am confident that I will have a happy and
-
-
-|
-successful mission. (D&C 31:3–5) 12. I feel peaceful and optimistic about the
-
-
-future. (D&C 59:23)
-
-
-12
-13. I firmly believe that someday I will dwell with God and become like Him. (Ether 12:4)
-
-
-13
-Char ity an d Love
-==================
-
-
-14. I feel a sincere desire for the eternal welfare and happiness of other people. (Mosiah 28:3)
-
-
-141
-15. When I pray, I ask for charity—the pure
-
-
-love of Christ. (Moroni 7:47–48) 16. I try to understand others’ feelings and see their point of view. (Jude 1:22) 17. I forgive others who have offended or wronged me. (Ephesians 4:32) 18. I try to help others when they are
-
-
-\_16.
-\_18.1try to help others when they are struggling or discouraged. (Mosiah 18:9)
-
-
-struggling or discouraged. (Mosiah 18:9) 19. When appropriate, I tell others that I love
-
-
-them and care about them. (Luke 7:12–15)
-
-
-\_19.
-20. I look for opportunities to serve other people. (Mosiah 2:17)
-
-
-21. I say positive things about others. (D&C 42:27)
-
-
-22. I am kind and patient with others, even when they are hard to get along with. (Moroni 7:45)
-
-
-23. I find joy in others’ achievements. (Alma 17:2–4)
-
-
-Vir tue
-=======
-
-
-24. I am clean and pure in heart. (Psalm 24:3–4)
-
-
-25. I have no desire to do evil but to do good. (Mosiah 5:2)
-
-
-26. I am dependable—I do what I say I will do. (Alma 53:20)
-
-
-27. I focus on righteous, uplifting thoughts and put unwholesome thoughts out of my mind. (D&C 121:45)
-
-
-28. I repent of my sins and strive to overcome my weaknesses. (D&C 49:26–28)
-
-
-29. I feel the influence of the Holy Ghost in my life. (D&C 11:12–13)
-
-
-Knowledge
-=========
-
-
-30. I feel confident in my understanding of gospel doctrines and principles. (Ether 3:19–20)
-
-
-* 31. I study the scriptures daily. (John 5:39) 32. I earnestly seek to understand the truth and find answers to my questions. (D&C 6:7) 33. I receive knowledge and guidance through
-
-
-the Spirit. (1 Nephi 4:6)
-
-
-34. I love and cherish the doctrines and principles of the gospel. (2 Nephi 4:15)
-
-
-Patien ce
-=========
-
-
-35. I wait patiently for the blessings and promises of the Lord to be fulfilled. (2 Nephi 10:17)
-
-
-\_35.1
-36. I am able to wait for things without getting
-
-
-upset or frustrated. (Romans 8:25) 37. I am patient and long-suffering with the challenges of being a missionary. (Alma 17:11)
-
-
-38. I am patient with the faults and
-
-
-weaknesses of others. (Romans 15:1) 39. I am patient with myself and rely on the
-
-
-Lord as I work to overcome my weaknesses. (Ether 12:27)
-
-
-40. I face adversity and afflictions calmly and hopefully. (Alma 34:40–41)
-
-
-Humility
-========
-
-
-41. I am meek and lowly in heart. (Matthew 11:29)
-
-
-42
-* 42. I rely on the Lord for help. (Alma 26:12) 43. I am sincerely grateful for the blessings I have received from the Lord. (Alma 7:23) 44. My prayers are earnest and sincere. (Enos
-
-
-1:4)
-
-
-\_44.
-45. I appreciate direction from my leaders or teachers. (2 Nephi 9:28)
-
-
-451
-46. I strive to be submissive to the Lord’s will, whatever it may be. (Mosiah 24:15)
-
-
-\_\_\_\_46.
-Diligen ce
-==========
-
-
-47. I work effectively, even when I’m not under pressure or close supervision. (D&C 58:26–27)
-
-
-\_\_\_\_47.1
-48. I focus my efforts on the most important things. (Matthew 23:23)
-
-
-49. I have a personal prayer at least twice a day. (Alma 34:18–27)
-
-
-50. I focus my thoughts on my calling as a missionary. (D&C 4:2, 5)
-
-
-\_50.
-51. I set goals and plan regularly. (D&C 88:119)
-
-
-52. I work hard until the job is completed successfully. (D&C 10:4)
-
-
-\_52.1
-53. I find joy and satisfaction in my work. (Alma 36:24–25)
-
-
-Obedien ce
-==========
-
-
-54. When I pray, I ask for strength to resist temptation and to do what is right. (3 Nephi 18:15)
-
-
-54,
-\_
-55. I keep the required commandments to be worthy of a temple recommend. (D&C 97:8)
-
-
-\_
-56. I willingly obey the mission rules and follow the counsel of my leaders. (Hebrews 13:17)
-
-
-\_
-57. I strive to live in accordance with the laws and principles of the gospel. (D&C 41:5)
-
-
-126
-ryy'
-====
-
-
-Vi
-==
-
-
-7 Learn the Language
-====================
-
-
-How Can I Better Learn My Mission Language?
-===========================================
-
-
-Consider This
-=============
-
-
-• Why must I continually improve my language abilities?
-
-
-• How can I improve my ability to speak and teach in my mission language?
-
-
-• How can I obtain the gift of tongues?
-
-
-* 
-
-
-%
-Notes
-
-
-Prepare Yourself Spiritually
-============================
-
-
-and in his own language, through those who are ordained unto this power” (D&C 90:11). Strengthen your personal testimony to bring converting power to your words. First study the doctrines and the lessons in your native language. That understanding will strengthen your testimony and your capacity to teach and testify convincingly. You can then learn to express the message of the Restoration in your mission language under the guidance of the Spirit.
+- Share an experience of when you were blessed or inspired by another person’s faith.
+- Have missionaries refer to the “Attribute Activity. - Page 140” Give each missionary a piece of paper on which to write his or her answers.
+- When they have completed the worksheet, invite them to set personal goals.
+- Ask a few of the missionaries to share what they learned and felt as they completed the worksheet.
+- Share your testimony concerning the importance of developing Christlike attributes.
+
+
+### Mission President (Page 139)
+- Ask missionaries to read one of the four Gospels in the New Testament or 3 Nephi 11–28. Have them underline what the Savior did that they can also do.
+- Use goal setting and planning to teach missionaries about diligence. Show how diligence in focusing on people is an expression of love.
+- During interviews, ask missionaries to talk about an attribute they are trying to develop.
+- In a zone conference, invite missionaries to tell about Christlike attributes they admire in their companions.
+
+> Beginning of chapter 7 of 13 chapters in the preach my gospel manual
+# How Can I Better Learn My Mission Language? (Page 141)
+
+#### Consider This (Page 141)
+- Why must I continually improve my language abilities?
+- How can I improve my ability to speak and teach in my mission language?
+- How can I obtain the gift of tongues?
+
+## Prepare Yourself Spiritually (Page 141)
+The Lord declared, “Every man shall hear the fulness of the gospel in his own tongue, and in his own language, through those who are ordained unto this power” (D&C 90:11). Strengthen your personal testimony to bring converting power to your words. First study the doctrines and the lessons in your native language. That understanding will strengthen your testimony and your capacity to teach and testify convincingly. You can then learn to express the message of the Restoration in your mission language under the guidance of the Spirit.
 
 
 Listed below are ways you can strengthen your faith that the Lord will help you teach and testify in your mission language:
