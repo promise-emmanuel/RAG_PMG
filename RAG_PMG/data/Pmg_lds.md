@@ -2264,36 +2264,23 @@ Ponder the following statements concerning sincere prayer:
 - D&C 50:29–30 Bible Dictionary, “Prayer”
 
 
-Learn to Recognize the Promptings of the Spirit
-===============================================
-
-
+## Learn to Recognize the Promptings of the Spirit (Page 110)
 The Spirit is always available to guide and direct you. However, the Spirit speaks quietly, through your feelings as well as your mind. One great challenge for you and those you work with is to recognize the quiet, subtle promptings of the Holy Ghost.
-
-
 President Boyd K. Packer taught: “The voice of the Spirit is described in the scripture as being neither ‘loud’ nor ‘harsh.’ It is ‘not a voice of thunder, neither . . . voice of a great tumultuous noise.’ But rather, ‘a still voice of perfect mildness, as if it had been a whisper,’ and it can ‘pierce even to the very soul’ and ‘cause [the heart] to burn.’ (3 Ne. 11:3; Hel. 5:30; D&C 85:6–7.) Remember, Elijah found the voice of the Lord was not in the wind, nor in the earthquake, nor in the fire, but was a ‘still small voice.’ (1 Kgs. 19:12.)
-
-
 “The Spirit does not get our attention by shouting or shaking us with a heavy hand. Rather it whispers. It caresses so gently that if we are preoccupied we may not feel it at all. (No wonder that the Word of Wisdom was revealed to us, for how could the drunkard or the addict feel such a voice?)
-
-
 “Occasionally it will press just firmly enough for us to pay heed. But most of the time, if we do not heed the gentle feeling, the Spirit will withdraw and wait until we come seeking and listening and say in our manner and expression, like Samuel of ancient times, ‘Speak [Lord], for thy servant heareth.’ (1 Sam. 3:10.)” (“The Candle of the Lord,” Ensign, Jan. 1983, 53).
-
-
 Many voices in the world compete for your attention, and they can easily drown out spiritual impressions if you are not careful.
+In answer to the question, “How do we recognize the promptings of the Spirit?” President Gordon B. Hinckley read Moroni 7:13, 16–17 and then said: “That’s the test, when all is said and done. Does it persuade one to do good, to rise, to stand tall, to do the right thing, to be kind, to be generous? Then it is of the Spirit of God. . . .
+“If it invites to do good, it is of God. If it inviteth to do evil, it is of the devil. . . . And if you are doing the right thing and if you are living the right way, you will know in your heart what the Spirit is saying to you.
+“You recognize the promptings of the Spirit by the fruits of the Spirit—that which enlighteneth, that which buildeth up, that which is positive and affirmative and uplifting and leads us to better thoughts and better words and better deeds is of the Spirit of God” (Teachings of Gordon B. Hinckley, 260–61).
+God answers your prayers through personal inspiration and revelation. Through the Holy Ghost He will guide you in your finding efforts, as you teach the restored gospel, and as you strengthen less-active members and new converts. Your task is to live worthily, pray fervently, and learn to recognize and follow courageously the Spirit’s guidance.
 
-
-Activity: Personal or Companion Study
-=====================================
-
-
+#### Activity: Personal or Companion Study (Page 110)
 Study the following table. Think of times when you have experienced any of the feelings, thoughts, or impressions described in the passages below. As you study and gain experience, add other passages to this list. Think of how you can use these principles to help others feel and recognize the Spirit.
 
-
-
-
-| D&C 6:23; 11:12-14; Romans 15:13; Galatians 5:22-23 | Gives feelings of love, joy, peace, patience, meekness, gentleness, faith, and hope. |
+| Scriptures | Principles
 | --- | --- |
+| D&C 6:23; 11:12-14; Romans 15:13; Galatians 5:22-23 | Gives feelings of love, joy, peace, patience, meekness, gentleness, faith, and hope. |
 | D&C 8:2-3 | Gives ideas in the mind, feelings in the heart. |
 | D&C 128:1 | Occupies the mind and presses on the feelings. |
 | Joseph Smith—History 1:11-12 | Helps scriptures have strong effect. |
@@ -2307,17 +2294,7 @@ Study the following table. Think of times when you have experienced any of the f
 | Moroni 10:5 | Reveals truth. |
 | D&C 45:57 | Guides and protects from deception. |
 | 2 Nephi 31:18; D&C 20:27; John 16:14 | Glorifies and bears record of God the Father and Jesus Christ. |
-
-
-96
-4 Recognize the Spirit
-======================
-
-
-
-
 | D&C 42:16; 84:85; 100:5-8; Luke 12:11-12 | Guides the words of humble teachers. |
-| --- | --- |
 | John 16:8 | Recognizes and corrects sin. |
 | Moroni 10:8-17; D&C 46:8-26; 1 Corinthians 12 | Gives gifts of the Spirit. |
 | Alma 10:17; 12:3; 18:16, 20, 32, 35; D&C 63:41 | Helps to perceive or discern the thoughts of others. |
@@ -2330,401 +2307,116 @@ Study the following table. Think of times when you have experienced any of the f
 | 1 Nephi 1:1-3; Exodus 31:3-5 | Enhances skills and abilities. |
 | 1 Nephi 7:15; 2 Nephi 28:1; 32.7; Alma 14:11; Mormon 3:16; Ether 12:2 | Constrains (impels forward) or restrains (holds back). |
 | D&C 50:13-22 | Edifies both teacher and students. |
-| D&C 88:3; John 14:26 | Gives comfort. | | | | |
+| D&C 88:3; John 14:26 | Gives comfort. |
 
-
-N
-=
-
-
-In answer to the question, “How do we recognize the promptings of the Spirit?” President Gordon B. Hinckley read Moroni 7:13, 16–17 and then said: “That’s the test, when all is said and done. Does it persuade one to do good, to rise, to stand tall, to do the right thing, to be kind, to be generous? Then it is of the Spirit of God. . . .
-
-
-“If it invites to do good, it is of God. If it inviteth to do evil, it is of the devil. . . . And if you are doing the right thing and if you are living the right way, you will know in your heart what the Spirit is saying to you.
-
-
-“You recognize the promptings of the Spirit by the fruits of the Spirit—that which enlighteneth, that which buildeth up, that which is positive and affirmative and uplifting and leads us to better thoughts and better words and better deeds is of the Spirit of God” (Teachings of Gordon B. Hinckley, 260–61).
-
-
-God answers your prayers through personal inspiration and revelation. Through the Holy Ghost He will guide you in your finding efforts, as you teach the restored gospel, and as you strengthen less-active members and new converts. Your task is to live worthily, pray fervently, and learn to recognize and follow courageously the Spirit’s guidance.
-
-
-Relying on the Spirit
-=====================
-
-
+## Relying on the Spirit (Page 111)
 As the Lord’s servant, you are to do His work in His way and by His power. Some missionaries feel confident that they know how to be successful. Others lack such confidence. Remember, however, that your confidence and faith should be in Christ, not in yourself. Rely on the Spirit rather than your own talents and abilities. Trust the Spirit to guide you in every aspect of your work. The Prophet Joseph Smith taught that the Spirit is basic to teaching and preaching:
-
-
 “No man can preach the Gospel without the Holy Ghost” (History of the Church, 2:477). “Some few were called and ordained by the Spirit of revelation and prophecy, and began to preach as the Spirit gave them utterance, and though weak, yet were they strengthened by the power of God” (History of the Church, 4:538).
-
-
-Notes
-
-
-97
-4 Recognize the Spirit
-======================
-
-
-Notes
-
-
 “[Joseph Smith] proceeded to give instruction to the Elders respecting preaching the Gospel, and pressed upon them the necessity of getting the Spirit, so that they might preach with the Holy Ghost sent down from heaven” (History of the Church, 4:13).
-
-
-questions every day—even many times each day (see the Scripture Study box that follows for examples of questions). Seek inspiration to answer these questions in a way that meets each situation. The answers should then take shape in your plans. But you should also be willing to follow the Spirit and change your plans when unforeseen opportunities arise.
-
-
+During your weekly and daily planning sessions, you will need to ask some basic questions every day—even many times each day (see the Scripture Study box that follows for examples of questions). Seek inspiration to answer these questions in a way that meets each situation. The answers should then take shape in your plans. But you should also be willing to follow the Spirit and change your plans when unforeseen opportunities arise.
 Study the following scriptures and consider how they answer these important questions that you should ask each day. Consider what these passages mean for your finding efforts, planning sessions, and personal and companion study. Also consider their meaning as you teach the lessons, invite people to make commitments, follow up on commitments, strengthen new members and less-active members, and work with members.
 
+#### Scripture Study (page 112)
+ - Where should I go?
+  - Helaman 10:17, D&C 31:11
+  - D&C 75:26–27, D&C 79:1–2
 
-Scripture Study
-
-
-Where should I go?
-==================
-
-
-Helaman 10:17 D&C 31:11
-What should I do?
+- What should I do?
+  - 1 Nephi 4:6, 2 Nephi 32:2–5
+  - D&C 28:15, D&C 52:3–4
 
 
-1 Nephi 4:6 2 Nephi 32:2–5
-What should I say?
-==================
+- What should I say?
+  - 2 Nephi 33:1, Alma 5:43–46, Alma 11:22, Helaman 5:18, Helaman 13:3–5
+  - D&C 33:8–10, D&C 50:13–22, D&C 68:1–4, D&C 75:3–11, D&C 100:5–8
+  - Matthew 10:19–20, Mark 13:11, 1 Corinthians 2:4–5...12–13, Exodus 4:10–12
+
+- How do I adapt my teaching to the needs of my investigators?
+  - Alma 12:7, Alma 41:1
+  - 3 Nephi 17:2–3, D&C 71:1, D&C 84:85
+
+- Which scriptures should I use and how should I use them?
+  - Mosiah 18:19-20, D&C 32:4, D&C 71:1 
+  - Mosiah 27:35, D&C 42:11-17, D&C 80:4 
+  = D&C 18:32-36, D&C 68:1-4, Luke 24:13-32 
 
 
-2 Nephi 33:1 Alma 5:43–46 Alma 11:22 Helaman 5:18 Helaman 13:3–5
-================================================================
-
-
-Alma 12:7 Alma 41:1
-===================
-
-
-D&C 75:26–27 D&C 79:1–2
-D&C 28:15 D&C 52:3–4
-D&C 33:8–10 D&C 50:13–22 D&C 68:1–4 D&C 75:3–11 D&C 100:5–8
-3 Nephi 17:2–3 D&C 71:1
-Matthew 10:19–20 Mark 13:11 1 Corinthians 2:4–5, 12–13 Exodus 4:10–12
-How do I adapt my teaching to the needs of my investigators?
-============================================================
-
-
-D&C 84:85
-
-
-Which scriptures should I use and how should I use them?
-========================================================
-
-
-
-
-| Mosiah 18:19-20 | D&C 32:4 | D&C 71:1 |
-| --- | --- | --- |
-| Mosiah 27:35 | D&C 42:11-17 | D&C 80:4 |
-| D&C 18:32-36 | D&C 68:1-4 | Luke 24:13-32 |
-
-
-/
-A Word of Caution
-=================
-
-
+## A Word of Caution (Page 112)
 As you pray for inspiration, you should also confirm your feelings. For example, compare your decisions with the scriptures and the teachings of the living prophets. Be certain that the feelings are consistent with the assignment you have; for example, you will not receive revelation to tell a local bishop how he should perform in his calling. Discuss your decisions and conclusions with your companion, your district leader, or your mission president when appropriate.
-
-
-98
-4 Recognize the Spirit
-======================
-
-
 President Howard W. Hunter offered this counsel: “Let me offer a word of caution. . . . I think if we are not careful . . . , we may begin to try to counterfeit the true influence of the Spirit of the Lord by unworthy and manipulative means. I get concerned when it appears that strong emotion or free-flowing tears are equated with the presence of the Spirit. Certainly the Spirit of the Lord can bring strong emotional feelings, including tears, but that outward manifestation ought not to be confused with the presence of the Spirit itself” (The Teachings of Howard W. Hunter, 184). The Spirit of the Lord always edifies.
-
-
-“If worthy, we are entitled to receive revelations for ourselves, parents for their children, and members of the Church in their callings. But the right of revelation for others does not extend
-
-
 Revelation and spiritual experiences are sacred. They should be kept private and discussed only in appropriate situations. As a missionary, you may be more aware of spiritual experiences than you have been earlier in your life. Resist the temptation to talk freely about these experiences.
-
-
-beyond our own
-==============
-
-
-stewardship.”
-=============
-
-
-– PRESIDENT JAMES E. FAUST “COMMUNION WITH THE HOLY SPIRIT,” ENSIGN, MAR. 2002, 4
-
-
 President Boyd K. Packer counseled: “I have learned that strong, impressive spiritual experiences do not come to us very frequently. And when they do, they are generally for our own edification, instruction, or correction. Unless we are called by proper authority to do so, they do not position us to counsel or to correct others.
-
-
 “I have come to believe also that it is not wise to continually talk of unusual spiritual experiences. They are to be guarded with care and shared only when the Spirit itself prompts you to use them to the blessing of others” (Ensign, Jan. 1983, 53).
+“If worthy, we are entitled to receive revelations for ourselves, parents for their children, and members of the Church in their callings. But the right of revelation for others does not extend beyond our own stewardship.” – PRESIDENT JAMES E. FAUST “COMMUNION WITH THE HOLY SPIRIT,” ENSIGN, MAR. 2002, 4.
 
-
-Scripture Study
-===============
-
-
+#### Scripture Study (Page 113)
 Relying on the Spirit is so important that the Lord warns us very strongly not to deny or quench the Spirit. What do you learn from the following passages of scripture?
-
-
-Jacob 6:8–9 3 Nephi 29:5–6
-Mormon 9:7–9 Moroni 10:7–8
-==========================
-
-
-D&C 11:25–26 1 Thessalonians 5:19–20
-Notes
-=====
-
-
-Remember This
-=============
-
-
-• Pray with faith that your prayers will be answered.
-
-
-• Learn to understand, recognize, and follow the promptings of the Spirit.
-
-
-• Learn to rely on the Spirit to show you where to go, what to do, and what to say.
-
-
-• Teach others how to recognize the Spirit.
-
-
-99
-4 Recognize the Spirit
-======================
-
-
-Notes
-
-
-Ideas for Study and Application
-===============================
-
-
-Personal Study
-==============
-
-
-• Record your spiritual experiences in your journal. For example, answer questions such as: Have I understood something better as I have studied the scriptures? Have I had unusual opportunities to meet people with whom I could share a message? Have I been given words to say at the moment I needed them? Have I had strong feelings of love for the people I have met? How have my prayers been answered?
-
-
-• Divide a page into two columns. Label one column “What the Lord Did” and the other column “What Lehi or Nephi Did.” Read the story of the Liahona and the broken bow (1 Nephi 16:9–30) or the story of Nephi building a ship (1 Nephi 17:7–16; 18:1–6). As you read, list events from the story in the appropriate columns. Consider what the story can teach you about the nature of inspiration.
-
-
-• Look through your journal and find occasions when you have been led by the Spirit or have experienced revelation or another gift of the Spirit. Think about when, where, and why these experiences happened. Did you do anything in particular to prepare yourself for such an experience? How was the Lord’s hand manifest in the experience? How did you feel? What can you do to have similar experiences? Remembering these experiences can help you recognize and receive the Spirit once again.
-
-
-• The book of Acts in the Bible has been called the “Book of the Acts of the Holy Spirit through the Apostles.” Read the chapter headings of the book of Acts and explain why this title may be appropriate. Find evidence to justify your explanation.
-
-
-• Study and ponder the following counsel. How does it relate to your daily proselyting activities?
-
-
-“Tell the brethren to be humble and faithful and be sure to keep the Spirit of the Lord, that it will lead them aright. Be careful and not turn away the still, small voice; it will teach them what to do and where to go; it will yield the fruits of the kingdom. Tell the brethren to keep their heart open to conviction, so that when the Holy Ghost comes to them their hearts will be ready to receive it. They can tell the Spirit of the Lord from all other spirits—it will whisper peace and joy to their souls; it will take malice, hatred, strife and all evil from their hearts, and their whole desire will be to do good” (quoted in Juvenile Instructor, 19 July 1873, 114).
-
-
-The Prophet Joseph Smith gave this counsel to Brigham Young in a dream almost three years after Joseph Smith’s death. If you were in Brigham Young’s place and received this counsel, what would you do?
-
-
-• Study Alma 33:1–12; 34:17–29, 38. What questions was Alma answering? (Review Alma 33:1–2.) How did Alma answer these questions? What assurances did he give that God hears and answers prayers?
-
-
-• The Lord has promised that the Spirit will guide us in many important ways. As you read the following passages, identify aspects of your work that require the guidance of the Spirit. What do the commandments and promises contained in the following scriptures mean for your personal and companion study? for district meetings, zone conferences, baptismal services, and other meetings?
-
-
-Praying
-=======
-
-
-3 Nephi 19:24
-
-
-D&C 50:30
-
-
-D&C 46:30
-
-
-Romans 8:26
-
-
-100
-Conducting meetings
-
-
-Moroni 6:9
-
-
-D&C 20:45
-
-
-D&C 46:2
-
-
-Writing
-
-
-D&C 9:9 D&C 24:6
-D&C 47:4 D&C 104:81
-D&C 124:4 Moses 6:6
-• Read the following scripture passages (including the headings to these sections).
-
-
-D&C 60:1–5
-
-
-D&C 61:1–4, 21–22
-
-
-D&C 62:4–8
-
-
-In this account, what was very important to the Lord?
-
-
-What did not matter to the Lord?
-
-
+- Jacob 6:8–9 3 Nephi 29:5–6
+- Mormon 9:7–9 Moroni 10:7–8
+- D&C 11:25–26 1 Thessalonians 5:19–20
+
+#### Remember This (Page 113)
+- Pray with faith that your prayers will be answered.
+- Learn to understand, recognize, and follow the promptings of the Spirit.
+- Learn to rely on the Spirit to show you where to go, what to do, and what to say.
+- Teach others how to recognize the Spirit.
+
+## Ideas for Study and Application (Page 114)
+### Personal Study (Page 114)
+- Record your spiritual experiences in your journal. For example, answer questions such as: Have I understood something better as I have studied the scriptures? Have I had unusual opportunities to meet people with whom I could share a message? Have I been given words to say at the moment I needed them? Have I had strong feelings of love for the people I have met? How have my prayers been answered?
+- Divide a page into two columns. Label one column “What the Lord Did” and the other column “What Lehi or Nephi Did.” Read the story of the Liahona and the broken bow (1 Nephi 16:9–30) or the story of Nephi building a ship (1 Nephi 17:7–16; 18:1–6). As you read, list events from the story in the appropriate columns. Consider what the story can teach you about the nature of inspiration.
+- Look through your journal and find occasions when you have been led by the Spirit or have experienced revelation or another gift of the Spirit. Think about when, where, and why these experiences happened. Did you do anything in particular to prepare yourself for such an experience? How was the Lord’s hand manifest in the experience? How did you feel? What can you do to have similar experiences? Remembering these experiences can help you recognize and receive the Spirit once again.
+- The book of Acts in the Bible has been called the “Book of the Acts of the Holy Spirit through the Apostles.” Read the chapter headings of the book of Acts and explain why this title may be appropriate. Find evidence to justify your explanation.
+- Study and ponder the following counsel. How does it relate to your daily proselyting activities?
+  - “Tell the brethren to be humble and faithful and be sure to keep the Spirit of the Lord, that it will lead them aright. Be careful and not turn away the still, small voice; it will teach them what to do and where to go; it will yield the fruits of the kingdom. Tell the brethren to keep their heart open to conviction, so that when the Holy Ghost comes to them their hearts will be ready to receive it. They can tell the Spirit of the Lord from all other spirits—it will whisper peace and joy to their souls; it will take malice, hatred, strife and all evil from their hearts, and their whole desire will be to do good” (quoted in Juvenile Instructor, 19 July 1873, 114).
+  - The Prophet Joseph Smith gave this counsel to Brigham Young in a dream almost three years after Joseph Smith’s death. If you were in Brigham Young’s place and received this counsel, what would you do?
+- Study Alma 33:1–12; 34:17–29, 38. What questions was Alma answering? (Review Alma 33:1–2.) How did Alma answer these questions? What assurances did he give that God hears and answers prayers?
+- The Lord has promised that the Spirit will guide us in many important ways. As you read the following passages, identify aspects of your work that require the guidance of the Spirit. What do the commandments and promises contained in the following scriptures mean for your personal and companion study? for district meetings, zone conferences, baptismal services, and other meetings?
+  - Praying: 3 Nephi 19:24, D&C 50:30, D&C 46:30, Romans 8:26
+  - Conducting meetings: Moroni 6:9, D&C 20:45, D&C 46:2
+  - Writing: D&C 9:9, D&C 24:6, D&C 47:4, D&C 104:81, D&C 124:4, Moses 6:6
+
+- Read the following scripture passages (including the headings to these sections).
+  - D&C 60:1–5, D&C 61:1–4, 21–22; D&C 62:4–8
+In this account, what was very important to the Lord? What did not matter to the Lord?
 Consider the following statement by Elder Dallin H. Oaks:
-
-
 “[A person may have] a strong desire to be led by the Spirit of the Lord but . . . unwisely extends that desire to the point of wanting to be led in all things. A desire to be led by the Lord is a strength, but it needs to be accompanied by an understanding that our Heavenly Father leaves many decisions for our personal choices. Personal decision making is one of the sources of the growth we are meant to experience in mortality. Persons who try to shift all decision making to the Lord and plead for revelation in every choice will soon find circumstances in which they pray for guidance and don't receive it. For example, this is likely to occur in those numerous circumstances in which the choices are trivial or either choice is acceptable.
-
-
 “We should study things out in our minds, using the reasoning powers our Creator has placed within us. Then we should pray for guidance and act upon it if we receive it. If we do not receive guidance, we should act upon our best judgment. Persons who persist in seeking revelatory guidance on subjects on which the Lord has not chosen to direct us may concoct an answer out of their own fantasy or bias, or they may even receive an answer through the medium of false revelation” (“Our Strengths Can Become Our Downfall,” Ensign, Oct. 1994, 13–14).
-
-
 What is the relationship between following your own judgment and relying on the Spirit?
 
 
-Companion Study
-===============
-
-
-• Talk about the prayers you offer as companions. Are they guided by the Holy Ghost? Have you received answers to your prayers? When you pray as companions, do you:
-
-
+### Companion Study (Page 115)
+- Talk about the prayers you offer as companions. Are they guided by the Holy Ghost? Have you received answers to your prayers? When you pray as companions, do you:
 – Believe that God will give you what you ask for in righteousness?
-
-
 – Acknowledge and give thanks for answers to your prayers?
-
-
 – Pray for people by name and consider their needs?
-
-
 – Pray for each other and for the Spirit to guide you?
-
-
 – Receive answers to your prayers?
-
-
-Discuss as companions how you will seek the Spirit more earnestly.
-
-
-• Discuss the different ways that people describe the influence of the Holy Ghost. Write comments that investigators have made about their experiences with the Spirit in learning the gospel and trying to keep commitments. How can you help others recognize this sacred influence? How can you avoid being manipulative as you do so?
-
-
-4 Recognize the Spirit
-======================
-
-
-Notes
-
-
-101
-4 Recognize the Spirit
-======================
-
-
-Notes
-
-
-102
-• Consider and discuss how the following counsel applies to you: “You cannot force spiritual things. Such words as compel, coerce, constrain, pressure, demand, do not describe our privileges with the Spirit. You can no more force the Spirit to respond than you can force a bean to sprout, or an egg to hatch before its time. You can create a climate to foster growth, nourish, and protect; but you cannot force or compel: you must await the growth” (Boyd K. Packer, “The Candle of the Lord,” Ensign, Jan. 1983, 53).
-
-
-• Discuss the following statements and how these principles can change both your prayers and your work. How can your prayers influence your planning, goal setting, work, and activities each day?
-
-
+- Discuss as companions how you will seek the Spirit more earnestly.
+- Discuss the different ways that people describe the influence of the Holy Ghost. Write comments that investigators have made about their experiences with the Spirit in learning the gospel and trying to keep commitments. How can you help others recognize this sacred influence? How can you avoid being manipulative as you do so?
+- Consider and discuss how the following counsel applies to you: “You cannot force spiritual things. Such words as compel, coerce, constrain, pressure, demand, do not describe our privileges with the Spirit. You can no more force the Spirit to respond than you can force a bean to sprout, or an egg to hatch before its time. You can create a climate to foster growth, nourish, and protect; but you cannot force or compel: you must await the growth” (Boyd K. Packer, “The Candle of the Lord,” Ensign, Jan. 1983, 53).
+- Discuss the following statements and how these principles can change both your prayers and your work. How can your prayers influence your planning, goal setting, work, and activities each day?
 “Our deeds, in large measure, are children of our prayers. Having prayed, we act; our proper petitions have the effect of charting a righteous course of conduct for us” (Bruce R. McConkie, “Why the Lord Ordained Prayer,” Ensign, Jan. 1976, 12).
-
-
 “Sincere praying implies that when we ask for any blessing or virtue we should work for the blessing and cultivate the virtue” (David O. McKay, Secrets of a Happy Life, 114–15).
-
-
 “Ask [God] to put you just where he wants you, and to tell you what he wants you to do, and feel that you are on hand to do it” (Brigham Young, Discourses of Brigham Young, sel. John A. Widtsoe [1954], 46).
 
 
-District Meetings and Zone Conferences
-======================================
+### District Meetings and Zone Conferences (Page 116)
+- Present a lesson on using proper and respectful language in prayer.
+- As appropriate, have missionaries share a story or experience they heard in a recent testimony meeting, teaching experience, or other setting. The spiritual stories and experiences other people tell can help you develop faith and recognize that the Spirit’s influence is widely and frequently manifest.
+- Express gratitude for manifestations of the Lord’s hand in your work (see D&C 59:21). Discuss how expressing gratitude helps you see the small but very significant ways the Lord blesses you (see Ether 3:5).
+- Ask the missionaries to give talks about the mission and power of the Holy Ghost.
+- Ask a recent convert to talk about how he or she was influenced by the Spirit as an investigator.
+
+### Mission President (Page 116)
+- Occasionally ask missionaries to include appropriate spiritual experiences in their weekly letter to you.
+- In interviews, occasionally ask missionaries about their morning and evening prayers. Ask them if they feel their prayers are meaningful.
+- Ask missionaries how they help investigators feel and recognize the Spirit.
+- As appropriate, relate to missionaries how you receive revelation on transfers, missionaries who are disobedient or need help, and doctrines to teach.
 
 
-• Present a lesson on using proper and respectful language in prayer.
-
-
-• As appropriate, have missionaries share a story or experience they heard in a recent testimony meeting, teaching experience, or other setting. The spiritual stories and experiences other people tell can help you develop faith and recognize that the Spirit’s influence is widely and frequently manifest.
-
-
-• Express gratitude for manifestations of the Lord’s hand in your work (see D&C 59:21). Discuss how expressing gratitude helps you see the small but very significant ways the Lord blesses you (see Ether 3:5).
-
-
-• Ask the missionaries to give talks about the mission and power of the Holy Ghost.
-
-
-• Ask a recent convert to talk about how he or she was influenced by the Spirit as an investigator.
-
-
-Mission President
-=================
-
-
-• Occasionally ask missionaries to include appropriate spiritual experiences in their weekly letter to you.
-
-
-• In interviews, occasionally ask missionaries about their morning and evening prayers. Ask them if they feel their prayers are meaningful.
-
-
-• Ask missionaries how they help investigators feel and recognize the Spirit.
-
-
-• As appropriate, relate to missionaries how you receive revelation on transfers, missionaries who are disobedient or need help, and doctrines to teach.
-
-
-=
-s “¥ ﬂ W
-========
-
-
-o/
-==
-
-
-![see page 117](#)
-. ! y b ) 8 L
-<
-5 Book of Mormon
-================
-
-
-call
-====
-
-
-/ K8 L ! ; [ ofs \%‘ .y L Lt 7y 2: Sa
-What Is the Role of the Book of Mormon?
-=======================================
-
+> Beginning of Chapter 5 of 13 chapters in the preach my gospel manual
+# What Is the Role of the Book of Mormon? (Page 117)
 
 Consider This
 =============
