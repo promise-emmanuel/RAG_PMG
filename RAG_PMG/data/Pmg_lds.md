@@ -4468,73 +4468,6 @@ District Meetings and Zone Conferences
 | Share your four-generation chart with missionaries, and explain how you use it in your finding efforts. |  |
 | Occasionally go with the missionaries to help them find people to teach. | |
 
-
-173
-9 Finding People
-================
-
-
-/
-Notes
-
-
-174
-10 Teaching Skills
-==================
-
-
-\/7
-|
-L .S g
-======
-
-
-N
-=
-
-
-1
-T
-=
-
-
-==
-* ~
-
-
-L
-=
-
-
-* 
-
-
-R
-=
-
-
->
-S
-=
-
-
-KT
-==
-
-
-of
-==
-
-
-| & ‘(
-* 
-
-
-Y o
-===
-
-
-\
 How Can I Improve My Teaching Skills?
 =====================================
 
@@ -6148,130 +6081,53 @@ Mission President
 • Be an example of extending invitations in your missionary efforts and with the missionaries you serve.
 
 
-202
-12 Baptism and Confirmation
-===========================
-
-
-* 
-
-
-&
-‘g ‘s ¢
-/ /i
-'’
-o
-=
-
-
 How Do I Prepare People for Baptism and Confirmation?
 =====================================================
-
 
 Consider This
 =============
 
-
 • What do I need to do to help prepare people for baptism and confirmation?
-
-
 • How do I conduct an effective baptismal interview?
-
-
 • How is a spiritual baptismal service planned and conducted?
-
-
 • How do I work closely with the bishop to ensure that converts are confirmed?
-
-
 • Why is it important to complete baptismal and confirmation records?
-
-
-Notes
-
 
 Prepare People for Baptism and Confirmation
 ===========================================
-
 
 their sins. As Mormon taught, “the first fruits of repentance is baptism” (Moroni 8:25). The baptismal interview is the way established by the Church to ensure that each candidate meets the Lord’s standards for baptism and is prepared to receive the gift of the Holy Ghost. Through this interview, baptismal candidates fulfill the scriptural requirement that they witness before an authorized representative of the Church that they have “truly repented of all their sins” (D&C 20:37). The commitments that investigators make prepare them to make and keep the covenant of baptism. People who have kept the commitments that you invited them to make will be well prepared for the interview and for membership and activity in the Church.
 
 
 As you teach investigators and prepare them for baptism and confirmation, make sure that they meet the qualifications for baptism.
 
-
-. y p o c t o n o D . r e p o o H y r r e G . r D d n a s s e r P d n o P l l i M y s e t r u o C . n e s O l . K g e r G 8 8 9 1 ©
-
-
-203
-12 Baptism and Confirmation
-===========================
-
-
-Notes
-
-
 Qualifications for Baptism
 ==========================
 
 
 Doctrine and Covenants 20:37:
-
-
 • Humble themselves before God.
-
-
 • Desire to be baptized.
-
-
 • Come forth with broken hearts and contrite spirits.
-
-
 • Repent of all their sins.
-
-
 • Be willing to take upon them the name of Christ.
-
-
 • Have a determination to serve Christ to the end.
-
-
 • Manifest by their works that they have received the Spirit of Christ unto a remission of their sins.
-
 
 First Presidency and the Quorum of the Twelve:
 ==============================================
 
 
 • Make sufficient changes in their lives to qualify as commanded in Doctrine and Covenants 20:37.
-
-
 • Develop faith in Christ.
-
-
 • Repent of transgressions.
-
-
 • Live the principles of moral worthiness.
-
-
 • Live the Word of Wisdom.
-
-
 • Commit to pay tithing.
-
-
 • Receive all the missionary lessons [lessons 1–4 on the Teaching Record and associated commitments].
-
-
 • Meet the bishop or branch president.
-
-
 • Attend several sacrament meetings.
-
-
 (“Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002)
-
 
 all the events that lead to baptism and confirmation as listed in your daily planner. Carefully review the Teaching Record to ensure that you have taught the basic doctrines and that the candidates are prepared to address each question in the baptismal interview. Review this schedule with the person in your next meeting. If possible, the person should attend a baptismal service prior to his or her own baptism.
 
@@ -6292,10 +6148,6 @@ Activity: Personal or Companion Study
 
 
 • Read each of the following passages, and make a summary list of the scriptural qualifications for baptism and confirmation.
-
-
-
-
 | 2 Nephi 9:23; 31:4-13 | 3 Nephi 27:13-21 | D&C 20:37 |
 | --- | --- | --- |
 | Mosiah 18:8-10 | Moroni 6:1-4 | D&C 22 |
@@ -6334,73 +6186,36 @@ The district leader or zone leader who conducts the interview should:
 
 
 • Open with prayer.
-
-
 • Help the candidate feel comfortable.
-
-
 • Make the interview a spiritually uplifting experience.
-
-
 • Make sure that the candidate understands the purpose of the interview.
-
-
 • Ask the baptismal interview questions. Use follow-up questions to get a feeling for the strength of the person’s testimony and the sincerity of the person’s repentance.
-
-
 • Answer the candidate’s questions.
-
-
 • Invite the person to bear testimony and express his or her feelings.
-
-
 • If the person has challenges with testimony or worthiness, explain that it would be best to postpone the baptism until he or she is better prepared.
-
-
-205
-12 Baptism and Confirmation
-===========================
-
-
-Notes
-
 
 Baptismal Interview Questions
 =============================
 
-
 1. Do you believe that God is our Eternal Father? Do you believe that Jesus Christ is the Son of God, the Savior and Redeemer of the world?
-
 
 2. Do you believe the Church and gospel of Jesus Christ have been restored through the Prophet Joseph Smith? Do you believe that [current Church President] is a prophet of God? What does this mean to you?
 
-
 3. What does it mean to you to repent? Do you feel that you have repented of your past transgressions?
-
 
 4. Have you ever committed a serious crime? If so, are you now on probation or parole? Have you ever participated in an abortion? a homosexual relationship?
 
-
 * 5. You have been taught that membership in The Church of Jesus Christ of Latter-day Saints includes living gospel standards. What do you understand of the following standards? Are you willing to obey them? a. The law of chastity, which prohibits any sexual relationship outside the bonds of a legal
-
 
 marriage between a man and a woman.
 
-
 b. The law of tithing. c. The Word of Wisdom. d. The Sabbath day, including partaking of the sacrament weekly and rendering service to
-
-
 fellow members.
-
-
 6. When you are baptized, you covenant with God that you are willing to take upon yourself the name of Christ and keep His commandments throughout your life. Are you ready to make this covenant and strive to be faithful to it?
-
 
 At the conclusion of a successful interview, congratulate the candidate. Rejoin the other missionaries, and explain what will happen at the baptismal service.
 
-
 Explain that the confirmation will take place under the direction of the bishop in a sacrament meeting of the ward in which they reside.
-
 
 missionaries should handle the situation sensitively and privately. Assure the candidate that he or she can succeed, and explain that some transgressions require more time for thorough repentance. Explain that the sacred nature of the ordinance requires high standards of worthiness. Assure the candidate that you and others will do all you can to support him or her. Then faithfully follow through to keep your promise.
 
@@ -6424,15 +6239,7 @@ Convert baptisms are baptisms of:
 
 
 • Persons ages nine and older who have never before been baptized and confirmed as members of the Church.
-
-
-206
-12 Baptism and Confirmation
-===========================
-
-
 • Children age eight whose parents are both nonmembers or whose parents are being baptized and confirmed at the same time as the child.
-
 
 Do I need permission to baptize a minor child?
 ==============================================
@@ -6490,17 +6297,6 @@ Question 4 in the baptismal interview asks if a person has been involved in a se
 about such sins as you teach about the commandments and invite them to make commitments. However, if they do not say anything but you think they may have a problem, prepare them for the baptismal interview by asking them if they have been involved in any of these sins. If you become aware of a serious sin, do not ask about the details of the sin. Do not schedule a baptismal date or make any promises about whether they will be cleared for baptism and confirmation. Express your love and review the principle of repentance. Kindly explain that these sins are serious and that a person with more maturity and experience (your mission president or someone he assigns) will talk with them and help them with these matters. Then send a baptismal interview request directly to the mission president.
 
 
-Notes
-
-
-207
-12 Baptism and Confirmation
-===========================
-
-
-Notes
-
-
 2. Instructions for the person conducting the interview for baptism. If the missionaries have properly taught the candidate before the baptismal interview, these issues, if they exist, should have been directed to the mission president. If they do arise, express your love and review the commandments and the principle of repentance. Kindly explain that these sins are serious and that a person with more maturity and experience (your mission president or someone he assigns) will talk with them and help them with these matters. Then forward a baptismal interview request directly to the mission president.
 
 
@@ -6512,18 +6308,10 @@ Think about how you might feel if you were being interviewed. Consider the follo
 
 
 • What aspects of the interview might be strange to you? What could the interviewer do or say to put you at ease?
-
-
 • How would you want the interviewer to interact with you?
-
-
 • How would you want the interviewer to respond if you expressed doubts or misunderstandings or if you confessed serious sins?
-
-
 Write your answers to these questions in your study journal.
 
-
-%
 Complete the Baptism Record
 ===========================
 
@@ -6548,15 +6336,10 @@ The Baptismal Service
 The Spirit is manifest strongly as the sacred ordinances of baptism and confirmation are performed. The baptismal service and subsequent confirmation should be spiritual highlights for new converts. You and the ward mission leader should do everything you can to ensure that the baptismal service is organized, inspiring, and memorable. These services should strengthen the new converts in their commitment to remain active.
 
 
-208
-12 Baptism and Confirmation
-===========================
-
 
 Invite the bishopric, quorum and auxiliary leaders, and home teachers and visiting teachers (if assigned) to attend the baptismal service. The friends and relatives of the converts and all of your current investigators should be invited to attend the baptismal service and the sacrament meeting where the confirmation takes place. These experiences will help them feel the Spirit and prepare them to accept an invitation to learn more about the gospel. Work with the baptismal candidate and ward mission leader to invite the candidate’s friends and relatives to attend. Then follow through after the service to discuss their experience and invite them to learn why their friend chose to be baptized.
 
 
-![see page 223](#)
 candidate coordinate with the ward mission leader to organize the service. Explain to the baptismal candidate what is planned and why. Discuss proper dress, including how the candidate will be given white clothing to wear for the baptism. Agree on the place and time for the baptism. A member of the bishopric or the ward mission leader normally conducts the service. Following are essential items to plan and organize.
 
 
@@ -6592,26 +6375,12 @@ A baptismal service may include:
 
 10. Postlude music.
 
-
-Notes
-
-
-209
-12 Baptism and Confirmation
-===========================
-
-
-Notes
-
-
 Confirmation
 ============
 
 
 A person receives the ordinance of confirmation after he or she has been baptized (see D&C 20:41). A new convert is considered a member of the Church after the ordinances of baptism and confirmation are performed (see John 3:5; D&C 33:11). New converts are confirmed in a sacrament meeting of the ward where they reside, not at the baptismal service. The bishop is responsible for seeing that confirmation occurs as soon as reasonable after baptism. The bishop or one of his counselors participates in the confirmation. The bishop may invite missionary elders who helped teach the convert to participate in the confirmation. Work closely with the bishop and the ward mission leader to make sure this essential ordinance is performed.
 
-
-![see page 224](#)
 After the Baptism and Confirmation
 ==================================
 
@@ -6648,10 +6417,6 @@ Remember This
 
 Ideas for Study and Application
 ===============================
-
-
-Notes
-
 
 Personal Study
 ==============
@@ -6698,17 +6463,6 @@ Companion Study
 
 
 • Review the Baptism Record and Confirmation Record form and the Baptism and Confirmation Certificate form. How can you ensure that the information you provide is correct and complete?
-
-
-211
-12 Baptism and Confirmation
-===========================
-
-
-Notes
-
-
-212
 District Meetings and Zone Conferences
 ======================================
 
@@ -6734,54 +6488,16 @@ Mission President
 
 • Instruct the members of the mission presidency and priesthood leaders how to conduct baptismal interviews for baptismal candidates who have committed serious sins.
 
-
-13 Stake and Ward Leaders
-=========================
-
-
-4 7,
-"\
-ﬁa
-==
-
-
-[ T
-===
-
-
-\".
-V2
-==
-
-
-3 i
-===
-
-
-* 
-
-
 How Do I Work with Stake and Ward Leaders?
 ==========================================
 
 
 Consider This
 =============
-
-
 • What do new converts and less-active members need in order to become active members of the Church?
-
-
 • What are the responsibilities of stake and ward leaders in missionary work, retention, and activation?
-
-
 • How can I help ward leaders establish the Church?
-
-
 • What should happen in the weekly correlation meeting with the ward mission leader?
-
-
-Notes
 
 
 your mission. Together you will strengthen and establish The Church of Jesus Christ of Latter-day Saints. The relationships you establish with Church leaders will bless you for the rest of your life. These are important relationships as you and Church members seek to bring the restored gospel to Heavenly Father’s children. Understanding the basics of how to work within the ward organization will help you move forward with greater focus and power.
@@ -6796,28 +6512,12 @@ When converts are baptized and confirmed, they make sacred promises to obey and 
 
 President Gordon B. Hinckley said: “There is absolutely no point in doing missionary work unless we hold on to the fruits of that effort. The two must be inseparable. . . . Every convert is a great and serious responsibility” (“Find the Lambs, Feed the Sheep,” Ensign, May 1999, 108).
 
-
-. y p o c t o n o D . y e w e D n o m S i 3 0 0 2 ©
-
-
-213
-13 Stake and Ward Leaders
-=========================
-
-
-Notes
-
-
 strengthening new members and less-active members. They make sure that new converts and less-active members have friends, are nourished by the word of God, and receive callings and responsibilities. They may request that full-time missionaries help in home teaching (or sister missionaries with visiting teaching) and in visiting new members, less- active members, and prospective elders. Preferably you will be paired with a member for such visits.
-
 
 You are also responsible for these people. President Hinckley said: “You missionaries . . . are part of this responsibility of binding your converts to the Church. You may not be able to continue to visit them. But you can write to them occasionally and give them encouragement. . . . When you go home do not forget them. At all times live worthy of their trust. Write to them occasionally, assuring them of your love” (Ensign, May 1999, 109).
 
-
 When attending church meetings, you and your companion should sit with your investigators or members you have been fellowshipping to support and strengthen them. You should not sit in a group with other missionaries.
 
-
-![see page 228](#)
 A vital part of your mission is to establish the Church and strengthen the unit in which you serve. You do this in part by helping new converts remain active and by helping less-active members return to activity. One of your duties is to join with ward missionaries to teach again the first four lessons and to teach lesson 5. Ward missionaries, home teachers, and visiting teachers can also help teach these principles. President Gordon B. Hinckley related the following concerning the challenges many
 
 
@@ -6838,12 +6538,6 @@ She states that “Church members don’t know what it is like to be a new membe
 
 I challenge you, my brothers and sisters, that if you do not know what it is like, you try to imagine what it is like. It can be terribly lonely. It can be disappointing. It can be frightening. We of this Church are far more different from the world than we are prone to think we are. This woman goes on: “When we as investigators become members of the Church, we are surprised to discover that we have entered into a completely foreign world, a world that has its own traditions, culture, and language. We discover that there is no one person or no one place of reference that we can turn to for guidance in our trip into this new world. At first the trip is exciting, our mistakes even amusing, then it becomes frustrating and eventually, the frustration turns into anger. And it’s at these stages of frustration and anger that we leave. We go back to the world from which we came, where we knew who we were, where we contributed, and where we could speak the language” [Ensign, May 1999, 108].
 
-
-214
-13 Stake and Ward Leaders
-=========================
-
-
 Activity: Personal or Companion Study
 =====================================
 
@@ -6852,20 +6546,11 @@ Read the previous account. Write answers to the following questions in your stud
 
 
 • According to this account, what are some of the factors that make it difficult for new members to remain active?
-
-
 • How can having members involved from the beginning of the teaching process help with these challenges?
-
-
 • Think of those you are teaching. How can you better involve members to help investigators begin to make the social transition into the Church?
-
-
-Notes
-
 
 Home and Visiting Teaching
 ==========================
-
 
 missionaries to visit less-active and part-member families. In appropriate situations, they may request that full-time missionaries participate in home teaching and in visiting teaching. These teaching opportunities should strengthen members, increase the ability of the missionaries to teach, and help missionaries obtain referrals (see “Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002).
 
@@ -6876,70 +6561,38 @@ Work with the Ward Council to Strengthen New and Less-Active Members
 
 Teaching and baptizing investigators is under the direction of your mission president. However, the work of proclaiming the gospel will move forward more powerfully when full-time missionaries and members coordinate their efforts and work in unity together. You may often be invited to attend ward council and priesthood executive committee meetings. Your first priority is to make sure that your investigators are at Church. Frequently this will mean that you will accompany them. If there is a conflict between attending ward council meeting and getting someone to church, do the latter. In this case, provide a copy of the Progress Record to the ward mission leader and ensure that he has all the information needed for ward council or priesthood executive committee.
 
-
-![see page 229](#)
 President Gordon B. Hinckley said:
 
 
 “Every new convert needs three things: “1. A friend in the Church to whom he can constantly turn, who will walk beside him,
 
-
 who will answer his questions, who will understand his problems.
-
 
 “2. An assignment. Activity is the genius of this Church. It is the process by which we grow. Faith and love for the Lord are like the muscle of my arm. If I use them, they grow stronger. If I put them in a sling, they become weaker. Every convert deserves a responsibility. . . .
 
-
 “3. Every convert must be ‘nourished by the good word of God’ (Moro. 6:4). It is imperative that he or she become affiliated with a priesthood quorum or the Relief Society,
-
-
-. y p o c t o n o D . s s e r P d n o P l l i M y s e t r u o C . n e s O l . K g e r G 9 9 9 1 ©
-
-
-215
-13 Stake and Ward Leaders
-=========================
-
-
-Notes
-=====
-
-
 the Young Women, the Young Men, the Sunday School, or the Primary. He or she must be encouraged to come to sacrament meeting to partake of the sacrament, to renew the covenants made at the time of baptism” (Ensign, May 1999, 106).
 
 
 The ward council will take the lead in providing a friend, responsibility, and spiritual nourishment for new converts. You will help them as requested. Priesthood leaders and members will do the fellowshipping, with your assistance.
 
-
 Friendship
 ==========
-
 
 • Before baptism and confirmation, ensure that members are present at every lesson, if possible. These members should be with the investigators often to answer their questions, understand their challenges, and encourage them.
 
 
 • Invite members to attend the baptismal service and to welcome new converts into the ward. Members help new converts feel comfortable in various Church meetings. They should also introduce them to other members.
-
-
-![see page 230](#)
 • Introduce the investigators to the bishop, his counselors, elders quorum and Relief Society presidents, and other ward leaders as soon as possible. Explain the roles of the bishop and other ward leaders.
-
 
 Opportunities to Serve
 ======================
 
 
 • Help male converts understand and prepare to receive the Aaronic Priesthood and the Melchizedek Priesthood. Explain that priesthood quorums provide opportunities to learn, worship, and serve together.
-
-
 • Involve new converts and less-active members in service opportunities such as helping a widow or someone who is ill or participating in welfare projects.
-
-
 • Refer converts to family history consultants so they might complete a family group record and pedigree chart. If circumstances allow, help them prepare to be baptized in the temple for their deceased ancestors.
-
-
 • Invite converts to prepare family members and friends to be taught by the missionaries. The missionaries should ask new converts and less-active members for referrals.
-
 
 Nourishment by the Word of God
 ==============================
@@ -6960,28 +6613,12 @@ Nourishment by the Word of God
 • Strengthen new converts’ testimonies of the Restoration of the gospel of Jesus Christ through the Prophet Joseph Smith. Review the lessons that you taught before baptism and confirmation, adapting the commitment invitations to their current needs.
 
 
-216
-13 Stake and Ward Leaders
-=========================
-
-
 • Continue to teach the importance of attending church each Sunday and worthily partaking of the sacrament. Attend and sit with new converts or less-active members.
-
-
 • Invite them to attend the Gospel Principles class during Sunday School.
-
-
 • Teach them how to hold family home evening on Monday nights using the Family Home Evening Resource Book.
-
-
 • Encourage them to share the restored gospel with others.
-
-
 • Help them enroll in seminary or institute classes.
-
-
 • Make them aware of Church resources such as www.mormon.org, www.lds.org, and www.familysearch.org.
-
 
 Scripture Study
 ===============
@@ -6994,11 +6631,6 @@ Scripture Study
 | Mosiah 18:18-20 | Alma 31:5 | Moroni 6:4 |
 | Service | | |
 | Mosiah 2:17 | Matthew 25:40 | Topical Guide, “Serve” and “Service” |
-
-
-Notes
-=====
-
 
 What Is the Role of the Full-Time Mission President?
 ====================================================
@@ -7026,15 +6658,6 @@ The stake president oversees bishops in their missionary, retention, and activat
 
 The stake president also meets regularly with the mission president to coordinate missionary efforts, including the training of leaders and members, use and placement of full-time missionaries, and assistance in activation efforts.
 
-
-217
-13 Stake and Ward Leaders
-=========================
-
-
-Notes
-
-
 High Councilor
 ==============
 
@@ -7051,19 +6674,14 @@ The bishop is responsible for missionary,
 
 retention, and activation efforts in the ward. His personal participation and leadership are essential. To help accomplish this work, the bishop calls a worthy Melchizedek Priesthood holder to serve as the ward mission leader. He also calls a sufficient number of ward missionaries to meet the needs in the ward. The bishop uses the priesthood executive committee and the ward council to coordinate missionary, retention, and activation efforts. He gives direction to developing and carrying out a ward mission plan.
 
-
-![see page 232](#)
 Activity: Companion Study
 =========================
 
 
 Plan a time to meet with the bishop. Seek his guidance on how you can best serve in the ward.
 
-
-218
 Priesthood and Auxiliary Leaders
 ================================
-
 
 Priesthood and auxiliary leaders should regularly review the status of new members and less-active members and plan how to best fellowship and strengthen them. They should also work closely with the ward mission leader to coordinate missionary, retention, and activation efforts with ward missionaries and full-time missionaries.
 
@@ -7085,10 +6703,6 @@ Ward Mission Leader Under the direction of the bishop, the ward mission leader:
 
 
 The ward mission leader also serves on the ward priesthood executive committee, ward council, and ward welfare committee and attends stake priesthood leadership meetings.
-
-
-13 Stake and Ward Leaders
-=========================
 
 
 Ward Missionaries
@@ -7113,9 +6727,7 @@ Ward missionary work is normally coordinated in the priesthood executive committ
 
 Finding People to Teach. The priesthood executive committee and ward council discuss plans for preparing specific people to be taught by the full-time missionaries. They discuss the progress of specific ward members in preparing individuals and families for the missionary lessons.
 
-
 Teaching and Baptizing. The priesthood executive committee and ward council review the Progress Record each week, which describes the progress of each person being taught by the full-time missionaries. They also coordinate plans for teaching in members’ homes, fellowshipping investigators, and ensuring member participation at baptismal services.
-
 
 Fellowshipping and Teaching New Members. The priesthood executive committee and ward council review the Convert Action List to monitor the progress of each new member. They also discuss how to fellowship new members. As requested by the bishop, they recommend potential callings for new converts.
 
@@ -7132,91 +6744,34 @@ Missionary work in the ward is normally coordinated in priesthood executive comm
 
 Those attending the meeting may review and report on assignments and goals from the previous meeting and discuss plans for the coming week. As needed, they may also coordinate the assignments of ward missionaries to work with full-time missionaries and discuss how to make the combined efforts of ward missionaries and full-time missionaries more effective.
 
-
-Notes
-
-
-219
-13 Stake and Ward Leaders
-=========================
-
-
-Notes
-
-
 Ward Mission Plan
 =================
-
-
 Many wards have found that developing a ward mission plan promotes ward missionary work. Such a plan may include goals, initiatives, and activities to help ward members invite people to hear the gospel. Individuals and families also benefit from developing such a plan to guide their missionary efforts.
-
 
 Members should use every honorable means to find people who are willing to listen to the message of the Restoration. They should emphasize finding fathers, mothers, and children who will come into the Church as families. Following are some suggestions to consider in developing a mission plan.
 
-
 • Pray that the Lord will prepare the hearts of specific people to hear the gospel. Pray also to be sensitive to those whom He is preparing (see Alma 6:6). “It will be a great day,” taught President Gordon B. Hinckley, “when our people not only pray for the missionaries throughout the world, but ask the Lord to help them to assist the missionaries who are laboring in their own ward” (“Missionary Service,” First Worldwide Leadership Training Meeting, Jan. 2003, 19).
-
-
 • Be aware of opportunities to reach out to others. Be neighborly and reach out in love to all people.
-
-
 • Ask friends and neighbors to serve alongside members in such things as providing community service, providing meals to those in need, teaching miniclasses in Relief Society enrichment meetings, helping with ward activities, helping people move, working in Scouting, and helping with family history or welfare projects.
-
-
 • Invite nonmember relatives, friends, and neighbors to baptisms, confirmations, and priesthood ordinations.
-
-
 • Invite nonmembers to assist in special events, such as a breakfast on a national holiday.
-
-
 • Make ward meetings, activities, firesides, and open houses of such quality and interest that members feel eager to invite acquaintances to attend.
-
-
 • Invite people to family home evenings.
-
-
 • Visit people who are experiencing changes in their lives, such as marriages, births, or deaths.
-
-
 • Visit and help people who are moving into the neighborhood. Share information about the community, neighborhood, and the Church.
-
-
 • Take every opportunity to talk about the gospel. Discuss such topics as the Savior, the Book of Mormon, the Bible, the purpose of life, the family, and family history.
-
-
 • Encourage youth to befriend other youth and invite them to Church meetings and activities.
-
-
 • Work with part-member families.
-
-
 • Plan spiritually uplifting sacrament meetings.
-
-
-220
-13 Stake and Ward Leaders
-=========================
-
 
 Activity: Companion Study
 =========================
-
-
 • With your companion, read and discuss pages 34–37 of True to the Faith, “Church Administration.”
-
-
 • Share with your companion and write in your study journal what you learned.
-
-
 • Discuss how your insights will influence the way you approach your work with Church leaders.
-
-
-Notes
-
 
 The Commitment to Stay Active in the Church
 ===========================================
-
 
 Missionary work has its greatest effect as people make and keep the commitment to stay active in the Church all the days of their lives. It is not enough for people to simply come into the Church. They must come to stay. All of your teaching and invitations must be directed toward this end. In order to receive all the blessings that our Heavenly Father has in store for them, members must continue to live the gospel and be active in the Church. Nephi taught: “And now, my beloved brethren, after ye have gotten into this strait and
 
@@ -7245,15 +6800,6 @@ Remember This
 
 – With members, teach new converts the lesson “Laws and Ordinances.”
 
-
-221
-13 Stake and Ward Leaders
-=========================
-
-
-Notes
-
-
 Ideas for Study and Application
 ===============================
 
@@ -7271,16 +6817,10 @@ Personal Study
 Companion Study
 ===============
 
-
 • During ward council meeting, ask the bishop if there are any less-active members in your area he would like you to visit this week. As you visit these less-active members, seek to build their faith in Jesus Christ. Ask them for referrals.
 
-
 • Study 1 Corinthians 3:2; Hebrews 5:12; and Doctrine and Covenants 19:22. What is the milk that is referred to? What is the meat? Compare your answers with the doctrines in the chapter “What Should I Study and Teach?” Why must you provide the milk and the meat in the right sequence and in the right amount? How do you do that?
-
-
 • Read the following quotation, in which President Joseph F. Smith describes his feelings at the time of his baptism:
-
-
 “The feeling that came upon me was that of pure peace, of love and of light. I felt in my soul that if I had sinned—and surely I was not without sin—that it had been forgiven me; that I was indeed cleansed from sin; my heart was touched, and I felt that I would not injure the smallest insect beneath my feet. I felt as if I wanted to do good everywhere to everybody and to everything. I felt a newness of life, a newness of desire to do that which was right. There was not one particle of desire for evil left in my soul. . . . This was the influence that came upon me, and I know that it was from God, and was and ever has been a living witness to me of my acceptance of the Lord” (Gospel Doctrine, 5th ed. [1939], 96).
 
 
@@ -7298,25 +6838,14 @@ Now read what President Smith said about his feelings long after his baptism:
 
 – Thinking of recent converts and less-active members, what can you do to help them regain the “desire and purpose” they once had?
 
-
-222
 District Meetings and Zone Conferences
 ======================================
-
-
 • Invite a bishop to talk about the challenges of working with less-active members and new converts. Ask him to emphasize how missionaries can help with these challenges.
-
-
 • Discuss the parables of the lost sheep, the lost coin, and the prodigal son (see Luke 15).
-
 
 Mission President
 =================
-
-
 • Work with local priesthood leaders to encourage them to help new converts:
-
-
 – Be ordained to the priesthood.
 
 
@@ -7324,11 +6853,7 @@ Mission President
 
 
 – Prepare the name of an ancestor to take to the temple and to perform baptisms for the dead.
-
-
 – Receive the “Laws and Ordinances” lesson with home teachers present.
-
-
 • Teach local leaders how to use missionaries in ward council.
 
 
@@ -7349,629 +6874,6 @@ Mission President
 
 • Occasionally ask members who are converts to share their conversion experience in a zone conference.
 
-
-13 Stake and Ward Leaders
-
-
-Notes
-
-
-223
-13 Stake and Ward Leaders
-=========================
-
-
-/
-Notes
-
-
-224
-.
-A
-Aaronic Priesthood, restored, 37 Abortion, and worthiness for baptism, 207–8 Accountability, 150–51 Addiction recovery, 187–90 Agency, 48, 49 Apostasy, defined, 33 the Great, 35–36
-
-
-Area book, described, 139–41
-
-
-use to find former investigators, 166 Atonement, 31–33, 34, 48, 51–52, 60–61
-
-
-Atonement, 31-33, 34, 48, 51-52, 60-61 defined, 58
-
-
-defined, 58
-
-
-Attribute activity, self-evaluation, 126 Attributes, how to study, 116
-
-
-of Christ, 115
-
-
-Authority, missionary’s, 4 Priesthood, lost, 35 Restored, 36
-
-
-Auxiliary leaders, duties of, 218
-
-
-B
-=
-
-
-Ballard, M. Russell, on goals, 146 on the power of the Spirit, 94 Baptism and confirmation, 9, 75
-questions and answers about, 206–8 records, 208
-===============================================
-
-
-Baptism, invitation to, 40, 66
-
-
-necessary for Church membership, 64 not necessary for little children, 64 of fire, 65 of unqualified candidates, 207 our first covenant, 63–64 preparation for, 203–4 qualifications for, 204
-Baptismal interview, how to conduct, 205–8
-
-
-prepare investigators for, 204 questions, 206 who conducts, 206
-
-
-Baptismal service, how to conduct, 208–9 Baptisms for the dead, 86 Benson, Ezra Taft, on answering questions with
-
-
-the Book of Mormon, 108–9 on Book of Mormon as keystone, 104 on great questions of the soul, 107 on importance of Spirit, 176 on taking gospel to the world, 2 on work, 121
-
-
-Bible, supports the Book of Mormon, 106 Bishop, 149–50
-
-
-and missionary work, 161 directs ward missionary efforts, 214 missionary duties of, 218
-Blessings, and commitments, 197–98 Book of Mormon, answers questions of the
-===========================================================================
-
-
-Book of Mormon, answers questions of the soul, 107-8
-
-
-soul, 107–8 as keystone, 103–4 draws people to God, 108 evidence of Jesus Christ’s divinity, 103 evidence of Restoration, 7, 38–39, 103 how to read, with investigators, 110–11 how to use, 110–11 purpose of, 38 read, to learn mission language, 130 supports the Bible, 106 testifies of Jesus Christ, 105
-
-
-Buddha (Gotama), 46 Build up the Church, 156
-============================================
-
-
-C
-=
-
-
-Cabrera, Victor Manuel, conversion story, 157–58 Call–In Summary Report, form described, 143
-
-
-Calling, in the Church, 87
-
-
-See also Missionary calling
-
-
-Calvin, John, 45 Caution, in receiving revelation, 98–99 Celestial kingdom, 53 Charity, 118 Chastity, law of, 77 Christ, Light of. See Light of Christ Christ. See Jesus Christ Christlike attributes, gifts of God, 115
-
-
-how to develop, 122–23 need to develop, 115
-
-
-Church headquarters referrals, 163 Civil law, obey and honor, 81 Cleansed from sin, 2, 5–6, 60–61 Commandments, 71–81 how to study, 72 how to teach about, 71–72
-
-
-Commission, to teach restored gospel, 1 Commitment invitations, 195–96 Commitment, and blessings, 197–98
-
-
-and direct questions, 197 and follow up, 200 increases faith, 196 necessary part of repentance, 195
-
-
-Commitments, purpose of, 8 Companion study, purpose, ix
-=======================================================
-
-
-schedule, viii
-
-
-Companionship inventory, 150 Concerns, need to resolve investigators’, 187 Confirmation, 65 defined, 70 how to perform, 210 preparation for, 203–4 See also Baptism and confirmation
-
-
-Confucius, 46 Conversion, missionary’s role in, 93
-==================================================
-
-
-Spirit’s role in, 93
-
-
-Convert baptism, defined, 206–7 Covenant, defined, 70
-
-
-explained, 63 Creation, of earth, 49 Culture, need to learn, 132
-
-
-D
-=
-
-
-Daily planning session, 150 Definitions, of unfamiliar words, 21 Deity, proper worship of, 77 Diligence, 121 Disappointment, 10–11 Dispensation, defined, 33 Dispensations, 32–34 District meeting, and study, viii
-
-
-District meeting, and study, viii purpose, ix
-
-
-purpose, ix Do good, 168–69
-===========================
-
-
-E
-=
-
-
-Endowment, 86 Endure to the end, 66, 88
-=======================================
-
-
-defined, 70
-
-
-English, need to learn, 128 Establishing the Church, 10 Eternal life, defined, 70 Eternal marriage, 85 Exaltation, 53 defined, 58
-
-
-Excommunicated members, whether to baptize,
-
-
-207
-
-
-225
-L —
-F
-=
-
-
-Faith, and finding people to teach, 155
-
-
-and prayer, 93–95 in Jesus Christ, 61–62, 116–17
-================================================
-
-
-Fall of Adam and Eve, 49–50
-
-
-defined, 58
-
-
-Families, blessed by gospel, 32 restored gospel blesses, 3 teaching about the importance of, 159–60
-
-
-“Family: A Proclamation to the World, The,” 3, 85 Family history centers, as a source for finding
-
-
-investigators, 164 Family history work, 86 Family history, as a source for finding
-
-
-investigators, 163–65 Family home evening, 85 Family of God, 31–32, 155 Family, purpose of, 85 Fast, law of, 80 Father in Heaven, 48 Fathers, duty of, 85 Faust, James E., on hope, 117 on teaching clearly, 182
-
-
-Fellowship, of new members, 210 Finding investigators, suggestions for, 167 Finding people to teach, 155 Finding, and teaching, 158–59
-
-
-by the Spirit, 156 with members, 160–62 First Presidency message, v First Presidency, on missionary work, 29–30 Flexibility, in study, vii in teaching, vii
-Follow up, and commitment, 200 Following the prophet, 75–76 Former investigators, as a source for finding
-
-
-people to teach, 166
-
-
-G
-=
-
-
-Garden of Eden, 49 Genealogy, as a source for finding investigators,
-
-
-163–65
-
-
-Gift of the Holy Ghost, 65, 91 Gift of tongues, 133 Gifts of the Spirit, 91 Goal setting, 137 Goals, and weekly planning session, 147–50
-how to set, 146
-
-
-God the Father, appeared to Joseph Smith, 37 God, our Heavenly Father, 31–32, 48 God, teaching non-Christians about, 32 Gospel of Jesus Christ. See Gospel Gospel, 60–66
-
-
-blesses families, 3, 32 defined, 5, 70 meets people’s needs, 1–2 purpose of, 6 Restoration of, 36–37
-
-
-Grace, defined, 70
-
-
-H
-=
-
-
-Heavenly Father, 31–32 Hinckley, Gordon B., missionaries to bind
-================================================================
-
-
-converts to Church, 214 on convert retention, 213 on faith and prayer, 93–94 on members helping missionaries, 160–61 on missionary prayers, 94
-
-
-on needs of new converts, 215–16 on reading the Book of Mormon prayerfully, 108 on recognizing the Spirit, 97 on service, 168
-
-
-Holland, Jeffrey R., on language learning, 128
-
-
-on listening, 185 on teaching with power, 8
-
-
-Holy Ghost, gift of, 91 learning by, 18 personage of, 90 power of, 90
-Holy Spirit of Promise, 91 Home teaching, 215 Homosexual relationships, and worthiness for
-baptism, 207–8
-
-
-Hope, 117 Humility, 120–21 Hunter, Howard W., on recognizing the Spirit, 99
-===========================================================================
-
-
-I
-=
-
-
-Iceberg, concerns are like, 187 Ideas for study and application, how to use, xi Idols, 77 Immortality, defined, 59
-
-
-explained, 53
-
-
-Information boxes, in Preach My Gospel, x–xi Information pyramid, 140 Investigators, missionaries to prepare, for
-
-
-baptismal interview, 204 setting goals for, 147–50 to read the Book of Mormon, 110–11
-
-
-J
-=
-
-
-Jesus Christ, appeared to Joseph Smith, 37
-
-
-as Redeemer, 51–52, 60–61 Atonement of. See Atonement earthly ministry of, 34 helping people learn about, 47–48
-
-
-Judgment, defined, 59
-
-
-the final, 53
-
-
-K
-=
-
-
-Key indicators, defined, 138–39
-
-
-for conversion, 138–39 setting goals for, 146
-=============================================
-
-
-Kimball, Spencer W., on missionary and temple
-
-
-work, 164 on setting apart, 4 Kingdoms of glory, 53 Knowledge, 119
-
-
-L
-=
-
-
-Language learning, and grammar, 130
-
-
-and memorization, 129–30 goals, 129 principles of, 128–29 study plan, 129–31 tools for, 129 with companions, 131–32
-Law, obey and honor, 81 Laws and ordinances, following baptism, 82–88
-
-
-Laws and ordinances, following baptism, 82-88 how to study, 83
-
-
-how to study, 83 how to teach about, 82
-
-
-Learning, a process of receiving revelation, 18
-
-
-Learning, a process of receiving revelation, 18
-
-
-as a Church member, 88 by the Holy Ghost, 18
-============================================
-
-
-Lee, Harold B., on importance of families, 3
-
-
-Lee, Harold B., on importance of families, 3 on teaching for understanding, 193
-
-
-on teaching for understanding, 193
-
-
-226
-.
-Less-active members, a source for finding
-
-
-investigators, 162 strengthening, 213–14
-========================================
-
-
-Lessons, for new members, 29 to teach investigators, 29 use for study and training, 29
-
-
-Life on earth, 50 Light of Christ, 90 Listening, to improve language skills, 130
-
-
-use of, in teaching, 185–86
-
-
-Love, 118 Luther, Martin, 45
-============================
-
-
-M
-=
-
-
-Marking scriptures, 24 Maxwell, Neal A., on hope, 117 Media referrals, 163 Meetings, missionary coordination, 219 Melchizedek Priesthood, restored, 37 Members, fear to do missionary work, 161
-
-
-help find investigators, 160–62 how to help, with missionary work, 162
-
-
-Memorization, and teaching, vii Mercy, defined, 70 Message of the Restoration, 31
-
-
-and families, 159–60 explained, 6–8
-
-
-Minor children, and baptism, 207 Mission language, and native language, 127
-===========================================================================
-
-
-Mission language, and native language, 127 preparing to learn, 127
-
-
-preparing to learn, 127 requires dedication, 128
-
-
-Mission president, duties of, 217 Missionary calling, and responsibility, 4
-
-
-power and authority of, 4–5 to teach the restored gospel, 175
-
-
-Missionary coordination, 219 Missionary Daily Planner, described, 144–45 Missionary daily schedule, viii Missionary library, viii Missionary purpose, to represent Jesus Christ, 2 Missionary success, 10–11 Missionary Weekly Report, form described, 145 Missionary work, members to do, 84 Missionary’s role in conversion, 93 Mohammed, 46 Monson, Thomas S., on bearing testimony, 198
-
-
-on language of the Spirit, 133 on measuring performance, 150 on patience, 120 on teaching with members, 179
-
-
-Mortality, 50
-
-
-defined, 59 purpose of, 31–32 Mothers, duty of, 85
-
-
-N
-=
-
-
-New members, a source for finding
-
-
-investigators, 162 missionaries to fellowship, 210 receive lessons, 29 strengthening, 213–14 to receive lessons again, 210
-
-
-Non-Christian background, teaching people the gospel with, 190–91
-
-
-O
-=
-
-
-Oaks, Dallin H., on inviting others to come to
-
-
-Christ, 9 Obedience, 122
-========================
-
-
-a commandment, 72
-
-
-Objections, how to answer, with the Book of Mormon, 109
-
-
-Mormon, 109
-
-
-Ordinance, defined, 63
-
-
-P
-=
-
-
-Pablo, story of conversion through service, 168–69 Packer, Boyd K., on baptism by water and fire, 9
-on forcing spiritual things, 102 on recognizing the Spirit, 96, 99 on Spirit in conversion, 93 on spiritual experiences, 99 on how study changes behavior, 19 on the Book of Mormon’s nourishing power, 108 on the light of Christ, 90
-
-
-Patience, 120 Perry, L. Tom, on obedience, 122 Personal revelation, 89–90 Personal study, purpose, viii–ix
-schedule, viii
-
-
-Physical death, defined, 59 Plan of salvation, 47–54
-
-
-chart, 54
-
-
-Potential Investigators, form described, 143 Prayer, a commandment, 73
-
-
-and faith, in conversion, 93–95 evaluation scale, 95 how to offer, 39 means to learn truth, 39 role of, 39 suggestions for, 94–95
-
-
-Preach My Gospel, used by ward missionaries
-
-
-and leaders, xi how to use, vii
-
-
-Pre-earth life, 48 defined, 59
-
-
-Premortal life, defined, 59 Presidents of the Church, on missionary work,
-
-
-12–13
-
-
-Priesthood and auxiliaries, 83–84 Priesthood leaders, duties of, 218 Priesthood, Aaronic, 83
-============================================================================================
-
-
-defined, 32 Melchizedek, 83 restoration of, 37, 83 Primary, organization, 84 Progress Record, form described, 142 Prophetic statements on missionary work, 12–13 Prophets, explained, 34
-
-
-role of, 32–33
-
-
-Prospective elders, a source for finding investigators, 162
-
-
-Purpose, as a missionary, 1
-
-
-Q
-=
-
-
-Questions of the soul, and Book of Mormon, 107–8 Questions, and commitment, 197
-how to answer, with the Book of Mormon, 109 use of, in teaching, 183–84
-
-
-R
-=
-
-
-Records, for baptism and confirmation, 208 Redemption, defined, 59 Referrals, guidelines for working with, 163 Reformation, 35 Reformers, 45 Reincarnation, and resurrection, 53 Relief Society, 84
-
-
-227
-L —
-Repentance, 62–63, 187–90 and commitment, 195
-=============================================
-
-
-Restitution, defined, 70 Restoration, message of, explained, 6–8
-
-
-of the gospel, 36–37
-
-
-Resurrection, 53
-
-
-defined, 51, 59
-
-
-Revelation, personal, 89–90
-
-Sabbath day, keeping the, holy, 74 Sacrament, 64 Salvation, available to all, 86
-
-defined, 59 plan of, 47–54
-Schedule. See Missionary daily schedule Schultz, Frank and Mildred, story of conversion,
-
-164–65
-
-Scripture study, a commandment, 73–74 Scriptures, marking, 24
-
-
-use of, in teaching, 180–82
-
-
-Second Coming of Jesus Christ, 37 Serious crime, and worthiness for baptism, 207–8 Service, as a Church member, 87
-as a source for finding investigators, 168–69
-
-
-Sin, as viewed in various cultures, 61 Smith, Hyrum, on teaching first principles, 6 Smith, Joseph, and the First Vision, 37
-
-
-and the Restoration, 36–37 on baptism by water and Holy Ghost, 9 on Book of Mormon as keystone, 103 on preaching the gospel, 160 on relying on the Spirit, 97–98 on teaching all available, 156 on the gift of the Holy Ghost, 91 on the need for revelation, 89
-
-
-Smith, Joseph F., on feelings when he was
-
-
-baptized, 222 Sniders, story of, 113 Spirit of Elijah, 163–65 Spirit world, 52 Spirit, power of, in conversion, 91–92
-
-
-promptings of, 96–97 should direct teaching, 176 teaching by, 3–4
-
-
-Spiritual death, defined, 59 Stake high councilor, duties of, 218 Stake leaders, and missionary work, 213
-
-duties of, 217
-
-Stake president, duties of, 217 Study journal, explained, x Study, approved resources for, 23 as preparation to teach, 19–22 begin with prayer, 17, 22 effective, 17 guidelines for, 20–21 suggestions for effective, 22–24
-
-Success, defined, 10–11
-
-Talking, ideas for, with others, 157
-
-
-tool for finding, 156–58
-
-
-Taylor, John, on teaching simply, 182 Teaching Record, form described, 141–42 Teaching, adjust to meet needs, 177–78
-
-
-and finding, 158–59 and listening, 185–86 and memorization, vii by the Spirit, 3–4
-First Presidency counsel on, 175–76
-
-
-how to begin, 176–77 in a Church calling, 88 length of appointments, 178 length of lessons, vii people without a Christian background, 190–91 the gospel as a missionary, 175 with companion, 178–79 with members, 179 with questions, 183–84 with scriptures, 180–82
-
-
-Telestial kingdom, 53 Temples, worship in, 86 Ten Commandments, obedience to, 76–77 Terrestrial kingdom, 53 Testimony, bear frequently, 198–99 Time use, effective, 137 Tithes and offerings, donating, 80 Tithing, law of, 79 Tongues, gift of, 133 Tree of life, activity, 2 True to the Faith, 21 Tyndale, William, 45
-
-Virtue, 118–19 Visiting teaching, 215
-=====================================
-Ward council, 149–50, 215–17
-
-
-and friendship of new converts, 216 and helping new converts serve in callings, 217 and nourishing new converts, 217–18 responsible to fellowship, 214
-
-
-Ward leaders, and missionary work, 213
-
-
-duties of, 217
-
-
-Ward mission leader, duties of, 218–19 Ward mission plan, 220 Ward missionaries, duties of, 219
-how to use Preach My Gospel, xi
-Weekly planning session, how to hold, 147–50 Wirthlin, Joseph B., on using the Book of
-Mormon, 110 Word of Wisdom, 78 Wycliffe, John, 45
-Young Men, organization, 84 Young Women, organization, 84 Young, Brigham, on receiving testimony, 199
-
-Zone conference, and study, viii
 
 Remember This. . .
 ==================
