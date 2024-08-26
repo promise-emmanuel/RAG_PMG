@@ -2892,6 +2892,7 @@ After the groups finish, bring the missionaries together and ask them to share w
 - During interviews, ask missionaries to talk about an attribute they are trying to develop.
 - In a zone conference, invite missionaries to tell about Christlike attributes they admire in their companions.
 
+
 > Beginning of chapter 7 of 13 chapters in the preach my gospel manual
 # How Can I Better Learn My Mission Language? (Page 141)
 
@@ -2902,706 +2903,214 @@ After the groups finish, bring the missionaries together and ask them to share w
 
 ## Prepare Yourself Spiritually (Page 141)
 The Lord declared, “Every man shall hear the fulness of the gospel in his own tongue, and in his own language, through those who are ordained unto this power” (D&C 90:11). Strengthen your personal testimony to bring converting power to your words. First study the doctrines and the lessons in your native language. That understanding will strengthen your testimony and your capacity to teach and testify convincingly. You can then learn to express the message of the Restoration in your mission language under the guidance of the Spirit.
-
-
 Listed below are ways you can strengthen your faith that the Lord will help you teach and testify in your mission language:
+- Recognize that you have been called of God by a prophet.
+- Live worthy of the companionship of the Holy Ghost.
+- Be obedient to the commandments and to missionary standards.
+- Pray sincerely for divine assistance.
+- Study, practice, and use the mission language each day.
 
-
-• Recognize that you have been called of God by a prophet.
-
-
-• Live worthy of the companionship of the Holy Ghost.
-
-
-• Be obedient to the commandments and to missionary standards.
-
-
-• Pray sincerely for divine assistance.
-
-
-• Study, practice, and use the mission language each day.
-
-
-. y p o c t o n o D . m o c . s e g a m I y t t e G : o t o h P
-
-
-127
-7 Learn the Language
-====================
-
-
-128
-Notes
-
-
-Be Dedicated and Diligent
-=========================
-
-
-Learning to teach effectively in your mission language requires diligent effort. Do not be
-
-
-surprised if the task seems hard at first. Learning a language takes time. Be patient with yourself. Seek the help of your companion, members, investigators, and other missionaries. Do not stop improving your language skills once people begin to understand you. As your ability to speak the language grows, people will listen more to what you say than to how you say it. You will be less worried about how to communicate the feelings that are in your heart. You will be better able to respond to the needs of investigators and the promptings of the Spirit.
-
-
+## Be Dedicated and Diligent (Page 142)
+Learning to teach effectively in your mission language requires diligent effort. Do not be surprised if the task seems hard at first. Learning a language takes time. Be patient with yourself. Seek the help of your companion, members, investigators, and other missionaries. Do not stop improving your language skills once people begin to understand you. As your ability to speak the language grows, people will listen more to what you say than to how you say it. You will be less worried about how to communicate the feelings that are in your heart. You will be better able to respond to the needs of investigators and the promptings of the Spirit.
 Strive to master the language throughout your mission and after you return. The Lord has invested much in you, and He may have uses for your language abilities later in your life. Elder Jeffrey R. Holland explained: “We would . . . hope that every missionary learning a new proselyting language would master it in every way possible. . . . And as you do so, your proselyting and testifying skills will improve. You will be better received by and more spiritually impressive to your investigators. . . . Don’t be satisfied with what we call a missionary vocabulary only. Stretch yourself in the language, and you will gain greater access to the hearts of the people” (missionary satellite broadcast, Aug. 1998).
-
-
 You are not alone in learning your mission language. Whenever the Lord gives a commandment, He provides a way to accomplish it (see 1 Nephi 3:7). Seek His help. Be dedicated in your study. In time you will acquire the language skills necessary to fulfill your purpose as a missionary.
 
-
-Learn English
-=============
-
-
+## Learn English (Page 142)
 If you do not speak English, you should study it as a missionary. This will bless you during your mission and throughout your life. Learning English will enable you to help build the Lord’s kingdom in additional ways and will be a blessing for you and your family. Many of the suggestions found in this chapter will help you. Focus particularly on the following:
+- Set a goal to speak English with your companion. If your companion already knows English and is trying to learn your language, you might choose to speak English in the apartment and the mission language when you go out.
+- With your companion, read from the Book of Mormon in English. You might also choose to alternate: You read a verse in English, and then your companion reads a verse in the mission language. Correct each other’s pronunciation and intonation.
+- Ask your mission president for suggestions on a simple English grammar text if you do not already have one.
 
-
-• Set a goal to speak English with your companion. If your companion already knows English and is trying to learn your language, you might choose to speak English in the apartment and the mission language when you go out.
-
-
-• With your companion, read from the Book of Mormon in English. You might also choose to alternate: You read a verse in English, and then your companion reads a verse in the mission language. Correct each other’s pronunciation and intonation.
-
-
-• Ask your mission president for suggestions on a simple English grammar text if you do not already have one.
-
-
-Principles of Language Learning
-===============================
-
-
+## Principles of Language Learning (Page 142)
 This section describes principles to help you study and learn the language more effectively.
+- **Take responsibility.** Regularly create or adjust your language learning goals and study plan. Strive to use the language at every opportunity.
+- **Make your study meaningful.** Ask yourself: Why am I studying this? How will it help me communicate better? Relate what you study to real-life situations and daily activities. Study parts of the language that will help you say what you want to say. For example, if there is a scripture story you would like to include in your teaching, learn the vocabulary and grammar necessary to relate it.
+- Seek to communicate. Seek to find an appropriate balance between studying grammar and the structure of the language and learning through your daily activities. There is no substitute for talking with native speakers of the language.
+- Learn new concepts thoroughly. You will be able to recall and effectively use language principles if you review regularly what you have studied and if you practice again in new situations.
 
-
-• Take responsibility. Regularly create or adjust your language learning goals and study plan. Strive to use the language at every opportunity.
-
-
-• Make your study meaningful. Ask yourself: Why am I studying this? How will it help me communicate better? Relate what you study to real-life situations and daily activities. Study parts of the language that will help you say what you want to say. For example, if there is a scripture story you would like to include in your teaching, learn the vocabulary and grammar necessary to relate it.
-
-
-7 Learn the Language
-====================
-
-
-• Seek to communicate. Seek to find an appropriate balance between studying grammar and the structure of the language and learning through your daily activities. There is no substitute for talking with native speakers of the language.
-
-
-• Learn new concepts thoroughly. You will be able to recall and effectively use language principles if you review regularly what you have studied and if you practice again in new situations.
-
-
-Create a Language Study Plan
-============================
-
-
+## Create a Language Study Plan (Page 143)
 A language study plan helps both new and experienced missionaries focus on what they can do each day to improve their ability to speak the mission language. Your plan will include what you will do during your language study time and what you will do throughout the day.
-
-
 As needed, use some of your language study time to create or adjust your study plan. Then each morning during your language study time, learn the language needed for the day’s activities. The following guidelines will help you in creating your own language learning plan:
-
-
 1. Set goals. Weekly and daily goals will help you learn your mission language. Focus your goals on improving your ability to communicate and teach during scheduled activities, such as teaching appointments, finding opportunities, and ward council meetings. Review your progress in achieving your language goals. Ask yourself what you can do to communicate with greater clarity and power during your scheduled activities.
-
-
 2. Select which tools to use. Review the following language tools and determine which you can use to achieve your goals:
-
-
-![see page 143](#)
-• The standard works in your mission language.
-
-
-• The lessons in your mission language.
-
-
-• A pocket-size dictionary.
-
-
-• A small grammar book.
-
-
-• MTC language materials.
-
-
-• Note cards.
-
-
-• A pocket notebook.
-
-
-• Other Church materials in your mission language.
-
+- The standard works in your mission language.
+- The lessons in your mission language.
+- A pocket-size dictionary.
+- A small grammar book.
+- MTC language materials.
+- Note cards.
+- A pocket notebook.
+- Other Church materials in your mission language.
 
 3. Memorize vocabulary and phrases. Identify vocabulary and phrases that will help you accomplish your goals. Your language plan might include the following ideas:
-
-
-• Identify vocabulary and phrases in the lessons, brochures, scriptures, and other Church publications that you can use in teaching.
-
-
-• Record words or phrases you do not know in a notebook. Carry a small dictionary and look up these words.
-
-
-• Carry note cards to study throughout the day. Write a word or phrase on one side and the definition on the opposite side. Set aside the words you learn. Work on the remaining words until you know them all.
-
-
-Notes
-=====
-
-
-129
-7 Learn the Language
-====================
-
-
-130
-Notes
-
-
-• Use new words and phrases in sentences during personal study, teaching, and throughout the day.
-
-
-• Practice pronunciation by saying new words and phrases out loud.
-
-
-• Memorize key scriptures in the mission language.
-
-
-• Memorize simple statements from the lessons or brochures that convey key gospel principles. Find other ways to express these ideas.
-
+- Identify vocabulary and phrases in the lessons, brochures, scriptures, and other Church publications that you can use in teaching.
+- Record words or phrases you do not know in a notebook. Carry a small dictionary and look up these words.
+- Carry note cards to study throughout the day. Write a word or phrase on one side and the definition on the opposite side. Set aside the words you learn. Work on the remaining words until you know them all.
+- Use new words and phrases in sentences during personal study, teaching, and throughout the day.
+- Practice pronunciation by saying new words and phrases out loud.
+- Memorize key scriptures in the mission language.
+- Memorize simple statements from the lessons or brochures that convey key gospel principles. Find other ways to express these ideas.
 
 4. Learn grammar. Use your language tools to identify grammar principles that will help you achieve your goals. If needed, ask your companion, an experienced missionary, or a member for help. Consider incorporating some of the following ideas:
-
-
-• Use the grammar text you received at the MTC or a text approved by your mission president to help you understand the grammar and sentence patterns found in the lessons, brochures, and scriptures.
-
-
-• Prepare sentences to use in your scheduled activities that apply these grammar principles. Practice speaking and writing the sentences.
-
-
-• Pay attention to word order in the language and to words and their parts.
-
-
-• Look for opportunities to practice and apply the grammar that you study each day.
-
+- Use the grammar text you received at the MTC or a text approved by your mission president to help you understand the grammar and sentence patterns found in the lessons, brochures, and scriptures.
+- Prepare sentences to use in your scheduled activities that apply these grammar principles. Practice speaking and writing the sentences.
+- Pay attention to word order in the language and to words and their parts.
+- Look for opportunities to practice and apply the grammar that you study each day.
 
 5. Actively listen. Consider incorporating the following:
-=========================================================
-
-
-• Listen carefully to native speakers. Imitate what you hear.
-
-
-• When you hear something you do not understand, write it down and find out what it means. Practice using the vocabulary or sentence pattern.
-
-
-• When listening, identify vocabulary and patterns that you have recently learned.
-
-
-• When you hear a phrase expressed differently from the way you would say it, write it down and practice it. However, as a servant of the Lord, always use appropriate language, not slang.
-
-
-• Make a list of things people might say to you during your planned activities. Look up words and phrases related to these responses. Plan and practice ways that you could respond.
-
+- Listen carefully to native speakers. Imitate what you hear.
+- When you hear something you do not understand, write it down and find out what it means. Practice using the vocabulary or sentence pattern.
+- When listening, identify vocabulary and patterns that you have recently learned.
+- When you hear a phrase expressed differently from the way you would say it, write it down and practice it. However, as a servant of the Lord, always use appropriate language, not slang.
+- Make a list of things people might say to you during your planned activities. Look up words and phrases related to these responses. Plan and practice ways that you could respond.
 
 6. Improve your ability to read and write. Read the Book of Mormon in your mission language to learn vocabulary and phrases and to practice grammar, pronunciation, and fluency. There is great power in using the scriptures in your language study. Also consider the following ideas:
-
-
-• Learn to read and write the alphabet, script, or characters of your language. For character-based writing systems, focus on reading skills, such as scripture reading, that will help you when you teach.
-
-
-• Read out loud from the Book of Mormon, other scriptures, or Church magazines in your mission language. Pay attention to unfamiliar vocabulary, phrases, and grammar. If you do not understand a word, try to understand its meaning from the context of the passage before you look it up. Add the word to your note cards. Use your native- language and mission-language scriptures side-by-side if necessary.
-
-
-• Have someone coach you on pronunciation, intonation, and pauses as you read.
-
-
-• Practice writing in your mission language—for example, personal notes and reminders, letters, thank-you notes, and notes of encouragement. Write your testimony in copies of the Book of Mormon that you distribute.
-
-
-7 Learn the Language
-====================
-
+- Learn to read and write the alphabet, script, or characters of your language. For character-based writing systems, focus on reading skills, such as scripture reading, that will help you when you teach.
+- Read out loud from the Book of Mormon, other scriptures, or Church magazines in your mission language. Pay attention to unfamiliar vocabulary, phrases, and grammar. If you do not understand a word, try to understand its meaning from the context of the passage before you look it up. Add the word to your note cards. Use your native- language and mission-language scriptures side-by-side if necessary.
+- Have someone coach you on pronunciation, intonation, and pauses as you read.
+- Practice writing in your mission language—for example, personal notes and reminders, letters, thank-you notes, and notes of encouragement. Write your testimony in copies of the Book of Mormon that you distribute.
 
 7. Ask others to help you. Consider incorporating the following ideas:
-
-
-• If your companion is a native speaker, take advantage of this great opportunity by asking questions frequently and seeking feedback.
-
-
-![see page 145](#)
-• Ask your companion and native speakers to correct you and to suggest ways to improve. If they use a word you don’t understand, ask them to define it for you. Children and grand- parents are often willing to help.
-
-
-• Invite those you teach to help you. Explain, “I’m learning your language. Please help me. If I struggle to find a word, please help me with it.”
-
-
-• Do not hesitate to ask for specific help: “How do you say ?” “How do you pronounce that?” Write down the answers and study them. ?” “What does mean?” “Would you please repeat
-
-
-• Ask members to quiz you on your note cards or vocabulary lists and to help you in reading scriptures aloud.
-
+- If your companion is a native speaker, take advantage of this great opportunity by asking questions frequently and seeking feedback.
+- Ask your companion and native speakers to correct you and to suggest ways to improve. If they use a word you don’t understand, ask them to define it for you. Children and grand- parents are often willing to help.
+- Invite those you teach to help you. Explain, “I’m learning your language. Please help me. If I struggle to find a word, please help me with it.”
+- Do not hesitate to ask for specific help: “How do you say ?” “How do you pronounce that?” Write down the answers and study them. ?” “What does mean?” “Would you please repeat
+- Ask members to quiz you on your note cards or vocabulary lists and to help you in reading scriptures aloud.
 
 8. Evaluate and revise your study plan. Review your study plan each week to evaluate if it is working. Invite your companion and mission leaders to suggest areas for improvement.
-
-
 Use your mission language at every opportunity. Speak the language with your companion as much as possible throughout the day. Pray in the language privately and publicly to learn the appropriate language for prayer and to learn to speak what is in your heart.
-
-
 Do not be afraid of making mistakes. Everyone who learns a new language makes mistakes. People will understand, and they will appreciate your efforts to learn their language. Memorizing phrases and scriptures will help you avoid mistakes, but you should not use lengthy memorized or prepared scripts as a way to avoid mistakes.
 
 
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 145)
 Using the guidelines described above, create a study plan. Review your plan with your companion or a mission leader.
 
+## Learn with Your Companions (Page 145)
+Help your companions experience success and gain confidence in learning the language as rapidly as possible. Sincerely and frequently compliment your companions and other missionaries on their progress. Be sensitive not to say or do anything that might weaken their confidence, but don’t protect them so much that they do not learn. Do not withhold help when it is needed. Give them many opportunities to teach and testify successfully. Consider the following ideas for learning with your companions:
+- Teach each other the grammar and vocabulary you have learned.
+- Practice teaching in the mission language. At first, new missionaries might teach very simply, share a simple testimony, and recite memorized scriptures. As their confidence and ability increase, they will be able to participate more fully in teaching investigators.
+- Practice using the language to communicate in common missionary situations.
+- Give each other simple and practical feedback with kindness. It is also important that you receive feedback without taking offense.
 
-Notes
+Note how a more experienced missionary helped his companion in the following true account: I had just arrived in my second area when my companion told me it was my turn to give the spiritual thought at a dinner appointment. I was more than just a little scared. My first companion had always been happy to do the teaching, and I was used to giving my small portion of the lesson and then listening as he would then expound and answer any questions. I tried to convince my companion that he should give the spiritual thought, but he encouraged me to take the assignment. I practiced with his help. When the moment arrived, I opened my scriptures and read from 3 Nephi 5 and 7. I struggled but managed to explain why I felt my chosen passages were significant, and I was relieved when I was done. When a question was asked, I looked to my companion to answer, but he didn’t open his mouth. That was when I amazed myself by coming up with an answer in understandable French. I was even more amazed that the member didn’t seem to sense that I was insecure about my communication skills. I gained confidence and realized that my French was better than I gave myself credit for. The weeks passed, and my companion continued to let me teach—even when I didn’t think I could do it, even when he probably wondered if I could do it. And because he encouraged me to speak, listen, and teach, my language skills began to progress more quickly, and I felt that I had become a tool of our Father in Heaven instead of being simply another elder’s quiet companion.
 
-
-Learn with Your Companions
-==========================
-
-
-language as rapidly as possible. Sincerely and frequently compliment your companions and other missionaries on their progress. Be sensitive not to say or do anything that might weaken their confidence, but don’t protect them so much that they do not learn. Do not withhold help when it is needed. Give them many opportunities to teach and testify successfully. Consider the following ideas for learning with your companions:
-
-
-131
-7 Learn the Language
-====================
+#### Activity: Personal or Companion Study (Page 146)
+- If you are working with a new missionary, how can you better help your companion learn the language?
+- If you are a new missionary, what kind of help might you ask from your senior companion?
 
 
-Notes
-
-
-• Teach each other the grammar and vocabulary you have learned.
-
-
-• Practice teaching in the mission language. At first, new missionaries might teach very simply, share a simple testimony, and recite memorized scriptures. As their confidence and ability increase, they will be able to participate more fully in teaching investigators.
-
-
-• Practice using the language to communicate in common missionary situations.
-
-
-• Give each other simple and practical feedback with kindness. It is also important that you receive feedback without taking offense.
-
-
-Note how a more experienced missionary helped his companion in the following true account.
-
-
-I had just arrived in my second area when my companion told me it was my turn to give the spiritual thought at a dinner appointment. I was more than just a little scared. My first companion had always been happy to do the teaching, and I was used to giving my small portion of the lesson and then listening as he would then expound and answer any questions.
-
-
-I tried to convince my companion that he should give the spiritual thought, but he encouraged me to take the assignment. I practiced with his help.
-
-
-managed to explain why I felt my chosen passages were significant, and I was relieved when I was done. When a question was asked, I looked to my companion to answer, but he didn’t open his mouth. That was when I amazed myself by coming up with an answer in understandable French. I was even more amazed that the member didn’t seem to sense that I was insecure about my communication skills. I gained confidence and realized that my French was better than I gave myself credit for.
-
-
-The weeks passed, and my companion continued to let me teach—even when I didn’t think I could do it, even when he probably wondered if I could do it. And because he encouraged me to speak, listen, and teach, my language skills began to progress more quickly, and I felt that I had become a tool of our Father in Heaven instead of being simply another elder’s quiet companion.
-
-
-Activity: Personal or Companion Study
-=====================================
-
-
-• If you are working with a new missionary, how can you better help your companion learn the language?
-
-
-• If you are a new missionary, what kind of help might you ask from your senior companion?
-
-
-Culture and Language Learning
-=============================
-
-
+## Culture and Language Learning (Page 146)
 Culture and language are closely related. Understanding the culture will help explain why language is used the way it is. Strive to understand the culture of the people so that you can communicate the unique aspects of the message of the Restoration in a way that will be clear to them.
-
-
 One of the greatest things you can do to gain people’s trust and love is to embrace their culture in appropriate ways. Many great missionaries have done so (see 1 Corinthians 9:20–23). Seek to have the people feel comfortable with you and your language.
 
+#### Activity: Personal or Companion Study (Page 147)
+- Imagine that you are serving a mission in Asia. You are preparing to teach someone about resurrection, and you know that Buddhists believe in reincarnation. How will you teach about resurrection in such a way that the investigator will understand that this doctrine is distinctly different from reincarnation? What words and phrases might you need to learn to accomplish this task?
+- Think about the cultural and religious background of the people you teach. Identify an aspect of their background that might lead them to misunderstand the doctrines of the gospel. Plan ways to teach these doctrines clearly.
 
-132
-7 Learn the Language
-====================
-
-
-Activity: Personal or Companion Study
-=====================================
-
-
-• Imagine that you are serving a mission in Asia. You are preparing to teach someone about resurrection, and you know that Buddhists believe in reincarnation. How will you teach about resurrection in such a way that the investigator will understand that this doctrine is distinctly different from reincarnation? What words and phrases might you need to learn to accomplish this task?
-
-
-• Think about the cultural and religious background of the people you teach. Identify an aspect of their background that might lead them to misunderstand the doctrines of the gospel. Plan ways to teach these doctrines clearly.
-
-
-Notes
-
-
-The Gift of Tongues
-===================
-
-
-tongues. More than anything else, this will help you speak and understand the language of the people in your mission. You will not obtain this gift without effort on your part; you need to actively seek it. Part of seeking the gift of tongues is to labor and struggle and to do all you can to learn the language. Trust that the Spirit will help you as you live the way you should and do your very best. Have faith that you can have the gift of tongues in its true and most comprehensive sense.
-
-
+## The Gift of Tongue (Page 147)
+Seek the gifts of the Spirit, including the gift of tongues and the interpretation of tongues. More than anything else, this will help you speak and understand the language of the people in your mission. You will not obtain this gift without effort on your part; you need to actively seek it. Part of seeking the gift of tongues is to labor and struggle and to do all you can to learn the language. Trust that the Spirit will help you as you live the way you should and do your very best. Have faith that you can have the gift of tongues in its true and most comprehensive sense.
 When you feel you are struggling to express yourself as clearly as you would like, remember that the Spirit is able to speak to the hearts of all of God’s children. President Thomas S. Monson taught: “There is one language . . . that is common to each missionary—the language of the Spirit. It is not learned from textbooks written by men of letters, nor is it acquired through reading and memorization. The language of the Spirit comes to him who seeks with all his heart to know God and keep His divine commandments. Proficiency in this language permits one to breach barriers, overcome obstacles, and touch the human heart” (“The Spirit Giveth Life,” Ensign, June 1997, 2).
 
-
-Remember This
-=============
-
-
-• Study the doctrines and lessons you teach in your native language first.
-
-
-• Learn to express these doctrines and your feelings about them in your mission language.
-
-
-• Create a language study plan and regularly try new ideas as you seek to improve in your mission language.
-
-
-• Seek the guidance of the Spirit to help you understand and communicate with the people of your mission.
-
-
-133
-7 Learn the Language
-====================
-
-
-Notes
-
-
-Ideas for Study and Application
-===============================
-
-
-Personal Study
-==============
-
-
-• Review the suggestions in this chapter. Identify a suggestion you have not yet tried, and set a goal to try it for the next few days.
-
-
-• At your next district meeting, ask an experienced missionary with good language ability what he or she has done to learn the language.
-
-
-• Read and discuss the following statement by Elder Richard G. Scott: “Where . . . national traditions or customs conflict with the teachings of God, set them aside. Where traditions and customs are in harmony with His teachings, they should be cherished” (“Removing Barriers to Happiness,” Ensign, May 1998, 87). Think about the ways that the culture in the area where you serve is different from your own. Make a list of the differences. Then cross out any that conflict with the teachings of the gospel. Consider each of those that remain, and think about how you can make these customs your own.
-
-
-• Build a study plan to prepare you to do one of the following things in your mission language:
-
-
-– Tell the Joseph Smith story.
-
-
-– Summarize 3 Nephi 11.
-
-
-– Summarize Alma 32.
-
-
-– Tell the story of Nephi and the brass plates (see 1 Nephi 3–5).
-
-
-– Explain dispensations.
-
-
-– Share a personal experience.
-
-
-• Make note cards for words you don’t know in one of the lessons. Carry them with you until you have learned them all.
-
-
-Companion Study
-===============
-
-
-• Practice teaching each other the missionary lessons in your mission language.
-
-
-• Ask your companion to listen to your pronunciation and help you improve.
-
-
-• Select scripture stories or passages you would like to use in teaching. Practice summarizing them in your own words.
-
-
-• Review the ideas in this chapter. Discuss which suggestions you could use in companion study during the next week.
-
-
-• If you are training a new missionary, take note of situations when your companion is not understood. Make a list of relevant words, phrases, or grammar that would help your companion. Explain and practice how to use what is on the list in upcoming, planned activities.
-
-
-District Meetings and Zone Conferences
-======================================
-
-
-• Invite native speakers to the meeting. Arrange for the missionaries to teach them in small groups. Ask the native speakers to take notes and give feedback on the missionaries’ language.
-
-
-• Assign one or two missionaries ahead of time to tell about successes they have had in studying the language. Have them share their ideas.
-
-
-134
-• Assign an experienced missionary to present briefly some part of the language that is usually difficult for missionaries. Present examples of good usage, and have the missionaries practice them.
-
-
-• Have missionaries who are native to the culture share helpful insights.
-
-
-Mission President
-=================
-
-
-• Periodically interview missionaries in the language they are learning.
-
-
-• Ask local priesthood leaders for ideas on how missionaries can improve their language.
-
-
-• Identify the most common mistakes made by missionaries learning your mission language. Give instruction in zone conference on correcting these mistakes.
-
-
-• Teach missionaries the doctrine of spiritual gifts.
-
-
-• Observe your missionaries when they teach in the language.
-
-
-• Look for opportunities to use the language with your missionaries.
-
-
-7 Learn the Language
-====================
-
-
-Notes
-
-
-135
-7 Learn the Language
-====================
-
-
-/
-Notes
-
-
-136
-——
-2 e
-===
-
-
-et
-==
-
-
-wt
-==
-
-
-8 Use Time Wisely
-=================
-
-
-—
-v"
-==
-
-
-L
-=
-
-
-.
-] ™ f\
-'™
-"
-)
-)
-\
-How Do I Use Time Wisely?
-=========================
-
-
-Consider This
-=============
-
-
-• How can goals help me be a more effective missionary?
-
-
-• What should be the focus of my goals?
-
-
-• What are my planning tools and resources, and how do I use them?
-
-
-• Why is the area book important?
-
-
-• How do I conduct weekly and daily planning sessions?
-
-
-• How will I know if my goals and plans are helping to further the Lord’s work?
-
-
-r e
-===
-
-
-o | :
-i .&X ‘
-Notes
-
-
-* 
-
-
+#### Remember This (Page 147)
+- Study the doctrines and lessons you teach in your native language first.
+- Learn to express these doctrines and your feelings about them in your mission language.
+- Create a language study plan and regularly try new ideas as you seek to improve in your mission language.
+- Seek the guidance of the Spirit to help you understand and communicate with the people of your mission.
+
+## Ideas for Study and Application (Page 148)
+### Personal Study (Page 148)
+- Review the suggestions in this chapter. Identify a suggestion you have not yet tried, and set a goal to try it for the next few days.
+- At your next district meeting, ask an experienced missionary with good language ability what he or she has done to learn the language.
+- Read and discuss the following statement by Elder Richard G. Scott: “Where . . . national traditions or customs conflict with the teachings of God, set them aside. Where traditions and customs are in harmony with His teachings, they should be cherished” (“Removing Barriers to Happiness,” Ensign, May 1998, 87). Think about the ways that the culture in the area where you serve is different from your own. Make a list of the differences. Then cross out any that conflict with the teachings of the gospel. Consider each of those that remain, and think about how you can make these customs your own.
+- Build a study plan to prepare you to do one of the following things in your mission language:
+  - Tell the Joseph Smith story.
+  - Summarize 3 Nephi 11.
+  - Summarize Alma 32.
+  - Tell the story of Nephi and the brass plates (see 1 Nephi 3–5).
+  - Explain dispensations.
+  - Share a personal experience.
+
+- Make note cards for words you don’t know in one of the lessons. Carry them with you until you have learned them all.
+
+
+### Companion Study (Page 148)
+- Practice teaching each other the missionary lessons in your mission language.
+- Ask your companion to listen to your pronunciation and help you improve.
+- Select scripture stories or passages you would like to use in teaching. Practice summarizing them in your own words.
+- Review the ideas in this chapter. Discuss which suggestions you could use in companion study during the next week.
+- If you are training a new missionary, take note of situations when your companion is not understood. Make a list of relevant words, phrases, or grammar that would help your companion. Explain and practice how to use what is on the list in upcoming, planned activities.
+
+### District Meetings and Zone Conferences (Page 148)
+- Invite native speakers to the meeting. Arrange for the missionaries to teach them in small groups. Ask the native speakers to take notes and give feedback on the missionaries’ language.
+- Assign one or two missionaries ahead of time to tell about successes they have had in studying the language. Have them share their ideas.
+- Assign an experienced missionary to present briefly some part of the language that is usually difficult for missionaries. Present examples of good usage, and have the missionaries practice them.
+- Have missionaries who are native to the culture share helpful insights.
+
+### Mission President (Page 149)
+- Periodically interview missionaries in the language they are learning.
+- Ask local priesthood leaders for ideas on how missionaries can improve their language.
+- Identify the most common mistakes made by missionaries learning your mission language. Give instruction in zone conference on correcting these mistakes.
+- Teach missionaries the doctrine of spiritual gifts.
+- Observe your missionaries when they teach in the language.
+- Look for opportunities to use the language with your missionaries.
+
+
+> Beginning of chapter 7 of 13 chapters in the preach my gospel manual
+# How Do I Use Time Wisely? (Page 151)
+
+#### Consider This (Page 151)
+- How can goals help me be a more effective missionary?
+- What should be the focus of my goals?
+- What are my planning tools and resources, and how do I use them?
+- Why is the area book important?
+- How do I conduct weekly and daily planning sessions?
+- How will I know if my goals and plans are helping to further the Lord’s work?
+
+## Overview (Page 151)
 You are assigned to do the Lord’s work in a specific area. He wants you to watch over your area with love and great care. Your purpose is to help others come unto Him through baptism and confirmation.
-
-
 Do all you can to leave your area stronger than you found it. Meaningful goals and careful planning will help you accomplish what the Lord requires of you. As you care for the people in your assigned area, you will account to Him and to your mission leaders. Your missionary call letter states: “You will also be expected to devote all your time and attention to serving the Lord, leaving behind all other personal affairs. As you do these things the Lord will bless you and you will become an effective advocate and messenger of the truth. We place in you our confidence and pray that the Lord will help you meet your responsibilities in fulfilling this sacred assignment.” This chapter will help you know how goal setting, planning, and accountability can help many people receive the restored gospel.
 
-
-Activity: Personal or Companion Study
-=====================================
-
-
+#### Activity: Personal or Companion Study
 Read Jacob 5:11–13, 61–64, 74–75, and answer these questions:
+- How does the Lord feel about His children?
+- What kind of effort does the Lord require of His servants?
 
-
-• How does the Lord feel about His children?
-
-
-• What kind of effort does the Lord require of His servants?
-
-
-137
-8 Use Time Wisely
-=================
-
-
-Notes
-
-
-Key Indicators for Conversion
-=============================
-
-
+## Key Indicators for Conversion (Page 152)
 Perhaps you have wondered which of your many duties are the most important. To be able to answer this question, you must understand your purpose and know how effective use of time can help you fulfill this purpose.
-
-
 Your purpose is to invite others to come unto Christ by helping them receive the restored gospel through faith in Jesus Christ and His Atonement, repentance, baptism, receiving the gift of the Holy Ghost, and enduring to the end. Key indicators have been identified by Church leaders to help you focus on this purpose. As you focus on these indicators, you will help people progress toward baptism, confirmation, continued activity in the Church, and lasting conversion.
 
+#### Key Indicators to Record and Report (Page 152)
+- Investigators baptized and confirmed
+- Investigators with a baptismal date
+- Investigators who attend sacrament meeting
+- Lessons taught to investigators with a member present
+- Other lessons taught
+- Progressing investigators
+- Referrals received and contacted
+- New investigators
+- Lessons taught to recent converts and less-active members
 
-Key Indicators to Record and Report
-===================================
-
-
-• Investigators baptized and confirmed
-
-
-• Investigators with a baptismal date
-
-
-• Investigators who attend sacrament meeting
-
-
-• Lessons taught to investigators with a member present
-
-
-• Other lessons taught
-
-
-• Progressing investigators
-
-
-• Referrals received and contacted
-
-
-• New investigators
-
-
-• Lessons taught to recent converts and less-active members
-
-
-138
 These indicators identify events and conditions that show a person’s progress toward enduring conversion. A brief description of each key indicator is given below:
 
+- Investigators baptized and confirmed: Each person who has received the ordinances of baptism and confirmation. Report baptisms for the week in which they take place and confirmations for the week in which they take place.
+- Investigators with a baptismal date: Each investigator who has agreed to be baptized and confirmed on specific dates.
+- Investigators who attend sacrament meeting: Each investigator who has attended sacrament meeting.
+- Lessons taught to investigators with a member present: The total number of lessons taught to all investigators with a member present. A lesson typically includes the teaching of one or more gospel principles from the lessons, an opening and closing prayer, and invitations to make commitments. It is not necessary to teach all the principles of a lesson to consider it a complete lesson. The effectiveness of your teaching can be measured by whether investigators are growing in their faith in the Savior, repenting of their transgressions, and earnestly preparing to receive the ordinances of baptism and confirmation. Report only those lessons at which you were present. Report the total number of lessons taught, not the number of investigators who received lessons.
+- Other lessons taught: The total number of lessons taught to investigators without a member present.
+- Progressing investigators: The total number of investigators who have been taught two or more lessons and are keeping commitments such as to pray, read from the Book of Mormon, attend church, and prepare for baptism and confirmation. Investigators who are willing to continue learning about the gospel but are struggling to keep commitments are not progressing investigators as defined here. They are classified either as new investigators or other investigators.
+- Referrals received and contacted: The total number of referrals you have contacted and either taught or asked for a specific return appointment. Once you contact a referral, the referral is moved from the referral pool and either becomes a new investigator, is marked for further follow-up, or is dropped. A referral is also considered contacted if after many attempts you cannot reach the person or you find that the address is incorrect. These referrals are sent back to the mission office with a note describing why contact could not be made. Total referrals received refers to all the referrals you received that have not yet been contacted (referrals from members, investigators, Church headquarters, and so forth). For reporting purposes, the number of referrals that have not yet been contacted carries over from week to week. Each new referral is added to this number and each referral contacted is subtracted from it. Remember, however, that “referrals contacted” refers to the number contacted in the week being reported.
 
-Investigators baptized and confirmed: Each person who has received the ordinances of baptism and confirmation. Report baptisms for the week in which they take place and confirmations for the week in which they take place.
-
-
-Investigators with a baptismal date: Each investigator who has agreed to be baptized and confirmed on specific dates.
-
-
-Investigators who attend sacrament meeting: Each investigator who has attended sacrament meeting.
-
-
-Lessons taught to investigators with a member present: The total number of lessons taught to all investigators with a member present. A lesson typically includes the teaching of one or more gospel principles from the lessons, an opening and closing prayer, and invitations to make commitments. It is not necessary to teach all the principles of a lesson to consider it a complete lesson. The effectiveness of your teaching can be measured by whether investigators are growing in their faith in the Savior, repenting of their transgressions, and earnestly preparing to receive the ordinances of baptism and confirmation. Report only those lessons at which you were present. Report the total number of lessons taught, not the number of investigators who received lessons.
-
-
-Other lessons taught: The total number of lessons taught to investigators without a member present.
-
-
-Progressing investigators: The total number of investigators who have been taught two or more lessons and are keeping commitments such as to pray, read from the Book of Mormon, attend church, and prepare for baptism and confirmation. Investigators who are willing
-
-
-8 Use Time Wisely
-=================
-
-
-to continue learning about the gospel but are struggling to keep commitments are not progressing investigators as defined here. They are classified either as new investigators or other investigators.
-
-
-Referrals received and contacted: The total number of referrals you have contacted and either taught or asked for a specific return appointment. Once you contact a referral, the referral is moved from the referral pool and either becomes a new investigator, is marked for further follow-up, or is dropped. A referral is also considered contacted if after many attempts you cannot reach the person or you find that the address is incorrect. These referrals are sent back to the mission office with a note describing why contact could not be made. Total referrals received refers to all the referrals you received that have not yet been
-
-
-contacted (referrals from members, investigators, Church headquarters, and so forth). For reporting purposes, the number of referrals that have not yet been contacted carries over from week to week. Each new referral is added to this number and each referral contacted is subtracted from it. Remember, however, that “referrals contacted” refers to the number contacted in the week being reported.
-
-
-New investigators: The total number of individuals who have received a lesson and accepted a specific return appointment.
-
-
+- New investigators: The total number of individuals who have received a lesson and accepted a specific return appointment.
 Lessons taught to recent converts and less-active members: The total number of lessons taught to converts who have been members for less than one year and to less-active members.
-
-
 As you set goals and make plans, evaluate what you do in terms of how your efforts will add to the numbers of people represented in each of these key indicators. Your goal should be to have increasing numbers for every key indicator.
-
-
 You will do many things that are not described in the key indicators, such as street contacting or personal and companion study. These important activities contribute to one or more of the key indicators. For example, when you teach those you find through your own efforts, you add new investigators to your teaching pool. Also, the quality of your personal and companion study will improve your ability to teach by the Spirit, which will bless your new and progressing investigators. The power of your finding and teaching will influence every key indicator. Evaluate all you do based on whether it adds to the numbers of people in these categories. If you and your companion cannot see how a proselyting activity might help increase the numbers of people in one or more key indicators, you need to question whether the activity is worth your time.
 
-
-Activity: Companion Study
-=========================
-
-
+#### Activity: Companion Study (Page 153)
 In your study journal, list every proselyting activity you have done in the past three days. For each activity, determine if it influenced one of the key indicators. If it did, write yes beside it. If it did not, write no. For each activity with a yes, describe how it had an impact. For each activity with a no, decide why you did it and whether you will continue to do the activity in the future. Discuss your list with your companion, and explain why you marked some activities yes and some activities no. Discuss which activities you may need to stop doing.
 
-
-Notes
-
-
-The Area Book and Planning and Reporting Tools
-==============================================
-
-
+## The Area Book and Planning and Reporting Tools
 Concerning those who were received into the Church by baptism and confirmation in his day, Moroni taught, “Their names were taken, that they might be remembered and nourished by the good word of God, to keep them in the right way” (Moroni 6:4).
-
-
 You have been given tools to help you record important information about the people you teach. These tools also allow you to share the right amount of information with those who need it, as shown in the following illustration.
-
-
-139
-8 Use Time Wisely
-=================
-
-
-Notes
-
-
 
 
 | Information Pyramid | Tools: |
@@ -3611,745 +3120,252 @@ Notes
 | Ward Council | Progress Record |
 | Missionaries | Missionary Daily Planner; Area Book |
 
-
 These tools and all the information needed to do your work are kept in the area book and the Missionary Daily Planner. The area book is organized as follows:
+Area Map
+- Map of the area with an outline of the boundaries
+
+Progress Records
+- Progress Record forms
+
+Investigators with a Baptism and Confirmation Date
+- Teaching Record forms
+
+Progressing Investigators
+- Teaching Record forms
+
+New and Other Investigators
+- Teaching Record forms
+
+Potential Investigators
+- Potential Investigators forms
+- Media referrals and other referral records
+
+Former Investigators
+- Teaching Record forms
+
+Recent Converts and Less-Active Members
+- Teaching Record forms
+- Convert Action List forms
+
+Ward and Mission Information
+- Ward directory
+- Ward positions list
+- Schedule of ward and missionary meetings
+- List of part-member families
+- Directory of missionaries in your district or zone
+
+Leadership
+- Call-In Summary Reports
+
+Information about the Area
+- Information about the apartment
+- Public transportation
+- Barbershop
+- Laundry
+- Places to shop
+- Places to avoid
+- Contacts
 
 
-* Area Map
-
-
-– Map of the area with an outline of the boundaries
-
-
-• Progress Records
-
-
-– Progress Record forms
-
-
-• Investigators with a Baptism and
-
-
-Confirmation Date – Teaching Record forms
-=========================================
-
-
-• Progressing Investigators
-
-
-– Teaching Record forms
-
-
-• New and Other Investigators
-
-
-– Teaching Record forms
-
-
-• Potential Investigators
-
-
-– Potential Investigators forms – Media referrals and other
-
-
-referral records
-
-
-• Former Investigators
-======================
-
-
-– Teaching Record forms
-
-
-• Recent Converts and Less-Active Members
-
-
-– Teaching Record forms – Convert Action List forms
-===================================================
-
-
-• Ward and Mission Information
-
-
-– Ward directory – Ward positions list – Schedule of ward and missionary meetings – List of part-member families – Directory of missionaries in your district
-
-
-or zone
-
-
-* Leadership
-
-
-– Call-In Summary Reports
-
-
-• Information about the Area
-============================
-
-
-– Information about the apartment – Public transportation – Barbershop – Laundry – Places to shop – Places to avoid – Contacts
-
-
-The Area Book
-=============
-
-
+#### The Area Book (Page 154)
 Every proselyting area has an area book, which becomes the lasting record of your day-to-day efforts. Update key information daily, and refer to it weekly during your weekly planning session. Keep it neat, current, and accurate so that any future missionary can build on the inspired service you have given. As invited, take your area book to interviews or zone conferences, where mission leaders can review it and help you know how to use it most effectively.
 
-
 You should refer to some part of the area book each day as you update and adjust your plans. As invited, bring your area book to zone conferences and interviews so that mission leaders can review it. This book should stay in your apartment after you are transferred so that future missionaries can use the information.
-
-
-140
-8 Use Time Wisely
-=================
-
-
 In your area book, keep accurate, complete, and current records of all the people with whom you are working. An explanation of the tools that are provided follows.
-
-
 Teaching Record: This form helps you record detailed information regarding the progress of investigators, recent converts, and less-active members you are teaching.
-
-
-• Personal information.
-
-
-• Dates of baptism and confirmation.
-
-
-JESuS HiisT —— CIT—Tre——— - " o o A w—— " S— —— o [p— s g @ s Dot / (Front)
-
-
-\
-(Front)
-
-
-the principles from each of the five lessons and if a member was present. This section allows you the flexibility to track what you teach, regardless of the order in which you teach the principles.
-
-
-• You can track lessons taught before baptism and lessons taught after baptism.
-
-
-the commitments investigators are to keep. In this section you record the date you extended the invitation and mark whether they are consistent in keeping the commitment.
-
-
-Notes
-
-
-141
-8 Use Time Wisely
-=================
-
-
-Notes
-
-
-• A section where you describe the background of the person or family. Do not include highly personal or negative comments.
-
-
-important information from teaching visits. You might include concerns people have raised, commitments they have struggled to keep, and successes they have had in reading or in prayer. You can also indicate if they have attended church and what they are reading in the Book of Mormon.
-
-
-• A section where you can track follow-up visits if the person or family stopped investigating the Church.
-
+- Personal information.
+- Dates of baptism and confirmation.
+- A record of when you taught the principles from each of the five lessons and if a member was present. This section allows you the flexibility to track what you teach, regardless of the order in which you teach the principles.
+- You can track lessons taught before baptism and lessons taught after baptism.
+- A record of the status ofthe commitments investigators are to keep. In this section you record the date you extended the invitation and mark whether they are consistent in keeping the commitment.
+- A section where you describe the background of the person or family. Do not include highly personal or negative comments.
+- A section where you describe important information from teaching visits. You might include concerns people have raised, commitments they have struggled to keep, and successes they have had in reading or in prayer. You can also indicate if they have attended church and what they are reading in the Book of Mormon.
+- A section where you can track follow-up visits if the person or family stopped investigating the Church.
 
 When a Teaching Record has been created, it should remain in the area book until the person or family is fully active in the Church, moves, or passes away.
 
+- Progress Record: This record enables you to summarize the progress of investigators, recent converts, and less-active members you are teaching. It also allows you to report on the key indicators. Use it to coordinate your efforts with ward and stake leaders in missionary coordination and ward council meetings. You will update this record during your weekly planning session or before ward council meetings. If feasible, give copies of this record to the bishop, the ward mission leader, and other ward council members each week or as often as needed. Make sure the information you include on Progress Record forms is complete, accurate, and neatly written. This will build the ward council’s confidence in you.
 
-![see page 156](#)
-![see page 156](#)
-(Back)
+- Potential Investigators: This form enables you to keep a record of people who have potential to become investigators.
+  - The status of the potential investi- gator. (Has he or she been dropped, is he or she now being taught, or do you need to do further follow-up?)
+  - If the person was a referral or found by missionaries.
+  - The date the person was contacted.
+  - Important comments.
+Copy to the Potential Investigators form important information from the “Potential Investigators” section of the Missionary Daily Planner. Use this information to plan follow-up visits, review member-missionary work with the ward mission leader, and plan other activities that may help these people begin investigating the restored gospel. This form also serves as a historical record for missionaries assigned to the area in the future. When you are transferred to another area, be sure to copy all the information from your Missionary Daily Planner.
 
-
-
-
-| ASPeHOD snsal A ) G180 - ——— - | | | APTR SAED W PR PO TR D | | | T S | | | |
-| --- | --- | --- | --- | --- | --- | --- | --- | --- | --- |
-|  | - |  |  |  | = | HERNE | | S | L | ==, |  |
-
-
-
-
-| = |
-| --- |
-
-
-142
-Progress Record: This record enables you to summarize the progress of investigators, recent converts, and less-active members you are teaching. It also allows you to report on the key indicators. Use it to coordinate your efforts with ward and stake leaders in missionary coordination and ward council meetings. You will update this record during your weekly planning session or before ward council meetings. If feasible, give copies of this record to the bishop, the ward mission leader, and other ward council members each week or as often as needed. Make sure the information you include on Progress Record forms is complete, accurate, and neatly written. This will build the ward council’s confidence in you.
-
-
-8 Use Time Wisely
-=================
-
-
-Potential Investigators: This form enables you to keep a record of people who have potential to become investigators.
-
-
-* The status of the potential investi- gator. (Has he or she been dropped, is he or she now being taught, or do you need to do further follow-up?)
-
-
-* If the person was a referral or found by missionaries.
-
-
-* The date the person was contacted.
-
-
-* Important comments.
-
-
-— -
-\_
-* 
-
-
-![see page 157](#)
-Investigators” section of the Missionary Daily Planner. Use this information to plan follow-up visits, review member-missionary work with the ward mission leader, and plan other activities that may help these people begin investigating the restored gospel. This form also serves as a historical record for missionaries assigned to the area in the future. When you are transferred to another area, be sure to copy all the information from your Missionary Daily Planner.
-
-
-Call-In Summary Report: Use this report weekly to collect information on each of the key indicators. Each companionship uses the Call-In Summary Report located in the back of their Missionary Daily Planner to give this information to the district leader. The district leader writes the name of each companionship in his district on a Call-In Summary Report, along with their weekly totals for each key indicator. He then totals the results for the district at the bottom. Information flows upward. District leaders give district totals to their zone leaders. Zone leaders give zone totals to the assistants to the president. The assistants to the president give mission totals to the mission president.
-
-
-![see page 157](#)
+- Call-In Summary Report: Use this report weekly to collect information on each of the key indicators. Each companionship uses the Call-In Summary Report located in the back of their Missionary Daily Planner to give this information to the district leader. The district leader writes the name of each companionship in his district on a Call-In Summary Report, along with their weekly totals for each key indicator. He then totals the results for the district at the bottom. Information flows upward. District leaders give district totals to their zone leaders. Zone leaders give zone totals to the assistants to the president. The assistants to the president give mission totals to the mission president.
 Use the Call-in Summary Report and the Missionary Weekly Report to report baptisms for the week in which they take place and confirmations for the week in which they take place. Also, promptly submit accurate, complete baptism records because official membership records are not created until the mission reports the baptism and confirmation to Church headquarters.
 
-
-Notes
-
-
-143
-8 Use Time Wisely
-=================
-
-
-Notes
-
-
-The Missionary Daily Planner: This tool includes the following features:
-
-
-• Six weeks of daily schedules, with a seventh week on an at-a-glance page.
-
-
-• Pages for weekly goals.
-
-
-• A summary of the planning guidelines; a list of the events that lead to baptism, confirmation, and activity in the Church; lesson plans of the missionary lessons; ideas for finding people to teach; and baptismal interview questions.
-
-
-• A section for information on contacts and for addresses and phone numbers of investigators and members.
-
-
-• A Call-In Summary Report for keeping track of your weekly results.
-
+- The Missionary Daily Planner: This tool includes the following features:
+  - Six weeks of daily schedules, with a seventh week on an at-a-glance page.
+  - Pages for weekly goals.
+  - A summary of the planning guidelines; a list of the events that lead to baptism, confirmation, and activity in the Church; lesson plans of the missionary lessons; ideas for finding people to teach; and baptismal interview questions.
+  - A section for information on contacts and for addresses and phone numbers of investigators and members.
+  - A Call-In Summary Report for keeping track of your weekly results.
 
 During your weekly planning session, you will write your weekly goals on the Weekly Goals page of the Missionary Daily Planner as illustrated below.
-
-
-• Weekly goal for each key indicator.
-
-
-• Actual results for the week. The results for each day are found on the daily schedule. The total for each week is transferred here.
-
-
-![see page 158](#)
-• Names of people who are most likely to help you achieve your goals (progressing investigators, new investigators). Set goals for what you hope will happen with these people (attend church, read the Book of Mormon, set a baptismal date, and so on).
-
-
-• Space to write other personal or companion goals.
-
-
-144
-8 Use Time Wisely
-=================
-
+- Weekly goal for each key indicator.
+- Actual results for the week. The results for each day are found on the daily schedule. The total for each week is transferred here.
+- Names of people who are most likely to help you achieve your goals (progressing investigators, new investigators). Set goals for what you hope will happen with these people (attend church, read the Book of Mormon, set a baptismal date, and so on).
+- Space to write other personal or companion goals.
 
 Each day as you plan and proselyte, you will use the daily schedule as illustrated below:
+  - A daily schedule where you can record teaching appointments, meetings, and finding activities. Plan so that you have meaningful activities for every hour of the day. Space is also provided for backup plans.
+  - Space to list the tasks you need to do (phone calls, people to contact, preparation for lessons, follow-up on commitments, and so on).
+  - Space to record what you will study as you prepare for teaching appointments.
+  - Daily goals and actual results for selected key indicators.
 
+- Missionary Weekly Report: This report gives you an opportunity to account directly to your mission president on your proselyting efforts and on any personal matters you wish to share. When writing this letter, be specific and to the point, but don’t feel that you must fill all the space. He is the only person who will read this letter, so feel free to be open with your comments.
 
-• A daily schedule where you can record teaching appointments, meetings, and finding activities. Plan so that you have meaningful activities for every hour of the day. Space is also provided for backup plans.
+## How to Set Goals (Page 160)
 
-
-• Space to list the tasks you need to do (phone calls, people to contact, preparation for lessons, follow-up on commitments, and so on).
-
-
-![see page 159](#)
-• Space to record what you will study as you prepare for teaching appointments.
-
-
-• Daily goals and actual results for selected key indicators.
-
-
-Missionary Weekly Report: This report gives you an opportunity to account directly to your mission president on your proselyting efforts and on any personal matters you wish to share. When writing this letter, be specific and to the point, but don’t feel that you must fill all the space. He is the only person who will read this letter, so feel free to be open with your comments.
-
-
-![see page 159](#)
-Notes
-
-
-145
-8 Use Time Wisely
-=================
-
-
-Notes
-
-
-How to Set Goals
-================
-
-
-Goals reflect the desires of our hearts and
-
-
-“I am so thoroughly convinced
-
-
-our vision of what we can accomplish. Through goals and plans, our hopes are transformed into action. Goal setting and planning are acts of faith. Prayerfully set goals that are in harmony with the Savior’s command to “teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost” (Matthew 28:19). Set goals for each key indicator. You may also set goals for your personal development. Do everything within your power to achieve your goals while respecting the agency of others. The ultimate measure of success is not in achieving goals alone but in the service you render and the progress of others. Goals are a means of helping you bring about much good among Heavenly Father’s children. They are not to be used to receive recognition. Carefully considered goals will give you clear direction and will help you fill your days with activities that help people strengthen their faith in the Savior and progress toward baptism, confirmation, and full activity in the Church. Challenging goals will help you work effectively and lead you to stretch and grow. Follow the guidelines below as you set goals:
-
-
-that if we don’t set goals in our
-
-
-life and learn how to master the
-
-
-techniques of living to reach our
-
-
-goals, we can reach a ripe old age
-
-
-and look back on our life only to
-
-
-see that we reached but a small
-
-
-part of our full potential. When
-================================
-
-
-one learns to master the
-
-
-principles of setting a goal, he
-
-
-will then be able to make a great
-
-
-difference in the results he
-============================
-
-
-attains in this life.”
-
-
-– ELDER M. RUSSELL BALLARD TALK GIVEN TO SALT LAKE AREA YOUNG ADULTS,
-OCT. 18, 1981
-• Follow the Spirit.
-
-
-• Focus on the key indicators.
-
-
-• Focus on people. Although you will use numbers, be able to support your numbers with the names of people where possible.
-
-
-• Be specific and realistic, but set goals that will make you stretch.
-
-
-• Set weekly and daily goals.
-
-
-• Set goals for personal and companion study, including language study if you are learning another language.
-
-
-• Measure your progress each day, each week, and after each six-week period. When you fall short of a goal, evaluate your efforts and seek for ways to accomplish the goal. If needed, adjust your expectations.
-
+Goals reflect the desires of our hearts and our vision of what we can accomplish. Through goals and plans, our hopes are transformed into action. Goal setting and planning are acts of faith. Prayerfully set goals that are in harmony with the Savior’s command to “teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost” (Matthew 28:19). Set goals for each key indicator. You may also set goals for your personal development. Do everything within your power to achieve your goals while respecting the agency of others. The ultimate measure of success is not in achieving goals alone but in the service you render and the progress of others. Goals are a means of helping you bring about much good among Heavenly Father’s children. They are not to be used to receive recognition. Carefully considered goals will give you clear direction and will help you fill your days with activities that help people strengthen their faith in the Savior and progress toward baptism, confirmation, and full activity in the Church. Challenging goals will help you work effectively and lead you to stretch and grow. Follow the guidelines below as you set goals:
+- Follow the Spirit.
+- Focus on the key indicators.
+- Focus on people. Although you will use numbers, be able to support your numbers with the names of people where possible.
+- Be specific and realistic, but set goals that will make you stretch.
+-  Set weekly and daily goals.
+- Set goals for personal and companion study, including language study if you are learning another language.
+- Measure your progress each day, each week, and after each six-week period. When you fall short of a goal, evaluate your efforts and seek for ways to accomplish the goal. If needed, adjust your expectations.
 
 Over time your mission president may establish standards of excellence or mission goals intended to raise your vision and increase your faith. District, zone, and mission standards will help you stretch, work effectively, and reach higher levels of performance. They are not to be used as quotas that impose specific goals on you and your companion.
 
+“I am so thoroughly convinced that if we don’t set goals in our life and learn how to master the techniques of living to reach our goals, we can reach a ripe old age and look back on our life only to see that we reached but a small part of our full potential. When one learns to master the principles of setting a goal, he will then be able to make a great difference in the results he attains in this life.” – ELDER M. RUSSELL BALLARD TALK GIVEN TO SALT LAKE AREA YOUNG ADULTS, OCT. 18, 1981
 
-146
-8 Use Time Wisely
-=================
-
-
-Activity: Companion Study
-=========================
-
-
+#### Activity: Companion Study (Page 161)
 Set weekly goals for each indicator. For each goal, ask yourselves:
-
-
-• Are there names associated with the number?
-
-
-• Is the goal specific?
-
-
-• Is the goal realistic?
-
-
-• Will the goal make us stretch?
-
-
-• Are we committed to this goal?
-
-
+- Are there names associated with the number?
+- Is the goal specific?
+- Is the goal realistic?
+- Will the goal make us stretch?
+- Are we committed to this goal?
 Discuss each goal. If necessary, determine how you might revise it and why.
 
-
-Notes
-
-
-The Weekly Planning Session
-===========================
-
-
+## The Weekly Planning Session (Page 161)
 Once you have set goals, decide how you will achieve them. You and your companion should hold a weekly planning session on a day and at a time that is less productive for proselyting, such as Thursday or Friday morning. Your mission president will set the day and time of the weekly planning session. This weekly planning may take two to three hours to complete.
-
-
 Your discussion should focus on the needs of people and how to help them progress. During this weekly planning session, review past goals and set new goals for the coming week. Consider every aspect of your proselyting.
-
-
 Sunday evening is the recommended time for the weekly call-in report. A Sunday- evening report provides the most accurate and timely status of the mission because most baptisms and confirmations take place on Saturday or Sunday.
-
-
 Because the day you hold your weekly planning session is likely to be different from your reporting day, approach your weekly planning with 10 days in mind. For example, if your weekly planning session is on Thursday, you will review the progress on your goals so far that week, and you will plan what you need to do to achieve these goals through Sunday. Then, set goals and make plans for the next week from Monday to Sunday. On Sunday evening you will total and report the results from the past week, and you will have your plan ready for the coming week. Below is a description of how the planning guidelines apply to a weekly planning session.
-
 
 1. Pray for and seek inspiration. Before you begin, have your Missionary Daily Planner and area book near. Begin your planning session with prayer. Seek inspiration as you discuss the needs of people and plan how to serve them and help them progress in the gospel. Pray specifically for your investigators. Have the faith to ask Heavenly Father to bless them with answers to their prayers, with a desire to attend church, and so forth.
 
 
 2. Set goals and make plans for investigators to be baptized and confirmed in the coming week. Review the Teaching Record for each person who is committed to be baptized or confirmed in the coming week. Discuss the arrangements you need to make for baptismal interviews, services, and confirmations. Using the Teaching Record, discuss any commitments these people may be struggling with and how you can help them. Plan to make daily contact with them. Discuss how you can help the ward mission leader coordinate with the bishop for their confirmations in sacrament meeting.
 
-
-147
-8 Use Time Wisely
-=================
-
-
-Notes
-
-
 3. Set goals and make plans for investigators with a baptismal date. Review the Teaching Record for each person who will be baptized in the coming weeks. Talk about lessons you need to teach them. Consider how you can help them prepare for baptism and confirmation. Discuss investigators who were not baptized on their scheduled day. Carefully consider and discuss their needs. Set new goals and make plans that will help them progress toward a specific day and time when they can enter into the covenant of baptism and receive the ordinance of confirmation. On your Teaching Record, mark in pencil the principles you plan to teach and the commitments you will help them keep. Determine what you can do to help them receive these lessons and keep these commitments.
-
 
 4. Set goals and make plans to help investigators attend sacrament meeting. Review the Teaching Record for each investigator, and discuss his or her attendance at sacrament meeting. For investigators who are attending sacrament meeting regularly, discuss what you need to do to help them continue to have a spiritually uplifting experience. For those who have never attended sacrament meeting, who have attended only once, or who attend occasionally, discuss what might be keeping them from coming. For example, they might need help with transportation, they may be afraid or unfamiliar with Latter-day Saint services, or they may have had a negative experience in the past. Discuss what you can do to help them overcome these barriers. Set goals for the number of investigators you plan to have in the next sacrament meeting. Plan who will take these people to church, who will greet them, and who will sit with them during meetings. Plan to contact quorum and auxiliary leaders and any teachers responsible for the classes the investigators will attend. Plan to inform the bishop. On the Progress Record, list ways the ward council can help. Make plans for what you need to do on each day of the week to prepare these people to attend.
 
-
-5. Set goals and make plans for lessons to be taught to progressing investigators. Review the Teaching Record for each progressing investigator who was taught with a member present. Talk about how you feel they are receiving the message. Review the commitments and events from the Teaching Record that they are striving to keep or complete. Discuss how to help ward members and the ward council remain involved in their progress. Set goals for the lessons you will teach; the commitments you will help them keep, especially attendance at church; and important experiences you will help them have over the next several weeks. Review the Teaching Record for each progressing investigator who was taught without
-
-
-a member present. These investigators may be people you found through your own efforts. Discuss which priesthood or auxiliary leader could be invited to friendship them. Review the lessons you will teach and the commitments you will help them keep. Set goals for the lessons you will teach, how you will involve members, and how you will help these investigators attend sacrament meeting. Record these goals on the Teaching Record, and make the necessary plans.
-
-
-148
-8 Use Time Wisely
-=================
-
+5. Set goals and make plans for lessons to be taught to progressing investigators. Review the Teaching Record for each progressing investigator who was taught with a member present. Talk about how you feel they are receiving the message. Review the commitments and events from the Teaching Record that they are striving to keep or complete. Discuss how to help ward members and the ward council remain involved in their progress. Set goals for the lessons you will teach; the commitments you will help them keep, especially attendance at church; and important experiences you will help them have over the next several weeks. Review the Teaching Record for each progressing investigator who was taught without a member present. These investigators may be people you found through your own efforts. Discuss which priesthood or auxiliary leader could be invited to friendship them. Review the lessons you will teach and the commitments you will help them keep. Set goals for the lessons you will teach, how you will involve members, and how you will help these investigators attend sacrament meeting. Record these goals on the Teaching Record, and make the necessary plans.
 
 6. Set goals and make plans for lessons to be taught to all other investigators. Review the Teaching Record for each investigator who is not progressing. Discuss why each investigator is not keeping commitments. Discuss how you will involve priesthood and auxiliary leaders in friendshipping these investigators. Discuss many of the same items suggested in step 5. Set goals and make plans to help these people progress. Write these goals on the Teaching Record.
 
-
 7. Set goals and make plans to contact and teach referrals received from members, investigators, nonmembers, and Church headquarters. Review Potential Investigators forms. Review all the referrals you have received. Review the referrals you have not yet contacted. Set goals and make plans to contact as many referrals as possible during the week—preferably all the referrals. Referrals from Church headquarters should be contacted within 24 hours, if at all possible. Discuss how you might approach each person or family and what message you might teach. If the referral is from Church headquarters, discuss how you will teach a gospel message using the video, book, or other material they have requested. Make sure you have the item they requested. If appropriate, contact the referral by phone and schedule an appointment. Discuss what follow-up you should do.
-
 
 8. Set goals and make plans to seek more referrals from members, investigators, and nonmembers. Prayerfully identify other members and investigators you can visit. Plan how you will help them invite their friends and family members to learn about the restored gospel. Discuss how you will invite them to participate in missionary work. Schedule appointments and make necessary plans.
 
-
 9. Set goals and make plans for lessons you will teach to recent converts and less-active members. Review the Teaching Record for each recent convert and less-active member you are teaching. Set goals and make plans for lessons you will teach. Determine how you will help these people attend sacrament meeting and keep other commitments.
-
 
 10. Set goals and make plans to find new investigators. Review the previous week’s efforts to find new investigators through referrals, service opportunities, and personal finding activities. Refer to the information in the “Potential Investigators” section of your area book. Discuss why some people became new investigators and others did not. Set goals for how many new investigators you will find this week. Identify people who are likely to become investigators. Also identify members and part-member families you want to visit, referrals to visit, and service opportunities you will seek. Plan which finding tools you will use, such as pass-along cards, videocassettes, DVDs, scriptures, or brochures. Also discuss where you will go to contact people, how many people you will contact each day, investigators you will ask for referrals, former investigators you will visit, ways the ward council can help, and so on. Make specific plans for the next day. Fill in all remaining time with finding activities that will help you achieve your goals. Set goals and plan to talk to as many people as the Lord puts in your path. Always strive to find people to teach.
 
-
-11. Plan how to work with the ward council. The bishop is the presiding authority. Respect and honor his authority. Under his direction, review the Progress Record used in the previous missionary coordination meeting or ward council. Discuss assignments you have received from the bishop or ward mission leader, and report on whether you have completed them. Discuss how to involve others who can help, such as the ward mission leader, priesthood and auxiliary leaders, and other members. Carefully prepare a Progress Record for the upcoming ward council meeting, priesthood executive committee meeting, or missionary coordination meeting. Make sure it is neatly written and clean. Set goals
-
-
-Notes
-
-
-149
-8 Use Time Wisely
-=================
-
-
-Notes
-
-
-and make plans to work in harmony with the ward leaders. When possible, make copies of the Progress Record for the ward leaders who will attend.
-
+11. Plan how to work with the ward council. The bishop is the presiding authority. Respect and honor his authority. Under his direction, review the Progress Record used in the previous missionary coordination meeting or ward council. Discuss assignments you have received from the bishop or ward mission leader, and report on whether you have completed them. Discuss how to involve others who can help, such as the ward mission leader, priesthood and auxiliary leaders, and other members. Carefully prepare a Progress Record for the upcoming ward council meeting, priesthood executive committee meeting, or missionary coordination meeting. Make sure it is neatly written and clean. Set goals and make plans to work in harmony with the ward leaders. When possible, make copies of the Progress Record for the ward leaders who will attend.
 
 12. Schedule meetings that occur regularly. In your Missionary Daily Planner, schedule meetings that happen regularly, such as district meetings, zone conferences, interviews, and Church meetings. Discuss assignments you need to complete prior to any of these meetings, and add them to your Notes/To Do List.
 
-
 13. Conduct companionship inventory. At the end of your weekly planning session, share with your companion appropriate goals, and ask for his or her help to accomplish them. Discuss the strength of your relationship with your companion. Discuss any challenges that may be keeping your companionship from working in unity or from being obedient. Resolve conflicts. Share with your companion what you think his or her strengths are. Ask for suggestions on how you can improve. If needed, set goals that will improve your relationship. Conclude with prayer.
 
-
-Daily Planning Session
-======================
-
-
+## Daily Planning Session (Page 164)
 Conduct a planning session at the end of each day. If you are teaching a lesson, you may be out until 9:30 p.m. Otherwise, return to your apartment by 9:00 p.m. and hold a daily planning session from 9:00 to 9:30 p.m. (Mission presidents have discretion to adjust the schedule according to local circumstances.) Apply the same principles and guidelines in a daily planning session that you follow in a weekly session but in a simpler way. Be prayerful as you discuss the lessons or topics you can study during personal and companion study time that will help you with your plan. Write these topics in the space provided on the daily schedule. Review your daily schedule. Have a meaningful activity planned for every hour of the day. During the Sunday-night planning session, total and submit your weekly Call-In Summary Report, write your weekly letter to your mission president, and finalize your goals for the coming week.
-
-
 Prior to leaving your apartment the next day, review your goals, plans, and schedule. Make revisions if needed. Always pray before leaving your apartment. You can tell how effective your daily plans are when you don’t need to ask others, “Now what should I do?”
 
-
-Accountability
-==============
-
-
+## Accountability (Page 164)
 The principle of accountability is fundamental in God’s eternal plan. We will all stand before the Lord at the last judgment and give an accounting for what we have done with the opportunities He has given us (see Alma 5:15–19; D&C 137:9). There is much you can learn about accountability on your mission that will benefit you throughout your life. The principle of accountability will bless you if you:
-
-
-• Approach your goal setting and planning with the idea that you will account for your efforts to your mission leaders and to the Lord through prayer.
-
-
-• Feel personal responsibility for the sacred trust the Lord has given you.
-
-
-“When performance is measured, performance improves. When performance is measured and reported, the rate of improvement accelerates.”
-
-
-– PRESIDENT THOMAS S. MONSON
-============================
-
-
-JUNE 2004 WORLDWIDE LEADERSHIP TRAINING BROADCAST
-=================================================
-
-
-• Set meaningful goals.
-
-
-150
-8 Use Time Wisely
-=================
-
-
-• Choose to be proactive in accounting for your work to the Lord and to your mission leaders. Don’t wait to be asked. Don’t require others to follow up with you frequently. Have a desire to account for your labor.
-
-
-• Accept full responsibility for your efforts. Never blame others for difficult circumstances or lack of progress.
-
-
-• Seek to learn from your leaders, and invite them to suggest ways you can improve.
-
-
-• Be motivated to do your best work.
-
+- Approach your goal setting and planning with the idea that you will account for your efforts to your mission leaders and to the Lord through prayer.
+- Feel personal responsibility for the sacred trust the Lord has given you.
+- Set meaningful goals.
+- Choose to be proactive in accounting for your work to the Lord and to your mission leaders. Don’t wait to be asked. Don’t require others to follow up with you frequently. Have a desire to account for your labor.
+- Accept full responsibility for your efforts. Never blame others for difficult circumstances or lack of progress.
+- Seek to learn from your leaders, and invite them to suggest ways you can improve.
+- Be motivated to do your best work.
 
 Accountability does not come only at the end of your mission. It is a principle that influences how you begin, how you think and feel about the responsibility the Lord has given you, how you approach your work, and how well you endure. The attitude you have toward your mission experience is a reflection of your love toward your Heavenly Father and His Son and your respect for the priesthood.
-
-
 As you pray personally and in your companionship, seek inspiration on what you should do each day. As you follow your plans, pray and ask the Lord for guidance. Have a prayer in your heart throughout the day that the Spirit will help you know where to go, what to do, and what to say. Ask yourself, “What more can I do?” In your prayer at the end of the day, give an accounting of your work.
-
-
 You will give an accounting each week to your mission leaders using the Call-In Summary Report. If you are a mission leader, you will receive this information from other missionaries. Show an interest in their lives and in the lives of those they teach rather than simply in numbers. Do not use these tools or the information you receive as ways to control or manipulate. The information you receive through these tools will provide you with opportunities to praise missionaries for their dedication and to see opportunities for future training.
 
-
-Scripture Study
-===============
+“When performance is measured, performance improves. When performance is measured and reported, the rate of improvement accelerates.” – PRESIDENT THOMAS S. MONSON JUNE 2004 WORLDWIDE LEADERSHIP TRAINING BROADCAST
 
 
-What does it mean to be accountable?
+#### Scripture Study (Page 165)
+- What does it mean to be accountable?
+  - D&C 101:78, Ezekiel 33:1–6,
+- Why is agency important in accountability?
+  = D&C 58:26–33, 2 Nephi 2:26–29, Helaman 14:30–31
+- How should a missionary and a mission leader work together?
+  - D&C 38:23–25, Hebrews 13:17–18
 
+#### Remember This (Page 165)
+- Focus your efforts on your purpose.
+- Set goals according to the key indicators.
+- Pray mightily over your goals and plans.
+- Use the area book and the Missionary Daily Planner to help people develop faith, repent, be baptized, receive the gift of the Holy Ghost, and endure to the end.
+- For each key indicator, set goals that help you stretch, exercise faith, and work effectively.
+- Conduct weekly and daily planning sessions that focus on helping others progress in the gospel.
+- Account for your efforts to the Lord and to mission leaders.
 
-D&C 101:78
-
-
-Ezekiel 33:1–6
-
-
-Why is agency important in accountability?
-
-
-D&C 58:26–33
-
-
-2 Nephi 2:26–29
-
-
-Helaman 14:30–31
-
-
-How should a missionary and a mission leader work together?
-===========================================================
-
-
-D&C 38:23–25
-
-
-Hebrews 13:17–18
-
-
-Notes
-
-
-Remember This
-=============
-
-
-• Focus your efforts on your purpose.
-
-
-• Set goals according to the key indicators.
-
-
-• Pray mightily over your goals and plans.
-
-
-• Use the area book and the Missionary Daily Planner to help people develop faith, repent, be baptized, receive the gift of the Holy Ghost, and endure to the end.
-
-
-• For each key indicator, set goals that help you stretch, exercise faith, and work effectively.
-
-
-• Conduct weekly and daily planning sessions that focus on helping others progress in the gospel.
-
-
-• Account for your efforts to the Lord and to mission leaders.
-
-
-151
-8 Use Time Wisely
-=================
-
-
-152
-Notes
-
-
-Ideas for Study and Application
-===============================
-
-
-Personal Study
-==============
-
-
-• In your study journal, write a one-sentence answer for each of the questions in “Consider This.”
-
-
-• Take a few moments and think about your final day in the mission field. When that day comes:
-
-
-– What do you want to say you have done as a missionary?
-
-
-– What do you want to have become?
-
-
-– What differences would you want others to notice in you?
-
-
+## Ideas for Study and Application (Page 166)
+### Personal Study (Page 166)
+- In your study journal, write a one-sentence answer for each of the questions in “Consider This.”
+- Take a few moments and think about your final day in the mission field. When that day comes:
+- What do you want to say you have done as a missionary?
+- What do you want to have become?
+- What differences would you want others to notice in you?
 In your study journal, write an answer to each of these questions. Determine what you need to do now to realize these goals. Write the plans that come to mind.
 
-
-Companion Study
-===============
-
-
-• Using your area book, answer the questions below:
-
-
-– Are all the records current, accurate, and easy to read?
-
-
-– Would a missionary who is new to the area be able to review the area book and know where people are in their spiritual progress and what more needs to be done to help them?
-
-
-– Would a missionary who is new to the area benefit from your efforts to find new investigators?
-
-
-– Picture yourself presenting your area book to the Lord as you give an accounting of how you have cared for the people in your area. Would the Lord be pleased with your efforts?
-
-
-• Discuss one of your new investigators. In your Missionary Daily Planner, locate the page titled “Events That Lead to Baptism, Confirmation, and Activity in the Church.” Select one event, and make a list of everything you need to do in order for this event to happen. Discuss how you might plan these tasks so that the event can happen at the earliest possible time.
-
-
-• Discuss the following analogy with your companion. Evaluate how long your “line” is in the water each day.
-
+### Companion Study (Page 166)
+- Using your area book, answer the questions below:
+  - Are all the records current, accurate, and easy to read?
+  - Would a missionary who is new to the area be able to review the area book and know where people are in their spiritual progress and what more needs to be done to help them?
+  - Would a missionary who is new to the area benefit from your efforts to find new investigators?
+  - Picture yourself presenting your area book to the Lord as you give an accounting of how you have cared for the people in your area. Would the Lord be pleased with your efforts?
+- Discuss one of your new investigators. In your Missionary Daily Planner, locate the page titled “Events That Lead to Baptism, Confirmation, and Activity in the Church.” Select one event, and make a list of everything you need to do in order for this event to happen. Discuss how you might plan these tasks so that the event can happen at the earliest possible time.
+- Discuss the following analogy with your companion. Evaluate how long your “line” is in the water each day.
 
 “None of us should be like the fisherman who thinks he has been fishing all day when in reality he has spent most of his time getting to and from the water, eating lunch, and fussing with his equipment. Fishing success is related to how long you have your line in the water, not to how long you are away from the apartment. Some fishermen are away from home for twelve hours and have their line in the water for ten hours. Other fishermen are away from home for twelve hours and have their line in the water for only two hours. This last type may wonder why they do not have the same success as others.
-
-
 “The same principle applies to missionaries, whom the Master called ‘fishers of men.’ A missionary’s line should drop into the fishing water the moment he or she leaves the apartment” (Dallin H. Oaks, seminar for new mission presidents, June 20, 2000).
 
+### District Meetings and Zone Conferences (Page 166)
+- Read one of the following situations to the missionaries. In small groups, have the missionaries discuss goals and plans that will help the people in these examples progress toward baptism and confirmation. Have each group share their ideas.
+  - Situation one: You met Larry and Beth when they were giving service at a food kitchen. You have taught them one lesson, and now they want to know more. They do not know any members of the Church. Beth is Christian, and Larry does not claim any particular religion. They are not married but do live together. Larry works from 4:00 p.m. to 12:00 midnight. Beth works daytime hours.
+  - Situation two: Steve has taken all the lessons and attends church at least twice a month. He believes that Joseph Smith is a prophet and that the Book of Mormon is true. His family members are devout Catholics and do not approve of his meetings with the missionaries. 
+  - Situation three: Jill is a college student. She has a friend who is @ member of the Church. Her member friend invited her to meet with you. You have taught her two lessons. Her member friend was present at both. She has not attended church yet and is so busy with her homework that it is difficult for her to read from the Book of Mormon.
+  
+- Invite missionaries to share experiences where, through setting goals and making plans, they have been able to help people:
+  - Develop greater faith in the Savior. 
+  - Repent and make changes that have brought them closer to God.
+  - Receive the covenant of baptism and confirmation.
+  - Come back to the Church and renew their baptismal covenant. 
 
-District Meetings and Zone Conferences
-======================================
+- Divide the missionaries into three groups. Explain that each group will receive an important assignment. Then give each group one of the following tasks:
+  - Open a new proselyting area. 
+  - Prepare a zone conference training session on introducing the Book of Mormon 0 to investigators. 
+  - Integrate an investigator family into the ward. The family has three children: an 8-year-old girl, a 12-year-old girl, and a 16-year-old boy.
+Tell the missionaries they have eight minutes to develop a plan. One of the missionaries should write the plan down, including the daily activities. Have each group present its plan. After each presentation, ask:
+  - What did the missionaries need to know in each situation?
+  - What might the result be if you do not plan meaningful activities or do not plan at all?
+After all the presentations, ask:
+  - How are planning and goal setting acts of love? acts of faith?
+ 
 
-
-• Read one of the following situations to the missionaries. In small groups, have the missionaries discuss goals and plans that will help the people in these examples progress toward baptism and confirmation. Have each group share their ideas.
-
-
-Situation one: You met Larry and Beth when they were giving service at a food kitchen. You have taught them one lesson, and now they want to know more.
-
-
-8 Use Time Wisely
-
-
-
-
-| They do not know any members of the Church. Beth is Christian, and Larry does not claim any particular religion. They are not married but do live together. Larry works from 4:00 p.m. to 12:00 midnight. Beth works daytime hours. |  |
-| --- | --- |
-| Situation two: Steve has taken all the lessons and attends church at least twice a month. He believes that Joseph Smith is a prophet and that the Book of Mormon is true. His family members are devout Catholics and do not approve of his meetings with the missionaries. |  |
-| Situation three: Jill is a college student. She has a friend who is @ member of the Church. Her member friend invited her to meet with you. You have taught her two lessons. Her member friend was present at both. She has not attended church yet and is so busy with her homework that it is difficult for her to read from the Book of Mormon. |  |
-| Invite missionaries to share experiences where, through setting goals and making plans, they have been able to help people: |  |
-| — Develop greater faith in the Savior. | |
-| — Repent and make changes that have brought them closer to God. | |
-| — Receive the covenant of baptism and confirmation. | |
-| — Come back to the Church and renew their baptismal covenant. | |
-| Divide the missionaries into three groups. Explain that each group will receive an important assignment. Then give each group one of the following tasks: | |
-| — Open a new proselyting area. |  |
-| — Prepare a zone conference training session on introducing the Book of Mormon 0 to investigators. |  |
-| — Integrate an investigator family into the ward. The family has three children: an 8-year-old girl, a 12-year-old girl, and a 16-year-old boy. |  |
-| Tell the missionaries they have eight minutes to develop a plan. One of the missionaries should write the plan down, including the daily activities. | |
-| Have each group present its plan. After each presentation, ask: |  |
-| — What did the missionaries need to know in each situation? |  |
-| — What might the result be if you do not plan meaningful activities or do not plan at all? |  |
-| After all the presentations, ask: | |
-| — How are planning and goal setting acts of love? acts of faith? | |
-| Mission President | |
-| . Ask missionaries to bring their area books to zone conference or to interviews. In addition to reviewing the area books yourself, consider having mission leaders or your wife review the area books. |  |
-| Occasionally observe missionaries’ weekly or daily planning sessions. | |
-| Occasionally conduct interviews in missionary apartments. As you do so, have your wife or the assistants to the president review missionaries’ area books and daily planners. |  |
-| Frequently review missionaries’ daily planners. |  |
-| Occasionally attend a ward council meeting. |  |
+### Mission President (Page 167)
+- Ask missionaries to bring their area books to zone conference or to interviews. In addition to reviewing the area books yourself, consider having mission leaders or your wife review the area books.
+- Occasionally observe missionaries’ weekly or daily planning sessions.
+- Occasionally conduct interviews in missionary apartments. As you do so, have your wife or the assistants to the president review missionaries’ area books and daily planners.
+- Frequently review missionaries’ daily planners.
+- Occasionally attend a ward council meeting.
 
 
-153
-8 Use Time Wisely
-=================
-
-
-154
-Notes
-
-
-9 Finding People
-================
-
-
-A - P
-=====
-
-
-d #
-===
-
-
-{ \
-—
-T L\
-How Do I Find People to Teach?
-==============================
+> Beginning of Chapter 9 of 13 chapters in the preach my gospel manual 
+# How Do I Find People to Teach? (Page 169)
 
 
 Consider This
