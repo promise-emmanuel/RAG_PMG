@@ -2418,68 +2418,26 @@ What is the relationship between following your own judgment and relying on the 
 > Beginning of Chapter 5 of 13 chapters in the preach my gospel manual
 # What Is the Role of the Book of Mormon? (Page 117)
 
-Consider This
-=============
+#### Consider This
+- How is the Book of Mormon the keystone of our religion?
+- How does the Book of Mormon answer the great questions of the soul?
+- Why is the Book of Mormon so powerful in the conversion process?
+- How should I use the Book of Mormon to build faith and help others to draw closer to God?
+- Why is the promise in Moroni 10:3–5 central in missionary work?
+
+## Overview (Page 117)
+The Book of Mormon is powerful evidence of the divinity of Christ. It is also proof of the Restoration through the Prophet Joseph Smith. An essential part of conversion is receiving a witness from the Holy Ghost that the Book of Mormon is true. As a missionary, you must first have a personal testimony that the Book of Mormon is true. This testimony can lead to a deep and abiding faith in the power of the Book of Mormon during the conversion process. Have confidence that the Holy Ghost will testify to anyone who reads and ponders the Book of Mormon and asks God if it is true with a sincere heart, real intent, and faith in Christ. This witness of the Holy Ghost should be a central focus of your teaching.
 
 
-• How is the Book of Mormon the keystone of our religion?
+## The Book of Mormon Is the Keystone of Our Religion (Page 117)
+The Prophet Joseph Smith taught that the Book of Mormon is “the keystone of our religion” (introduction to the Book of Mormon). On another occasion he stated: “Take away the Book of Mormon and the revelations, and where is our religion? We have none” (History of the Church, 2:52).
+An arch is a strong architectural structure made from wedge- shaped pieces that lean against each other. The middle piece, or keystone, is usually larger than the other wedges and locks the other stones in place. When Joseph Smith called the Book of Mormon “the keystone of our religion,” he taught that the Book of Mormon holds our religion together. President Ezra Taft Benson said that the Book of Mormon is the keystone in at least three ways:
 
+- Witness of Christ. “The Book of Mormon is the keystone in our witness of Jesus Christ, who is Himself the cornerstone of everything we do. It bears witness of His reality with power and clarity.”
 
-• How does the Book of Mormon answer the great questions of the soul?
+- Fulness of doctrine. “The Lord Himself has stated that the Book of Mormon contains the ‘fulness of the gospel of Jesus Christ.’ (D&C 20:9 [;27:5].) . . . In the Book of Mormon we will find the fulness of those doctrines required for our salvation. And they are taught plainly and simply so that even children can learn the ways of salvation and exaltation.”
 
-
-• Why is the Book of Mormon so powerful in the conversion process?
-
-
-• How should I use the Book of Mormon to build faith and help others to draw closer to God?
-
-
-• Why is the promise in Moroni 10:3–5 central in missionary work?
-
-
-J
-=
-
-
-the Restoration through the Prophet Joseph Smith. An essential part of conversion is receiving a witness from the Holy Ghost that the Book of Mormon is true. As a missionary, you must first have a personal testimony that the Book of Mormon is true. This testimony can lead to a deep and abiding faith in the power of the Book of Mormon during the conversion process. Have confidence that the Holy Ghost will testify to anyone who reads and ponders the Book of Mormon and asks God if it is true with a sincere heart, real intent, and faith in Christ. This witness of the Holy Ghost should be a central focus of your teaching.
-
-
-The Book of Mormon Is the Keystone of Our Religion
-==================================================
-
-
-is “the keystone of our religion” (introduction to the Book of Mormon). On another occasion he stated: “Take away the Book of Mormon and the revelations, and where is our religion? We have none” (History of the Church, 2:52).
-
-
-An arch is a strong architectural structure made from wedge- shaped pieces that lean against each other. The middle piece, or keystone, is usually larger than the other wedges and locks the
-
-
-![see page 117](#)
-Notes
-
-
-103
-5 Book of Mormon
-================
-
-
-Notes
-
-
-other stones in place. When Joseph Smith called the Book of Mormon “the keystone of our religion,” he taught that the Book of Mormon holds our religion together. President Ezra Taft Benson said that the Book of Mormon is the keystone in at least three ways:
-
-
-Witness of Christ. “The Book of Mormon is the keystone in our witness of Jesus Christ, who is Himself the cornerstone of everything we do. It bears witness of His reality with power and clarity.”
-
-
-Fulness of doctrine. “The Lord Himself has stated that the Book of Mormon contains the ‘fulness of the gospel of Jesus Christ.’ (D&C 20:9 [;27:5].) . . . In the Book of Mormon we will find the fulness of those doctrines required for our salvation. And they are taught plainly and simply so that even children can learn the ways of salvation and exaltation.”
-
-
-![see page 118](#)
-Foundation of testimony. “Just as the arch crumbles if the keystone is removed, so does all the Church stand or fall with the truthfulness of the Book of Mormon. The enemies of the Church understand this clearly. This is why they go to such great lengths to try to disprove the Book of Mormon, for if it can be discredited, the Prophet Joseph Smith goes with it. So does our claim to priesthood keys, and revelation, and the restored Church. But in like manner, if the Book of Mormon be true—and millions have now testified that they have the witness of the Spirit that it is indeed true—then one must accept the claims of the Restoration and all that accompanies it” (A Witness and a Warning [1988], 18–19). The Book of Mormon, combined with the Spirit, is your most powerful resource in conversion. It is the most correct of any book on the earth (see introduction to the Book of Mormon). It teaches the doctrine of Christ plainly, especially in the lessons you teach investigators. Use it as your main source for teaching the restored gospel. The following are examples of truths taught plainly in the Book of Mormon that you will teach investigators.
-
-
-
+- Foundation of testimony. “Just as the arch crumbles if the keystone is removed, so does all the Church stand or fall with the truthfulness of the Book of Mormon. The enemies of the Church understand this clearly. This is why they go to such great lengths to try to disprove the Book of Mormon, for if it can be discredited, the Prophet Joseph Smith goes with it. So does our claim to priesthood keys, and revelation, and the restored Church. But in like manner, if the Book of Mormon be true—and millions have now testified that they have the witness of the Spirit that it is indeed true—then one must accept the claims of the Restoration and all that accompanies it” (A Witness and a Warning [1988], 18–19). The Book of Mormon, combined with the Spirit, is your most powerful resource in conversion. It is the most correct of any book on the earth (see introduction to the Book of Mormon). It teaches the doctrine of Christ plainly, especially in the lessons you teach investigators. Use it as your main source for teaching the restored gospel. The following are examples of truths taught plainly in the Book of Mormon that you will teach investigators.
 
 | Missionary Lesson | Doctrines | References |
 | --- | --- | --- |
@@ -2489,67 +2447,25 @@ Foundation of testimony. “Just as the arch crumbles if the keystone is removed
 | The Commandments; Laws and Ordinances | Ordinances such as baptism, confirmation, priesthood ordination, and the sacrament | 3 Nephi 11:22-28; 18 Moroni 2-6 |
 
 
-104
-5 Book of Mormon
-================
-
-
-Activity: Personal Study
-========================
-
+#### Activity: Personal Study (Page 119)
 
 Write answers to the following questions in your study journal:
+- How has your study of the Book of Mormon influenced your testimony of Jesus Christ?
+- How can you use the Book of Mormon to help strengthen others’ testimonies?
 
+#### Scripture study (Page 119)
+- What does the Savior say about the Book of Mormon? (Page 119)
+  - D&C 1:29, D&C 42:12, D&C 17:6
 
-• How has your study of the Book of Mormon influenced your testimony of Jesus Christ?
-
-
-• How can you use the Book of Mormon to help strengthen others’ testimonies?
-
-
-Scripture Study
-===============
-
-
-What does the Savior say about the Book of Mormon?
-==================================================
-
-
-
-
-| D&C 1:29 | D&C 42:12 |
-| --- | --- |
-| D&C 17:6 |  |
-
-
-Notes
-
-
-. y p o c t o n o D . c n I . o C y o r n o C n o s i r r a H . C y s e t r u o c o o h P t
-
-
-![see page 119](#)
-The Book of Mormon Testifies of Christ
-======================================
-
-
+## The Book of Mormon Testifies of Christ (Page 119)
 A central purpose of the Book of Mormon is to convince all people that Jesus is the Christ (see title page of the Book of Mormon). It testifies of Christ by affirming the reality of His life, mission, and power. It teaches true doctrine concerning the Atonement—the foundation for the plan of salvation. Several of those whose writings are preserved in the Book of Mormon saw Christ personally. The brother of Jared, Nephi, and Jacob saw the premortal Christ. Mormon and Moroni saw the risen Christ. In addition, multitudes were present during the Savior’s brief but powerful ministry among the Nephites (see 3 Nephi 11–28). Those who know little or nothing about the Savior will come to know Him by reading, pondering, and praying about the Book of Mormon.
-
-
 The testimony of the Book of Mormon confirms the testimony of the Bible that Jesus is the Only Begotten Son of God and the Savior of the world. As you teach the fulness of the gospel of Jesus Christ, you will testify often about the Savior and Redeemer of the world. By the power of the Holy Ghost, you will add your living witness of the truthfulness of this message.
 
-
-Scripture Study
-
-
-What reasons did the Book of Mormon prophets give for writing their records?
-============================================================================
-
-
-
-
-| 1 Nephi 6:4-6 | 2 Nephi 33:13-15 | Words of Mormon 1:3-8 |
+#### Scripture Study (Page 119)
+- What reasons did the Book of Mormon prophets give for writing their records?
+|  |  |  |
 | --- | --- | --- |
+| 1 Nephi 6:4-6 | 2 Nephi 33:13-15 | Words of Mormon 1:3-8 |
 | 1 Nephi 9:3-5 | Jacob 1:4-7 | Alma 37:2, 14 |
 | 2 Nephi 4:15-16 | Jacob 4:1-6, 12 | 3 Nephi 5:14-15 |
 | 2 Nephi 25:23-29 | Enos 1:13 | Mormon 8:35 |
@@ -2557,817 +2473,237 @@ What reasons did the Book of Mormon prophets give for writing their records?
 | 2 Nephi 29:11-14 | Omni 1:25-26 | D&C 10:46-48 |
 
 
-105
-5 Book of Mormon
-================
-
-
-Notes
-
-
-The Book of Mormon and the Bible Support Each Other
-===================================================
-
-
+## The Book of Mormon and the Bible Support Each Other (Page 120)
 People’s beliefs about the Bible vary widely. Some believe that the Bible is absolutely perfect, without error, and that it is all we need to be saved. Others think the Bible is literature worth studying, but they deny that it is evidence of Christ’s divinity and miracles or direct revelation from God. Some choose to ignore the Bible, and others have never seen the Bible or had a chance to read it.
-
-
 Latter-day Saints “believe the Bible to be the word of God as far as it is translated correctly” (Articles of Faith 1:8). Far from competing with the Bible, the Book of Mormon supports it, exhorts us to read it, and testifies of the truthfulness of its message. You should use the Book of Mormon and the Bible to support one another.
-
-
 The Book of Mormon speaks of the ancient covenants God made with His children; the Bible tells of great prophets who also received these covenants by faith. The Book of Mormon testifies of Christ and His Atonement; the Bible provides the account of His birth, ministry, death, Atonement, and Resurrection. Thus, the Bible and Book of Mormon complement and enrich each other.
-
-
 The LDS edition of the King James Version of the Bible and the Book of Mormon have cross-references and study aids that make the stick of Judah (the Bible) and the stick of Joseph (the Book of Mormon) one in our hands (see Ezekiel 37:15–17; see also 1 Nephi 13:34–41; 2 Nephi 3:12; 29:8). Give priority to Book of Mormon passages when you teach, but also show how the Book of Mormon and the Bible teach the same principles.
-
-
-Use the Book of Mormon to clarify and explain Bible passages. For example, the New Testament states that Christ was baptized to “fulfil all righteousness” (Matthew 3:14–15). The Book of Mormon explains what it means to fulfill all righteousness (see 2 Nephi 31:5–9). As you use the Book of Mormon and the Bible as companion volumes of scripture,
-
-
-they will overcome contention and correct false doctrine (see 2 Nephi 3:12).
-
-
+Use the Book of Mormon to clarify and explain Bible passages. For example, the New Testament states that Christ was baptized to “fulfil all righteousness” (Matthew 3:14–15). The Book of Mormon explains what it means to fulfill all righteousness (see 2 Nephi 31:5–9). As you use the Book of Mormon and the Bible as companion volumes of scripture, they will overcome contention and correct false doctrine (see 2 Nephi 3:12).
 The Bible teaches the following about the law of witnesses: “In the mouth of two or three witnesses shall every word be established” (2 Corinthians 13:1). In harmony with this law, both the Book of Mormon and the Bible testify of Jesus Christ.
 
 
-Activity: Personal or Companion Study
-=====================================
-
-
+#### Activity: Personal or Companion Study (Page 120)
 Find cross-references on the following topics in the Book of Mormon and Bible. Examples are given in parentheses after each topic. Add passages and topics of your own.
+- Prophets (Amos 3:7 and Jacob 4:4–6)
+- Apostasy (2 Timothy 4:3–4 and 2 Nephi 28)
+- Restoration (Acts 3:19–21 and 1 Nephi 13:34–42)
+- Children of God (Acts 17:29 and 1 Nephi 17:36)
 
+#### Scripture Study (Page 120)
+- What does the Bible say about the Book of Mormon?
+  - John 10:16, Isaiah 29:4, 11–18, Ezekiel 37:15–17, Bible Dictionary, “Ephraim, Stick of”
 
-• Prophets (Amos 3:7 and Jacob 4:4–6)
+- What does the Book of Mormon say about the Bible?
+  -1 Nephi 13:20–29, 40–41, 2 Nephi 29:3–14, 3 Nephi 23:1, Mormon 7:8–9
 
+- In what ways do both books serve as testaments of Christ?
+  - 2 Nephi 29:8, John 20:31, Acts 10:43
 
-• Apostasy (2 Timothy 4:3–4 and 2 Nephi 28)
-
-
-• Restoration (Acts 3:19–21 and 1 Nephi 13:34–42)
-
-
-• Children of God (Acts 17:29 and 1 Nephi 17:36)
-
-
-Scripture Study
-===============
-
-
-What does the Bible say about the Book of Mormon?
-
-
-John 10:16 Isaiah 29:4, 11–18
-Ezekiel 37:15–17
-
-
-Bible Dictionary, “Ephraim, Stick of”
-
-
-What does the Book of Mormon say about the Bible?
-
-
-1 Nephi 13:20–29, 40–41 2 Nephi 29:3–14
-3 Nephi 23:1
-
-
-Mormon 7:8–9
-
-
-In what ways do both books serve as testaments of Christ?
-
-
-2 Nephi 29:8
-
-
-John 20:31
-
-
-Acts 10:43
-
-
-106
-5 Book of Mormon
-================
-
-
-The Book of Mormon Answers Questions of the Soul
-================================================
-
-
+## The Book of Mormon Answers Questions of the Soul (Page 121)
 President Ezra Taft Benson said that missionaries “need to show how [the Book of Mormon] answers the great questions of the soul” (“Flooding the Earth with the Book of Mormon,” Ensign, Nov. 1988, 5).
-
-
 “The great questions of the soul” may include such questions as these: Is there really a God? Did I exist before I was born? Will I live after I die? What is the purpose of life? Is Jesus really the Savior?
-
-
 Other questions may focus on more temporal needs: How can I improve my relationship with my spouse? How can I help my teenagers avoid drugs or immorality? How can I find work to support my family?
-
-
 The gospel of Jesus Christ helps us answer both kinds of questions. As we gain faith that the Book of Mormon is true, we can begin to answer questions about the purpose of life and the hope of eternal life. The Book of Mormon describes the plan of happiness, which gives meaning and perspective to life. Answers to questions such as the following are clearly taught in the Book of Mormon.
-
-
-![see page 121](#)
-• Is there a God? (Alma 22)
-
-
-• What does Jesus Christ expect of me? (2 Nephi 9)
-
-
-• How can a belief in Jesus Christ help me? (Alma 36)
-
-
-• Is there life after death? (Alma 40)
-
-
-• What is the purpose of life? (Alma 34)
-
-
-• Why does God allow evil and suffering to occur? (2 Nephi 2; Alma 14:9–11; 60:13)
-
-
-• Does my infant need to be baptized? (Moroni 8)
-
-
-• Does God know me? (Alma 5:38, 58)
-
-
-• Does God answer prayers? (Enos 1)
-
-
-• How can I find peace and joy? (Mosiah 2, 4)
-
-
-• How can my family be happier and more united? (Mosiah 2)
-
-
-• How can I balance my family and career? (3 Nephi 13)
-
-
-• How can I strengthen my relationship with my spouse? (3 Nephi 14)
-
-
-• How can I avoid the evils that threaten my family? (Alma 39)
-
-
-• How can I avoid sin? (Helaman 5)
-
+- Is there a God? (Alma 22)
+- What does Jesus Christ expect of me? (2 Nephi 9)
+- How can a belief in Jesus Christ help me? (Alma 36)
+- Is there life after death? (Alma 40)
+- What is the purpose of life? (Alma 34)
+- Why does God allow evil and suffering to occur? (2 Nephi 2; Alma 14:9–11; 60:13)
+- Does my infant need to be baptized? (Moroni 8)
+- Does God know me? (Alma 5:38, 58)
+- Does God answer prayers? (Enos 1)
+- How can I find peace and joy? (Mosiah 2, 4)
+- How can my family be happier and more united? (Mosiah 2)
+- How can I balance my family and career? (3 Nephi 13)
+- How can I strengthen my relationship with my spouse? (3 Nephi 14)
+- How can I avoid the evils that threaten my family? (Alma 39)
+- How can I avoid sin? (Helaman 5)
 
 As we read the Book of Mormon with the guidance of the Spirit, it helps us answer personal questions. It teaches that prayer and revelation are the key to solving particular problems. It helps us have faith that God will answer our prayers.
-
-
-Notes
-=====
-
-
-107
-5 Book of Mormon
-================
-
-
-Notes
-
-
 The Book of Mormon also helps us understand that God’s commandments are not a restrictive list of dos and don’ts but guideposts to a happy, abundant life. As we begin to understand that the first principles and ordinances of the gospel are the way to the abundant life, we will appreciate that these principles help answer any question and fill any need. For example, we understand that repentance, forgiveness, and the covenant to serve others are essential in improving relationships with our spouses. We see that faith in Christ, accepting and keeping covenants, and following the promptings of the Spirit can help teenagers avoid the powerful temptations that surround them.
-
-
-“In a world ever more
-=====================
-
-
-dangerous . . . the Book of
-===========================
-
-
-Mormon: Another
-===============
-
-
-Testament of Jesus Christ
-=========================
-
-
-has the nourishing power
-
-
-to heal starving spirits of
-
-
-the world.”
-===========
-
-
-– PRESIDENT BOYD K. PACKER “THE BOOK OF MORMON: ANOTHER TESTAMENT OF
-====================================================================
-
-
-JESUS CHRIST,” ENSIGN, NOV. 2001, 64
-====================================
-
-
 The gospel can resolve almost any question or need. This is why you are to “teach the principles of my gospel, which are in the Bible and the Book of Mormon, in the which is the fulness of the gospel” (D&C 42:12).
 
 
-Activity: Personal or Companion Study
-=====================================
+“In a world ever more dangerous . . . the Book of Mormon: Another Testament of Jesus Christ has the nourishing power to heal starving spirits of the world. – PRESIDENT BOYD K. PACKER “THE BOOK OF MORMON: ANOTHER TESTAMENT OF JESUS CHRIST,” ENSIGN, NOV. 2001, 64
 
+#### Activity: Personal or Companion Study (Page 122)
 
 Make a list of some “great questions of the soul” that investigators have asked. Find verses in the Book of Mormon to answer these questions. Write the answers in your study journal, and use them as you teach.
 
 
-The Book of Mormon Draws People Nearer to God
-=============================================
-
-
-nearer to God by abiding by its precepts, than by any other book” (introduction to the Book of Mormon). The Book of Mormon is a springboard to testimony and personal revelation. Use the Book of Mormon to help people have spiritual experiences, especially a witness from the Holy Ghost that the book itself is true. By consistently inviting people to live the principles found in the Book of Mormon, you help them develop faith in Jesus Christ and draw nearer to God.
-
-
+## The Book of Mormon Draws People Nearer to God (Page 122)
+Regarding the Book of Mormon, the Prophet Joseph Smith said that “a man would get nearer to God by abiding by its precepts, than by any other book” (introduction to the Book of Mormon). The Book of Mormon is a springboard to testimony and personal revelation. Use the Book of Mormon to help people have spiritual experiences, especially a witness from the Holy Ghost that the book itself is true. By consistently inviting people to live the principles found in the Book of Mormon, you help them develop faith in Jesus Christ and draw nearer to God.
 President Gordon B. Hinckley declared: “Those who have read [the Book of Mormon] prayerfully, be they rich or poor, learned or unlearned, have grown under its power. . . . Without reservation I promise you that if you will prayerfully read the Book of Mormon, regardless of how many times you previously have read it, there will come into your hearts . . . the Spirit of the Lord. There will come a strengthened resolution to walk in obedience to his commandments, and there will come a stronger testimony of the living reality of the Son of God” (“The Power of the Book of Mormon,” Ensign, June 1988, 6).
 
 
-Use the Book of Mormon to Respond to Objections
-===============================================
-
-
+## Use the Book of Mormon to Respond to Objections (Page 122)
 Many people will not believe everything you teach. President Ezra Taft Benson taught how the Book of Mormon can be the central resource in responding to such situations:
-
-
 “We are to use the Book of Mormon in handling objections to the Church. . . . “. . . All objections, whether they be on abortion, plural marriage, seventh-day worship, etc., basically hinge on whether Joseph Smith and his successors were and are prophets of God receiving divine revelation. . . .
-
-
-108
-5 Book of Mormon
-================
-
-
-himself is whether the Book of Mormon is true. For if the Book of Mormon is true, then Jesus is the Christ, Joseph Smith was his prophet, The Church of Jesus Christ of Latter-day Saints is true, and it is being led today by a prophet receiving revelation.
-
-
+The only problem the objector has to resolve forhimself is whether the Book of Mormon is true. For if the Book of Mormon is true, then Jesus is the Christ, Joseph Smith was his prophet, The Church of Jesus Christ of Latter-day Saints is true, and it is being led today by a prophet receiving revelation.
 “Our main task is to declare the gospel and do it effectively. We are not obligated to answer every objection. Every man eventually is backed up to the wall of faith, and there he must make his stand” (A Witness and a Warning, 4–5).
-
-
 For example, sincere investigators might object to what you have taught about the Word of Wisdom. Help them see that their real question is whether Joseph Smith was speaking as God’s prophet when this commandment was renewed in this dispensation. You might say: “Having the faith to accept this teaching will require the assurance that this commandment came to us through revelation from God to the Prophet Joseph Smith. The way to know that Joseph Smith is a prophet of God is to read and pray about the Book of Mormon.”
+Investigators must resolve for themselves their concerns and objections. You can help as you focus them on what will strengthen their faith in Jesus Christ—reading and praying about the Book of Mormon. When they strengthen their testimony of the Restoration, they will have the strength to overcome their objections and concerns. 
+As you answer concerns, remember that our understanding comes from modern prophets—Joseph Smith and his successors—who receive direct revelation from God. There- fore, the first question for an investigator to answer is whether Joseph Smith was a prophet, and he or she can answer this question by reading and praying about the Book of Mormon.
 
 
-![see page 123](#)
-Investigators must resolve for themselves their concerns and objections. You can help as you focus them on what will strengthen their faith in Jesus Christ—reading and praying about the Book of Mormon. When they strengthen their testimony of the Restoration, they will have the strength to overcome their objections and concerns. As you answer concerns, remember that our understanding comes from modern
-
-
-prophets—Joseph Smith and his successors—who receive direct revelation from God. There- fore, the first question for an investigator to answer is whether Joseph Smith was a prophet, and he or she can answer this question by reading and praying about the Book of Mormon.
-
-
-Joseph Smith and the Book of Mormon
-===================================
-
-
+#### Joseph Smith and the Book of Mormon (Page 123)
 One way to know that Joseph Smith is a prophet of God is to read and pray about the Book of Mormon.
 
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 123)
 In your study journal, write down how you would refer to Joseph Smith and the Book of Mormon to respond to the following objections or concerns:
+- “I don’t believe that God speaks to people anymore.”
+- “I believe that I can worship God in my own way rather than through some organized religion.”
+- “Why must I give up drinking wine with my meals if I join your church?”
+- “Why do I need religion?”
 
+## How Should You Use the Book of Mormon? (Page 124)
+Many investigators either do not read the Book of Mormon or do not understand what they read. Those who do not read or understand the Book of Mormon will have difficulty receiving a witness that it is true. “Please do not take the Book of Mormon for granted. Pray for a vision of how the Book of Mormon can be used more effectively in your mission. I promise that as you do so, your mind will be enlightened with the direction that you should take.” – ELDER JOSEPH B. WIRTHLIN SEMINAR FOR NEW MISSION PRESIDENTS, 23 JUNE 1999
 
-• “I don’t believe that God speaks to people anymore.”
-
-
-• “I believe that I can worship God in my own way rather than through some organized religion.”
-
-
-• “Why must I give up drinking wine with my meals if I join your church?”
-
-
-• “Why do I need religion?”
-
-
-.
-3 0 0 4 8
-h a t U , k r o F n a c i r e m A , s t r A n o i t a d n u o F n o s s m r e p i i y b d e c u d o r p e r e g a m i s h T i . e d n w S n o m e L l i z L i 4 0 0 2 © h p e s o J t n a v r e S y M
-
-
-Notes
-
-
-109
-5 Book of Mormon
-================
-
-
-Notes
-
-
-How Should You Use the Book of Mormon?
-======================================
-
-
-Many investigators either do not read the Book of Mormon or do not understand what they read. Those who do not read or understand the Book of Mormon will have difficulty receiving a witness that it is true.
-
-
-Read the Book of Mormon with Your Investigators
-===============================================
-
-
-As you read together, pray that the Holy Ghost will testify to the investigators that the Book of Mormon is true.
-
-
-Book of Mormon with them. Pray for help as you select passages that address their concerns and problems. You may read with them as part of a teaching appointment or during a follow-up visit. You can also arrange for members to read with investigators.
-
-
-![see page 124](#)
-Some particularly important passages
-
-
-include the title page, the introduction (especially the last two paragraphs), and Moroni 10:3–5. These passages help investigators understand how to gain a testimony of the Book of Mormon. Encourage them to read the Book of Mormon from the beginning, including the testimonies of the three and eight witnesses and the testimony of the Prophet Joseph Smith.
-
-
+You can help investigators by reading the Book of Mormon with them. Pray for help as you select passages that address their concerns and problems. You may read with them as part of a teaching appointment or during a follow-up visit. You can also arrange for members to read with investigators.
+Some particularly important passages include the title page, the introduction (especially the last two paragraphs), and Moroni 10:3–5. These passages help investigators understand how to gain a testimony of the Book of Mormon. Encourage them to read the Book of Mormon from the beginning, including the testimonies of the three and eight witnesses and the testimony of the Prophet Joseph Smith. As you read together, pray that the Holy Ghost will testify to the investigators that the Book of Mormon is true.
 Read and discuss short passages (such as 1 Nephi 3:7 or Mosiah 2:17) and longer passages or complete chapters (such as 2 Nephi 31, Alma 7, or 3 Nephi 18).
+When you read with investigators, stop occasionally and discuss what you read. Point out key messages or important doctrines to look for as you read with them. Share appropriate insights, feelings, testimonies, and personal experiences. Help others feel the spiritual power of the Book of Mormon. In this way you can teach them true doctrine directly from the Book of Mormon. Continue this practice in subsequent visits so that the people you teach can develop the ability to read and pray on their own.
+Teach principles and doctrines using the words and phrases of Book of Mormon prophets. Explain the background and context of a passage. Explain unfamiliar words and phrases. “Liken” to yourself and your investigators what you have read by finding applications that are relevant to you personally and to your investigators (see 1 Nephi 19:23). To “liken” is to create a mental bridge between understanding the doctrine and living the doctrine. To read sincerely, with real intent, you and those you teach must be willing to act on the doctrine, to incorporate it into your daily lives, and, as necessary, to repent. By living the doctrine, you will gain an assurance that it is true. For example, you might say to an investigator:
 
 
-When you read with investigators, stop occasionally and discuss what you read. Point out key messages or important doctrines to look for as you read with them. Share appropriate insights, feelings, testimonies, and personal experiences. Help others feel the spiritual power of the Book of Mormon. In this way you can teach them true doctrine directly from the Book of Mormon. Continue this practice in subsequent visits so that the people you teach can develop the ability to read and pray on their own. Teach principles and doctrines using the
-
-
-“Please do not take the Book of Mormon for granted. Pray for a vision of how the Book of Mormon can be used more effectively in your mission. I promise that as you do so, your mind will be enlightened with the direction that you should take.”
-
-
-words and phrases of Book of Mormon prophets. Explain the background and context of a passage. Explain unfamiliar words and phrases. “Liken” to yourself and your investigators
-
-
-– ELDER JOSEPH B. WIRTHLIN SEMINAR FOR NEW MISSION PRESIDENTS, 23 JUNE 1999
-what you have read by finding applications that are relevant to you personally and to your investigators (see 1 Nephi 19:23). To “liken” is to create a mental bridge between understanding the doctrine and living the doctrine. To read sincerely, with real intent, you and those you teach must be willing to act on the doctrine, to incorporate it into your
-
-
-110
-5 Book of Mormon
-================
-
-
-daily lives, and, as necessary, to repent. By living the doctrine, you will gain an assurance that it is true. For example, you might say to an investigator:
-
-
-• “Nephi, like you, was faced with a difficult challenge. But as he exercised faith to ‘go and do’ what the Lord commanded him, he was able to succeed. (Read 1 Nephi 3:7.) I know that God will prepare a way for you to live the Word of Wisdom.”
-
-
-• “John, it is good that you want to be free from the guilt you feel. Just as the Savior promised the Nephites, if you repent, are baptized, and receive the Holy Ghost, you will be ‘guiltless before [the] Father.’ ” (Read 3 Nephi 27:16.)
-
+- “Nephi, like you, was faced with a difficult challenge. But as he exercised faith to ‘go and do’ what the Lord commanded him, he was able to succeed. (Read 1 Nephi 3:7.) I know that God will prepare a way for you to live the Word of Wisdom.”
+- “John, it is good that you want to be free from the guilt you feel. Just as the Savior promised the Nephites, if you repent, are baptized, and receive the Holy Ghost, you will be ‘guiltless before [the] Father.’ ” (Read 3 Nephi 27:16.)
 
 Rely on the promise in Moroni 10:3–5. Every person who sincerely reads and prays about this book can know with certainty of its truthfulness by the power of the Holy Ghost. Do all you can to help investigators:
-
-
-• Read the Book of Mormon and ponder its message concerning Jesus Christ.
-
-
-• Pray to God with faith in Jesus Christ to receive a testimony that the Book of Mormon is true and that Joseph Smith is the prophet of the Restoration.
-
-
-• Pray sincerely and have real intent, which means that they intend to act on the answer they receive from God.
-
+- Read the Book of Mormon and ponder its message concerning Jesus Christ.
+- Pray to God with faith in Jesus Christ to receive a testimony that the Book of Mormon is true and that Joseph Smith is the prophet of the Restoration.
+- Pray sincerely and have real intent, which means that they intend to act on the answer they receive from God.
 
 You too should apply this promise regularly to strengthen and renew your own testimony of the Book of Mormon. This renewed testimony will help you maintain a firm confidence that anyone who applies this promise will receive the answer.
 
-
-Use the Book of Mormon in Every Aspect of Your Work
-===================================================
-
-
+#### Use the Book of Mormon in Every Aspect of Your Work (Page 125)
 The Book of Mormon is a powerful resource in conversion. Use it as your main source for teaching restored truth.
 
+> Remember This
+- The Book of Mormon is the keystone of our witness of Christ, our doctrine, and our testimonies.
+- The Book of Mormon teaches plainly the doctrine found in the missionary lessons.
+- Use the Book of Mormon to answer the questions of the soul and to respond to objections to the Church.
+- Read consistently from the Book of Mormon with your investigators and new converts. Do all you can to help them read on their own every day and apply what they learn in their lives.
+- Trust the Lord’s promise that every person who sincerely reads and prays about the Book of Mormon will know of its truthfulness by the power of the Holy Ghost.
 
-Notes
+## Ideas for Study and Application (Page 126)
+### Personal Study
+- Read 2 Nephi 2, 9, 30, 31, 32, and highlight every reference to Jesus Christ. Make a list of the different names and titles for Christ used in these chapters. Underline the spoken words of Christ. Highlight His attributes and His actions. You might want to continue this practice as you read the entire Book of Mormon.
+- Write in your study journal how you felt when you first gained a spiritual witness that the Book of Mormon is true.
+- D&C 20:17 uses the phrase “by these things we know” to introduce doctrines taught and clarified by the Book of Mormon. Read D&C 20:15–35 and make a list of the doctrines mentioned. Select one of these doctrines and use the Topical Guide to compare your list to what the Bible teaches about these doctrines.
+- Compare the Sermon on the Mount in Matthew 5–7 and Christ’s sermon at the temple in 3 Nephi 12–14. Make a list of the plain and precious truths restored through the Book of Mormon.
+- Make a list of questions that investigators have asked. Find Book of Mormon passages that answer those questions, and use them as needed in your daily teaching.
+- Find a Book of Mormon scripture that has changed your life. Record your feelings about this scripture in your study journal.
+- Locate each instance in the Book of Mormon where the words of someone’s prayer are recorded. In your study journal, write the common elements of these prayers.
+- Read 2 Nephi 33:10–15 and Moroni 10:27–29, 34. What will you tell Nephi and Moroni at the judgment bar about your use of the Book of Mormon? Write your response and set goals to improve.
+- From the chapter headings of Mosiah 11–16, write a summary of what Abinadi taught. Read these chapters and expand your summary.
+- From the chapter headings of Mosiah 2–5, write a summary of what King Benjamin taught. Read these chapters and expand your summary.
+- As you read daily from the Book of Mormon, record in your study journal the passages that impress you. Write how you will apply them in your life.
 
-
-Remember This
-=============
-
-
-• The Book of Mormon is the keystone of our witness of Christ, our doctrine, and our testimonies.
-
-
-• The Book of Mormon teaches plainly the doctrine found in the missionary lessons.
-
-
-• Use the Book of Mormon to answer the questions of the soul and to respond to objections to the Church.
-
-
-• Read consistently from the Book of Mormon with your investigators and new converts. Do all you can to help them read on their own every day and apply what they learn in their lives.
-
-
-• Trust the Lord’s promise that every person who sincerely reads and prays about the Book of Mormon will know of its truthfulness by the power of the Holy Ghost.
-
-
-111
-5 Book of Mormon
-================
-
-
-Notes
-
-
-Ideas for Study and Application
-===============================
-
-
-Personal Study
-==============
-
-
-• Read 2 Nephi 2, 9, 30, 31, 32, and highlight every reference to Jesus Christ. Make a list of the different names and titles for Christ used in these chapters. Underline the spoken words of Christ. Highlight His attributes and His actions. You might want to continue this practice as you read the entire Book of Mormon.
-
-
-• Write in your study journal how you felt when you first gained a spiritual witness that the Book of Mormon is true.
-
-
-• D&C 20:17 uses the phrase “by these things we know” to introduce doctrines taught and clarified by the Book of Mormon. Read D&C 20:15–35 and make a list of the doctrines mentioned. Select one of these doctrines and use the Topical Guide to compare your list to what the Bible teaches about these doctrines.
-
-
-• Compare the Sermon on the Mount in Matthew 5–7 and Christ’s sermon at the temple in 3 Nephi 12–14. Make a list of the plain and precious truths restored through the Book of Mormon.
-
-
-• Make a list of questions that investigators have asked. Find Book of Mormon passages that answer those questions, and use them as needed in your daily teaching.
-
-
-• Find a Book of Mormon scripture that has changed your life. Record your feelings about this scripture in your study journal.
-
-
-• Locate each instance in the Book of Mormon where the words of someone’s prayer are recorded. In your study journal, write the common elements of these prayers.
-
-
-• Read 2 Nephi 33:10–15 and Moroni 10:27–29, 34. What will you tell Nephi and Moroni at the judgment bar about your use of the Book of Mormon? Write your response and set goals to improve.
-
-
-• From the chapter headings of Mosiah 11–16, write a summary of what Abinadi taught. Read these chapters and expand your summary.
-
-
-• From the chapter headings of Mosiah 2–5, write a summary of what King Benjamin taught. Read these chapters and expand your summary.
-
-
-• As you read daily from the Book of Mormon, record in your study journal the passages that impress you. Write how you will apply them in your life.
-
-
-Companion Study
-===============
-
-
-• Read Book of Mormon passages together. Share what you have learned and felt. Also bear your testimonies to each other.
-
-
-• Which Book of Mormon prophet or missionary would you like to be like and why? Share your response with your companion.
-
-
-• Read Alma 26 and 29 as companions. Share how you feel about your mission. Write your feelings in your study journal.
-
-
-• Read Alma 37:9 and discuss how critical the scriptures were to Ammon and his fellow missionaries. Find references describing how they used the scriptures.
-
-
-112
-• Read Alma 11–14 with your companion, one taking the role of Alma or Amulek and the other the detractors. Note how these missionaries responded to difficult questions.
-
-
-• Read the following true account and discuss what you learn concerning the importance and power of the Book of Mormon (names have been changed).
-
+### Companion Study (Page 126)
+- Read Book of Mormon passages together. Share what you have learned and felt. Also bear your testimonies to each other.
+- Which Book of Mormon prophet or missionary would you like to be like and why? Share your response with your companion.
+- Read Alma 26 and 29 as companions. Share how you feel about your mission. Write your feelings in your study journal.
+- Read Alma 37:9 and discuss how critical the scriptures were to Ammon and his fellow missionaries. Find references describing how they used the scriptures.
+- Read Alma 11–14 with your companion, one taking the role of Alma or Amulek and the other the detractors. Note how these missionaries responded to difficult questions.
+- Read the following true account and discuss what you learn concerning the importance and power of the Book of Mormon (names have been changed).
 
 “When we invited the Sniders to be baptized and confirmed, Sister Snider was ready, but Brother Snider said, ‘Don’t get your hopes up, Elders. I don’t know if I can ever do this!’ Although Brother Snider accepted what we taught and was always warm and friendly, he was deeply concerned about how his family would react to his joining another church.
-
-
 “After several weeks of watching Brother Snider struggle, my companion and I felt impressed to again read 3 Nephi 11 with the Sniders. I will never forget what happened that night. As we opened the Book of Mormon, my companion explained, ‘This chapter, as you might recall, recounts the Savior’s visit to the people in the Book of Mormon. Here we read about the Savior’s love for these people and what He taught them.’ We each took turns reading a verse or two. After reading through verse 5, my companion interrupted and said, ‘I have always been impressed with the description given here of the voice they heard. The voice was not harsh, it was not loud, and although it was a small voice, it had a powerful piercing effect on them. This voice was not only heard with their ears, but it spoke to their hearts.’ I watched the Sniders as they listened intently to my companion.
-
-
 “After some discussion about prayer and listening to the Spirit, it was Brother Snider’s turn to read: ‘And behold, the third time they did understand the voice which they heard; and it said unto them: Behold my beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.’ Brother Snider paused, looking intently at his Book of Mormon. Then he looked up at me and said, ‘Heavenly Father was really proud of His Son, wasn’t He?’ ‘Yes,’ I said. Brother Snider looked back at his book again and stared at the open pages as if deep in thought. Finally he said, ‘I would want Heavenly Father to be proud of me too. I wonder how He would introduce me. I guess, if I . . . well, if I want Him to be proud of me then I had better do what He wants me to do.’ ‘Yes, I think that would be important,’ I replied. ‘Well,’ Brother Snider continued. ‘I think I’ve been worrying too much about what everybody else thinks and not enough about what God thinks.’ After a brief pause Brother Snider nodded and with a determined look said, ‘I think I had better be baptized.’ His response was so unexpected that my companion and I looked at him with blank stares. Finally, my companion said, ‘Yes, that would be the right thing to do. In fact, later on in this chapter the Savior teaches . . .’ As my companion talked I felt a burning in my heart and gratitude for the power of the Book of Mormon.”
-
 
 How did these missionaries use the Book of Mormon? How will you and your companion use it more effectively in your missionary efforts?
 
+### District Meetings and Zone Conferences (Page 127)
+- Practice using the Book of Mormon in each of the ways mentioned in the main headings of this chapter.
+- List objections or questions raised by investigators. Explain to each other how you would answer these questions using the Book of Mormon.
+- Read Book of Mormon passages together. Share knowledge, feelings, and testimony.
+- Practice using the Book of Mormon to confirm the message of the Restoration.
+- Select one of the great Book of Mormon missionaries. Discuss and have missionaries list the characteristics of this missionary. Invite each missionary to set a goal to apply one of these characteristics. Repeat this activity regularly using Book of Mormon missionaries.
+- Invite missionaries to share experiences in which the Book of Mormon has helped their investigators in the conversion process.
+- Have missionaries share their best Book of Mormon answer to a question of the soul.
 
-District Meetings and Zone Conferences
-======================================
-
-
-• Practice using the Book of Mormon in each of the ways mentioned in the main headings of this chapter.
-
-
-• List objections or questions raised by investigators. Explain to each other how you would answer these questions using the Book of Mormon.
-
-
-• Read Book of Mormon passages together. Share knowledge, feelings, and testimony.
-
-
-• Practice using the Book of Mormon to confirm the message of the Restoration.
-
-
-5 Book of Mormon
-================
-
-
-Notes
-
-
-113
-5 Book of Mormon
-================
-
-
-Notes
-
-
-114
-• Select one of the great Book of Mormon missionaries. Discuss and have missionaries list the characteristics of this missionary. Invite each missionary to set a goal to apply one of these characteristics. Repeat this activity regularly using Book of Mormon missionaries.
-
-
-• Invite missionaries to share experiences in which the Book of Mormon has helped their investigators in the conversion process.
-
-
-• Have missionaries share their best Book of Mormon answer to a question of the soul.
-
-
-Mission President
-=================
-
-
-• Teach the missionaries how to use the Book of Mormon to confirm the truthfulness of the message of the Restoration.
-
-
-• Read 1 Nephi 1 with the missionaries and compare it with Joseph Smith’s experience.
-
-
-• Provide missionaries with a clean paperback copy of the Book of Mormon. Have them highlight in different colors:
-
-
-– Each reference to Jesus Christ (any of His names or pronouns referring to Him).
-
-
-– His words (spoken by Him or by prophets when they say, “Thus saith the Lord”).
-
-
-– His attributes.
-
-
-– The doctrines and principles contained in the Book of Mormon.
-
+### Mission President (Page 128)
+- Teach the missionaries how to use the Book of Mormon to confirm the truthfulness of the message of the Restoration.
+- Read 1 Nephi 1 with the missionaries and compare it with Joseph Smith’s experience.
+- Provide missionaries with a clean paperback copy of the Book of Mormon. Have them highlight in different colors:
+  - Each reference to Jesus Christ (any of His names or pronouns referring to Him).
+  - His words (spoken by Him or by prophets when they say, “Thus saith the Lord”).
+  - His attributes.
+  - The doctrines and principles contained in the Book of Mormon.
 
 At the bottom of each page ask the missionaries to count the total number of items referenced. In interviews and during district meetings during the two- or three-month period for this activity, have missionaries share with each other what they’ve learned. You might consider doing a similar activity with the entire mission highlighting references to faith in Jesus Christ, repentance, baptism, the gift of the Holy Ghost, or any of the fundamental principles of the gospel.
 
-
-• During interviews, invite missionaries to share with you Book of Mormon scriptures that have changed their lives.
-
-
-missionary lessons. For example, if the topic were the Atonement, have missionaries write in one column each major element of the Atonement taught in the Book of Mormon, including its references. Then, in a second column, have them list side-by-side those same elements as taught in the Bible. Have your missionaries leave blank those elements that are missing or not taught in the Bible. It will become very evident to the missionary how the Book of Mormon is the keystone of our doctrine. This same activity can be done with the other doctrines that missionaries teach.
+- During interviews, invite missionaries to share with you Book of Mormon scriptures that have changed their lives.
+- Help missionaries see how the Book of Mormon teaches the doctrines from the missionary lessons. For example, if the topic were the Atonement, have missionaries write in one column each major element of the Atonement taught in the Book of Mormon, including its references. Then, in a second column, have them list side-by-side those same elements as taught in the Bible. Have your missionaries leave blank those elements that are missing or not taught in the Bible. It will become very evident to the missionary how the Book of Mormon is the keystone of our doctrine. This same activity can be done with the other doctrines that missionaries teach.
+- Identify pertinent questions of the soul for people in your mission. Invite missionaries to find answers in the Book of Mormon.
 
 
-• Identify pertinent questions of the soul for people in your mission. Invite missionaries to find answers in the Book of Mormon.
+> Beginning of Chapter 6 of 13 chapters in the preach my gospel manual
+# How Do I Develop Christlike Attributes? (Page 129)
 
+#### Consider This
+- How can I develop attributes that will make me a more powerful and effective minister of the gospel of Jesus Christ?
+- How will developing Christlike attributes help me fulfill my purpose as a missionary?
+- Which attribute do I most need to develop?
 
-6 Christlike Attributes
-=======================
-
-
-* 
-
-
-ate
-===
-
-
-* 
-
-
-* 
-
-
-&
-5
-e
-=
-
-
-Nt
-==
-
-
-* 
-
-
-g
-=
-
-
-Yo
-==
-
-
-o
-=
-
-
-o
-=
-
-
-How Do I Develop Christlike Attributes?
-=======================================
-
-
-Consider This
-=============
-
-
-• How can I develop attributes that will make me a more powerful and effective minister of the gospel of Jesus Christ?
-
-
-• How will developing Christlike attributes help me fulfill my purpose as a missionary?
-
-
-• Which attribute do I most need to develop?
-
-
-Notes
-
-
+## Overview (Page 129)
 At the beginning of His mortal ministry, Jesus Christ walked along the shore of the sea of Galilee and called out to two fishermen, Peter and Andrew. “Follow me,” He said, “and I will make you fishers of men” (Matthew 4:19; see also Mark 1:17). The Lord has also called you to His work, and He invites you to follow Him. The invitation to follow Christ is an invitation to follow His example and to become like Him.
-
-
 Some chapters in Preach My Gospel focus on what you need to do as a missionary—how to study, how to teach, how to manage time wisely. Just as vital as what you do, however, is who you are.
-
-
 The restored gospel enables you to become like Heavenly Father and Jesus Christ. The Savior has shown the way. He has set the perfect example, and He commands us to become as He is (see 3 Nephi 27:27). Learn of Him and seek to incorporate His attributes into your life. Through the power of His Atonement, you can achieve this goal and lead others to achieve it also.
-
-
 The scriptures describe Christlike attributes that are essential for you to eventually develop as a missionary and throughout your life. Study the scripture passages in this chapter and look for other examples of Christlike attributes as you study other passages.
-
-
 Christlike attributes are gifts from God. They come as you use your agency righteously. Ask your Heavenly Father to bless you with these attributes; you cannot develop them without His help. With a desire to please God, recognize your weaknesses and be willing and anxious to improve.
 
 
-115
-6 Christlike Attributes
-=======================
+#### Scripture Study (Page 130)
+- What do these scriptures say about following Jesus Christ’s example?
+  - 3 Nephi 12:48, John 13:1–16, 1 Peter 2:21, 3 Nephi 27:21, 27
+
+- What is the relationship between the first principles of the gospel and Christlike attributes?
+  - Moroni 8:25–26
 
 
-Notes
-=====
-
-
-Scripture Study
-===============
-
-
-What do these scriptures say about following Jesus Christ’s example?
-
-
-3 Nephi 12:48
-
-
-John 13:1–16
-
-
-1 Peter 2:21
-
-
-3 Nephi 27:21, 27
-
-
-What is the relationship between the first principles of the gospel and Christlike attributes? Moroni 8:25–26
-
-
-Ideas for Studying This Chapter
-===============================
-
-
+## Ideas for Studying This Chapter (Page 130)
 There are many approaches for studying this chapter. Try one of the following ideas:
+- As you complete the “Attribute Activity” at the end of this chapter, identify the attribute you most need or want to develop. Study the section about that attribute, and set goals for developing it.
+- Read through the chapter without studying the scriptures, and determine which attribute you want to study more fully. Then study the key scriptures associated with the attribute. Search for additional scriptures not listed in the chapter that teach about the attribute. Record in your study journal ideas for developing the attribute.
+- Identify an attribute you wish to study. Follow the pattern under the heading “Developing Christlike Attributes” found at the end of the chapter.
 
-
-• As you complete the “Attribute Activity” at the end of this chapter, identify the attribute you most need or want to develop. Study the section about that attribute, and set goals for developing it.
-
-
-• Read through the chapter without studying the scriptures, and determine which attribute you want to study more fully. Then study the key scriptures associated with the attribute. Search for additional scriptures not listed in the chapter that teach about the attribute. Record in your study journal ideas for developing the attribute.
-
-
-• Identify an attribute you wish to study. Follow the pattern under the heading “Developing Christlike Attributes” found at the end of the chapter.
-
-
-Faith in Jesus Christ
-=====================
-
-
-the Son of God, the Only Begotten of the Father in the Flesh. You accept Him as your Savior and Redeemer and follow His teachings. You believe that your sins can be forgiven through His Atonement. Faith in Him means that you trust Him and are confident that He loves you.
-
-
-and dedicated service. When you have faith in Jesus Christ, you trust the Lord enough to follow His commandments—even when you do not completely understand the reasons for them. You accomplish what the Lord wants you to accomplish. You help bring about good in your own life and the lives of others. You are able to do miracles according to the Lord’s will. Your faith will be manifest through diligence and work.
-
-
-![see page 130](#)
+## Faith in Jesus Christ (Page 130)
+When you have faith in Christ, you believe in Him as the Son of God, the Only Begotten of the Father in the Flesh. You accept Him as your Savior and Redeemer and follow His teachings. You believe that your sins can be forgiven through His Atonement. Faith in Him means that you trust Him and are confident that He loves you.
+Faith leads to action, including repentance, obedience and dedicated service. When you have faith in Jesus Christ, you trust the Lord enough to follow His commandments—even when you do not completely understand the reasons for them. You accomplish what the Lord wants you to accomplish. You help bring about good in your own life and the lives of others. You are able to do miracles according to the Lord’s will. Your faith will be manifest through diligence and work.
 Faith is a principle of power. God works by power, but His power is usually exercised in response to faith (see Moroni 10:7). He works according to the faith of His children. Doubt and fear are opposed to faith.
-
-
 Your faith will increase through diligent study, prayer, dedicated service, and obedience to the promptings of the Holy Ghost and the commandments.
-
-
 Your faith in Jesus Christ grows as you become better acquainted with Him and His teachings. As you explore the scriptures and search them, you learn of His ways, His love for all people, and His commandments.
-
-
-. y p o c t o n o D . c n I , s t n e m t s e v n I d e t i m i l n U s n o i t p e c n o C 9 8 9 1 ©
-
-
-116
-6 Christlike Attributes
-=======================
-
-
 Faith includes confidence in the mission and power of the Holy Ghost. Through faith you receive answers to your prayers and personal inspiration to guide you in the Lord’s work.
 
+#### Scripture Study (Page 131)
+- What is faith?
+  - Alma 32:21, Ether 12:6, Hebrews 11:1; see footnote b Topical Guide, “Faith”. Bible Dictionary, “Faith” True to the Faith, “Faith,” 54–56
 
-Scripture Study
+- How do you obtain faith, and what can you do through faith?
+  - 2 Nephi 25:29, 2 Nephi 26:13, Mosiah 4:6–12, Alma 32, Helaman 15:7–8, Ether 12:7–22
+   
+- What blessings come through faith?
+  - Mosiah 3:17, Mosiah 5:1–15, Helaman 5:9–12, Moroni 7:33, Romans 10:17, Hebrews 11, John 14:6
 
+## Hope (Page 131)
+Hope is an abiding trust that the Lord will fulfill His promises to you. It is manifest in confidence, optimism, enthusiasm, and patient perseverance. It is believing and expecting that something will occur. When you have hope, you work through trials and difficulties with the confidence and assurance that all things will work together for your good. Hope helps you conquer discouragement. The scriptures often describe hope in Jesus Christ as the assurance that you will inherit eternal life in the celestial kingdom.
 
-What is faith?
-
-
-Alma 32:21 Ether 12:6
-=====================
-
-
-Hebrews 11:1; see footnote b Topical Guide, “Faith”
-===================================================
-
-
-Bible Dictionary, “Faith” True to the Faith, “Faith,” 54–56
-===========================================================
+President James E. Faust taught: “Hope is the anchor of our souls. . . . “Hope is trust in God’s promises, faith that if we act now, the desired blessings will be fulfilled in the future. . . . “The unfailing source of our hope is that we are sons and daughters of God and that His Son, the Lord Jesus Christ, saved us from death” (“Hope, an Anchor of the Soul,” Ensign, Nov. 1999, 59–60).
 
 
-How do you obtain faith, and what can you do through faith?
-===========================================================
+“Being blessed with hope, let us, as disciples, reach out to all who, for whatever reason, have ‘moved away from the hope of the gospel’ (Col. 1:23). Let us reach to lift hands which hang hopelessly down.” – ELDER NEAL A. MAXWELL “BRIGHTNESS OF HOPE,” ENSIGN, NOV. 1994, 36
 
+#### Scripture Study (Page 131)
+- What is hope and what do we hope for?
 
-2 Nephi 25:29 2 Nephi 26:13 Mosiah 4:6–12
-Alma 32 Helaman 15:7–8 Ether 12:7–22
-====================================
-
-
-What blessings come through faith?
-==================================
-
-
-Mosiah 3:17 Mosiah 5:1–15
-=========================
-
-
-Helaman 5:9–12
-
-
-Moroni 7:33 Romans 10:17 Hebrews 11
-===================================
-
-
-John 14:6
-
-
-Notes
-
-
-Hope
-====
-
-
-fulfill His promises to you. It is manifest in confidence, optimism, enthusiasm, and patient perseverance. It is believing and expecting that something will occur. When you have hope, you work through trials and difficulties with the confidence and assurance that all things will work together for your good. Hope helps you conquer discouragement. The scriptures often describe hope in Jesus Christ as the assurance that you will inherit eternal life in the celestial kingdom.
-
-
-“Being blessed with hope, let us, as disciples, reach out to all who, for whatever reason, have ‘moved away from the hope of the gospel’ (Col. 1:23). Let us reach to lift hands which hang hopelessly down.”
-
-
-– ELDER NEAL A. MAXWELL “BRIGHTNESS OF HOPE,” ENSIGN, NOV. 1994, 36
-
-
-President James E. Faust taught: “Hope is the anchor of our souls. . . . “Hope is trust in God’s promises, faith that if we act now, the desired blessings will be
-
-
-fulfilled in the future. . . .
-
-
-“The unfailing source of our hope is that we are sons and daughters of God and that His Son, the Lord Jesus Christ, saved us from death” (“Hope, an Anchor of the Soul,” Ensign, Nov. 1999, 59–60).
-
-
-Scripture Study
-===============
-
-
-What is hope and what do we hope for?
-
-
-
-
-| 2 Nephi 31:20 | Moroni 7:40-48 | Romans 8:24-25 |
+| | | |
 | --- | --- | --- |
+| 2 Nephi 31:20 | Moroni 7:40-48 | Romans 8:24-25 |
 | Alma 58:10-11 | D&C 59:23 | Hebrews 6:10-20 |
 | Ether 12:4, 32 | D&C 138:14 | Topical Guide, “Hope” |
-
-
-117
-6 Christlike Attributes
-=======================
-
-
-118
-Notes
 
 
 Charity and Love
