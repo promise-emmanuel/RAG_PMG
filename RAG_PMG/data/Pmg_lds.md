@@ -3368,1106 +3368,314 @@ After all the presentations, ask:
 # How Do I Find People to Teach? (Page 169)
 
 
-Consider This
-=============
+#### Consider This (Page 169)
+- What does it mean to “find them that will receive you” (D&C 42:8)?
+- How do I increase my faith to find people to teach?
+- Why should I involve members in my finding efforts?
+- What is the role of media and Church headquarters referrals?
+- What is the relationship between finding and teaching?
+- What is the role of service in finding people to teach?
+- What are some ideas for finding people to teach that I have not yet tried?
 
-
-• What does it mean to “find them that will receive you” (D&C 42:8)?
-
-
-• How do I increase my faith to find people to teach?
-
-
-• Why should I involve members in my finding efforts?
-
-
-• What is the role of media and Church headquarters referrals?
-
-
-• What is the relationship between finding and teaching?
-
-
-• What is the role of service in finding people to teach?
-
-
-• What are some ideas for finding people to teach that I have not yet tried?
-
-
-%
-Vo
-==
-
-
-o
-=
-
-
-/
-* 4
-
-
-g
-=
-
-
-Notes
-
-
-oy
-==
-
-
-Developing the Faith to Find
-============================
-
-
-preparing people to receive you and the restored gospel. He will lead you to them or He will lead them to you. Finding is different in different parts of the world. Missionaries and mission presidents need to adapt to circumstances. Despite differences, however, the principles for finding are universal.
-
-
+## Developing the Faith to Find (Page 169)
+The doctrines and principles in this chapter will strengthen your faith that the Lord is preparing people to receive you and the restored gospel. He will lead you to them or He will lead them to you. Finding is different in different parts of the world. Missionaries and mission presidents need to adapt to circumstances. Despite differences, however, the principles for finding are universal.
 The Family of God. All people on the earth were members of God’s family in the premortal life (see Acts 17:26–29; Hebrews 12:9). We are part of God’s family in this life and can enjoy even greater blessings as members of His family in the life to come. We are all brothers and sisters in the family of God. This knowledge gives us a sense of identity and belonging. It gives us reason to hope for eternal life in God’s presence. We understand these basic truths because of the Restoration. Teaching restored truths to your brothers and sisters is your responsibility and blessing. Like Alma seeking to help the apostate Zoramites, you can pray: “O Lord, wilt thou grant unto us that we may have success in bringing them again unto thee in Christ. Behold, O Lord, their souls are precious . . . ; therefore, give unto us, O Lord, power and wisdom that we may bring these, our brethren, again unto thee” (Alma 31:34–35).
 
-
-. y p o c t o n o D . n o s r a P l e D 0 9 9 1 ©
-
-
-155
-9 Finding People
-================
-
-
-Notes:
-
-
 “Find Them That Will Receive You.” You are to build up the Church by finding “them that will receive you” (D&C 42:8). Such people will recognize that you are the Lord’s servants. They will be willing to act on your message. Many of these people have been “kept from the truth [only] because they know not where to find it” (D&C 123:12).
+Usually you do not know who these people are. They may not immediately recognize that you are the Lord’s servants. They may not understand that greater peace, direction, and purpose in life will come through the restored gospel than from anything else. They often do not realize that they are looking for the restored gospel until they have found it. For example, one convert said, “When I heard the gospel, it filled a hole in my heart that I didn’t know was there.” Another said, “I have finished the search I didn’t know I was on.” Wherever you are assigned to serve, remember that the Lord has “suffered you to come unto this place; for thus it was expedient in [Him] for the salvation of souls.” Work effectively to “lift up your voices unto this people; speak the thoughts that [the Lord] shall put in your hearts.” If you do, you will receive the promise that “you shall not be confounded before men,” and “it shall be given you . . . in the very moment, what ye shall say” (D&C 100:4–6). Finding by the Spirit is as important as teaching by the Spirit. As in teaching, your efforts in finding will be effective if you are guided by the Spirit. Have faith that you will know what to teach and what to do to find those who will receive you.
 
-
-Usually you do not know who these people are. They may not immediately recognize that you are the Lord’s servants. They may not understand that greater peace, direction, and purpose in life will come through the restored gospel than from anything else. They often do not realize that they are looking for the restored gospel until they have found it. For example, one convert said, “When I heard the gospel, it filled a hole in my heart that I didn’t know was there.” Another said, “I have finished the search I didn’t know I was on.” Wherever you are assigned to serve, remember that the Lord has “suffered you to come
-
-
-unto this place; for thus it was expedient in [Him] for the salvation of souls.” Work effectively to “lift up your voices unto this people; speak the thoughts that [the Lord] shall put in your hearts.” If you do, you will receive the promise that “you shall not be confounded before men,” and “it shall be given you . . . in the very moment, what ye shall say” (D&C 100:4–6). Finding by the Spirit is as important as teaching by the Spirit. As in teaching, your efforts in finding will be effective if you are guided by the Spirit. Have faith that you will know what to teach and what to do to find those who will receive you.
-
-
-Activity: Companion Study
-=========================
-
-
+#### Activity: Companion Study (Page 170)
 Many of the members you visit may be converts to the Church. Plan a time to ask them how they came in contact with the Church and how they came to recognize that the missionaries were teaching them the truth. Summarize their experiences in your study journal.
 
-
-Scripture Study
-===============
-
-
+#### Scripture Study (Page 170)
 How are God’s children prepared and led to the restored gospel?
+- Alma 13:24, D&C 29:7, D&C 84:45-47, 88
+- Alma 16:16-17, D&C 33:6, D&C 136:32-33
 
-
-
-
-| Alma 13:24 | D&C 29:7 D&C 84:45-47, 88 |
-| --- | --- |
-| Alma 16:16-17 | D&C 33:6 D&C 136:32-33 |
-
-
-Talk with Everyone
-==================
-
-
+## Talk with Everyone (Page 170)
 While the Prophet Joseph Smith was traveling with a group of missionaries on the Missouri River, the Lord revealed, “It is not needful for . . . mine elders to be moving swiftly . . . whilst the inhabitants on either side are perishing in unbelief” (D&C 61:3). As you move swiftly to planned activities, pray for the ability to see unplanned opportunities to serve and teach those who may be “perishing in unbelief.” Pray for the spiritual sensitivity to recognize opportunities. You will find that God will place in your path His children who are being prepared to receive the restored gospel.
-
-
-Nothing happens in missionary work until you find someone to teach. Talk with as many people as you can each day. It is natural to be somewhat apprehensive about talking to people, but you can pray for the faith and strength to be more bold in opening your
-
-
-156
-9 Finding People
-================
-
-
-mouth to proclaim the restored gospel. Try applying the following ideas as you seek to talk with everyone you meet:
-
-
-• Talk to people about their families. Help them see how the restored gospel can be a blessing to their families.
-
-
-• Look for clues—such as items in homes or yards, lettering on clothing, or indications of children—to help you know how to begin talking with people.
-
-
-• Listen sincerely to what people say to you.
-
-
-• Be warm, friendly, and cheerful. Offer to help.
-
-
-• Trust the Spirit to put into your heart and mind what to teach.
-
-
-• Invite everyone to learn about the restored gospel.
-
-
-• Offer pass-along cards.
-
-
-• Ask for the names of people’s acquaintances who might be interested in your message.
-
-
+Nothing happens in missionary work until you find someone to teach. Talk with as many people as you can each day. It is natural to be somewhat apprehensive about talking to people, but you can pray for the faith and strength to be more bold in opening your mouth to proclaim the restored gospel. Try applying the following ideas as you seek to talk with everyone you meet:
+- Talk to people about their families. Help them see how the restored gospel can be a blessing to their families.
+- Look for clues—such as items in homes or yards, lettering on clothing, or indications of children—to help you know how to begin talking with people.
+- Listen sincerely to what people say to you.
+- Be warm, friendly, and cheerful. Offer to help.
+- Trust the Spirit to put into your heart and mind what to teach.
+- Invite everyone to learn about the restored gospel.
+- Offer pass-along cards.
+- Ask for the names of people’s acquaintances who might be interested in your message.
 As you read the following true account, look for how the man was prepared to receive the missionaries and how the missionaries used an unplanned opportunity to teach him the gospel.
 
-
-As a child, I was never taught to read the Bible. I went to church on Sundays, but I contributed nothing
-
-
-and felt nothing in return. I was disillusioned by my religion. . . . I searched for . . . God—wanting to know if He even existed. I thirsted to know Him and His words. But I could not seem to find what I sought. There were moments when I felt close to quenching my thirst. When I held my first child, a daughter, in my arms for the first time, I had a feeling that God really did exist. Many years later, when her sister was born, I experienced the same feeling. . . . Most of the time, however, an inexplicable tiredness weighed upon my soul. I was spiritually thirsty and could find no place to drink.
-
-
+As a child, I was never taught to read the Bible. I went to church on Sundays, but I contributed nothing and felt nothing in return. I was disillusioned by my religion. . . . I searched for . . . God—wanting to know if He even existed. I thirsted to know Him and His words. But I could not seem to find what I sought. There were moments when I felt close to quenching my thirst. When I held my first child, a daughter, in my arms for the first time, I had a feeling that God really did exist. Many years later, when her sister was born, I experienced the same feeling. . . . Most of the time, however, an inexplicable tiredness weighed upon my soul. I was spiritually thirsty and could find no place to drink.
 In April 1994 I was living in the city of Monterrey, Mexico, earning a living as a taxi driver. One day it rained for hours, sending water cascading down the mountainsides. After driving around in the rain for hours, I found myself in a little town about eight kilometers (five miles) from Monterrey. It was about . . . nearly time to go home. Suddenly I saw two young men on foot. They were wearing dark trousers and white shirts, and they looked drenched from head to foot.
-
-
-When I approached them, I opened the door of the taxi and called, “Get in! I’m going to Monterrey.” The taller one, who had a very fair complexion, replied, “We don’t have any money.” “No charge,” I replied. They quickly got into the taxi. As I drove, we talked. They asked if they could share a message about Jesus Christ with me. I agreed
-
-
-and gave them my address.
-
-
+When I approached them, I opened the door of the taxi and called, “Get in! I’m going to Monterrey.” The taller one, who had a very fair complexion, replied, “We don’t have any money.” “No charge,” I replied. They quickly got into the taxi. As I drove, we talked. They asked if they could share a message about Jesus Christ with me. I agreed and gave them my address.
 When I got home, I woke my wife and told her about the two young men. “What a coincidence,” I said. “One is Mexican and the other is American, and they are both named Elder.”
-
-
 “Elder means missionary,” my wife answered, knowing just a little about the Church. From deep within me, I felt something stir. These young men had left a feeling of exquisite wonder in my heart. I felt that I was close to finding the water that would quench my thirst, that it was within reach. The missionaries came to our home on 5 June, and I was happy to listen to them. Two weeks later, on 19 June, I was baptized. My wife was baptized four months later, in October. Our oldest daughter had been receiving religious training at a school. When she went to church for the first time, she cried, “Papa, this is so much better than what I am learning at school!” She too was baptized in October.
-
-
-Notes:
-
-
-157
-9 Finding People
-================
-
-
-Notes
-
-
 In December 1995 we were sealed as a family in the Mexico City Mexico Temple for this life and for eternity. Now we are a family enjoying harmony, peace, and happiness. We know who we worship. We know where we came from and where we are going. We love God’s word, especially the Book of Mormon, and we love His Church, The Church of Jesus Christ of Latter-day Saints. Through these gifts we have found that well of living water the Savior spoke of to the woman of Samaria: “Whosoever drinketh of the water that I shall give him shall never thirst; but the water that I shall give him shall be in him a well of water springing up into everlasting life” (John 4:14). [Victor Manuel Cabrera, “Thirsting for the Living Water,” Ensign, Aug. 2001, 60–61]
 
+#### Activity: Personal or Companion Study (Page 172)
+- How had the man been prepared for the restored gospel?
+- What would have happened if the elders had never opened their mouths to share a gospel message?
+- Review what you did yesterday. Did you talk with as many people as possible? If not, make plans and set goals to do so today.
 
-Activity: Personal or Companion Study
-=====================================
-
-
-• How had the man been prepared for the restored gospel?
-
-
-• What would have happened if the elders had never opened their mouths to share a gospel message?
-
-
-• Review what you did yesterday. Did you talk with as many people as possible? If not, make plans and set goals to do so today.
-
-
-| serpurestagy |
-================
-
-
+#### Scripture study (Page 172)
 What does the Lord say about opening your mouth? What should you teach? What are you promised?
+- D&C 24:12, D&C 28:16, D&C 33:7–15, D&C 60:2–3, 7–8
 
-
-D&C 24:12 D&C 28:16
-D&C 33:7–15
-
-
-D&C 60:2–3, 7–8
-
-
-. y p o c t o n o D . y e w e D n o m S 1 0 0 2 © i
-
-
-Teach When You Find, Find When You Teach
-========================================
-
-
+## Teach When You Find, Find When You Teach (Page 172)
 Finding and teaching are related, connected activities. When you meet people, be prepared to teach brief summaries of restored truth so that the Holy Ghost can bear witness that you are the servants of the Lord. In many situations, you will need to be able to present a message in a minute or less. People are accustomed to short, powerful statements. For example, you may testify of the message of the Restoration in just two or three sentences:
-
-
-After centuries of being lost, original truths of God (the gospel of Jesus Christ) have been restored by a loving God through a living prophet. We have evidence of this that you can hold in your hands, read, ponder in your heart, and pray about to learn its truth for yourself. Will you allow us to . . .
-
-
+*"After centuries of being lost, original truths of God (the gospel of Jesus Christ) have been restored by a loving God through a living prophet. We have evidence of this that you can hold in your hands, read, ponder in your heart, and pray about to learn its truth for yourself. Will you allow us to . . ."* 
 If a little more time is available, you might say more:
-=======================================================
+*"Our message is simple. God is our Father. We are His children. We are part of His family. He loves us. From the beginning of the world, He has followed a pattern of love and concern. Many times He has reached out in love to reveal the gospel of Jesus Christ so that His children can know how to return to Him. He has revealed it to prophets such as Adam, Noah, Abraham, and Moses. But some people have repeatedly chosen to reject that gospel. Two thousand years ago, Jesus Christ Himself taught His gospel.
+Incredibly, people even rejected Jesus. Whenever people disregard or distort true doctrines and ordinances, God withdraws His authority to administer the Church. Our invitation to you is to add to the truths you already treasure. Consider the evidence that our Heavenly Father has again reached out to His children in love and revealed the true doctrines and ordinances to a prophet. This prophet’s name is Joseph Smith. The evidence of this glorious truth is found in a book—the Book of Mormon. You can hold it in your hands, read it, and ponder its truth in your mind and heart.*
 
-
-Our message is simple. God is our Father. We are His children. We are part of His family. He loves us. From the beginning of the world, He has followed a pattern of love and concern. Many times He has reached out in love to reveal the gospel of Jesus Christ so that His children can know how to return to Him. He has revealed it to prophets such as Adam, Noah, Abraham, and Moses. But some people have repeatedly chosen to reject that gospel. Two thousand years ago, Jesus Christ Himself taught His gospel.
-
-
-158
-9 Finding People
-================
-
-
-Incredibly, people even rejected Jesus. Whenever people disregard or distort true doctrines and ordinances, God withdraws His authority to administer the Church.
-
-
-Our invitation to you is to add to the truths you already treasure. Consider the evidence that our Heavenly Father has again reached out to His children in love and revealed the true doctrines and ordinances to a prophet. This prophet’s name is Joseph Smith. The evidence of this glorious truth is found in a book—the Book of Mormon. You can hold it in your hands, read it, and ponder its truth in your mind and heart.
-
-
-Avoid the tendency to say things such as, “Do you have a few minutes that we could teach you a message about . . .” Rather, develop the habit of immediately beginning to teach and testify as you meet people. You will find more people to teach as you testify and allow them to feel the power of the Holy Ghost.
-
-
+Avoid the tendency to say things such as, *“Do you have a few minutes that we could teach you a message about . . .”* Rather, develop the habit of immediately beginning to teach and testify as you meet people. You will find more people to teach as you testify and allow them to feel the power of the Holy Ghost.
 Whatever your initial approach, refer quickly and simply to the Restoration of the gospel, for this is our unique message to the world. Those you teach often have friends or relatives who are prepared to receive the restored gospel. In all teaching situations—such as finding, teaching investigators, working with members—ask, “Who do you know who would be interested in and benefit from this message?” After receiving a referral, ask, “Who else can benefit from our message?” Do not hesitate to bring this up again and again in later meetings. As those you teach experience the blessings of the gospel, their desire to share it will increase (see 1 Nephi 8:12). They will often make new friends while learning the gospel. Missionaries who apply this principle usually have many people to teach.
 
+#### Activity: Companion Study (Page 173)
+- Prepare a one-minute message based on one of the lessons. Think of ways to teach this lesson in a finding setting.
+- Determine how you can quickly connect this message to the Restoration.
+- Share the message with your companion.
+- Set a goal to teach this message at an appropriate time today to add a new investigator to your teaching pool.
+- Review a list of people you are currently teaching. Make a list of those you have asked for referrals and those you have not asked. Practice how you will extend a referral invitation to those in each group. In your planner, make a note to extend this invitation in your next visits.
 
-Activity: Companion Study
-=========================
-
-
-• Prepare a one-minute message based on one of the lessons. Think of ways to teach this lesson in a finding setting.
-
-
-• Determine how you can quickly connect this message to the Restoration.
-
-
-• Share the message with your companion.
-
-
-• Set a goal to teach this message at an appropriate time today to add a new investigator to your teaching pool.
-
-
-• Review a list of people you are currently teaching. Make a list of those you have asked for referrals and those you have not asked. Practice how you will extend a referral invitation to those in each group. In your planner, make a note to extend this invitation in your next visits.
-
-
-Notes
-
-
-Addressing the Importance of the Family
-=======================================
-
-
-Jesus Christ blesses families. By living the principles of the restored gospel, families are strengthened and can experience peace, joy, and a sense of belonging and identity.
-
-
-Addressing the importance of the family with those you meet each day will help you find people to teach. Most people have a natural interest in families. In many finding situations, you can quickly relate
-
-
-![see page 173](#)
-159
-9 Finding People
-================
-
-
-Notes
-
-
-what most people know about the family to the message of the Restoration. When finding, you might say something like the following:
-
-
-There is nothing more important to us than our families. Our family ties us to one another, gives us a name, and helps us feel needed and loved. From our families we inherited personality traits, attributes, and physical characteristics, giving us some unique identity.
-
-
-Having a strong, happy family is the highest priority for many people throughout the world. Accomplishing this goal is often difficult. Raising children and having a strong marriage in today’s world can almost seem impossible at times with the evils that are all around us.
-
-
+## Addressing the Importance of the Family (Page 173)
+The Restoration of the gospel of Jesus Christ blesses families. By living the principles of the restored gospel, families are strengthened and can experience peace, joy, and a sense of belonging and identity. Addressing the importance of the family with those you meet each day will help you find people to teach. Most people have a natural interest in families. In many finding situations, you can quickly relate what most people know about the family to the message of the Restoration. When finding, you might say something like the following:
+*There is nothing more important to us than our families. Our family ties us to one another, gives us a name, and helps us feel needed and loved. From our families we inherited personality traits, attributes, and physical characteristics, giving us some unique identity. Having a strong, happy family is the highest priority for many people throughout the world. Accomplishing this goal is often difficult. Raising children and having a strong marriage in today’s world can almost seem impossible at times with the evils that are all around us.*
 You could then make a transition to the message of the Restoration:
-===================================================================
-
-
-souls. They are centered in our relationship with God. You have been part of God’s family since before you were born. He is our Father. Because He is our Father, we are brothers and sisters. Heavenly Father wants us to return to live with Him as part of His family. Families here on earth are a tie to God’s family. Families can live together after this life. We know this because after centuries of being lost, true doctrines and ordinances such as baptism by immersion have been restored to the earth by our loving Heavenly Father through a living prophet. These restored truths not only help us understand our place in God’s family, but they are the greatest hope we have for a strong, happy family in this life. May we teach you more about . . .
-
-
+*The feelings of love and concern that we have for our families are eternal and rooted deep within our souls. They are centered in our relationship with God. You have been part of God’s family since before you were born. He is our Father. Because He is our Father, we are brothers and sisters. Heavenly Father wants us to return to live with Him as part of His family. Families here on earth are a tie to God’s family. Families can live together after this life. We know this because after centuries of being lost, true doctrines and ordinances such as baptism by immersion have been restored to the earth by our loving Heavenly Father through a living prophet. These restored truths not only help us understand our place in God’s family, but they are the greatest hope we have for a strong, happy family in this life. May we teach you more about . . .*
 The same thing can be done with other topics, such as happiness, adversity, the purpose of life, or death. Whatever your finding approach, remember to connect it quickly to our unique message to the world.
 
 
-The Importance of Members
-=========================
-
-
+## The Importance of Members (Page 174)
 Work with members of the Church to find people to teach. The ideal situation is when members invite others to be taught and are present for the teaching. When members do this, more people are baptized and remain active in the Church. Association with members is important because it softens people’s hearts and often leads them to investigate the restored gospel. This often means that they are brought into the circle of friends of Church members, including active and less-active members, recent converts, and part-member families.
-
-
-of us look upon missionary work as simply tracting. Everyone who is familiar with this work knows there is a better way. That way is through the members of the Church. Whenever there is a member who introduces an investigator, there is an immediate support system. The member bears testimony of the truth of the work. He is anxious for the happiness of his investigator friend. He becomes excited as that friend makes progress in learning the gospel.
-
-
-“After all that has been
-
-
-said, the greatest and
-
-
-most important duty is to
-
-
-preach the Gospel.”
-===================
-
-
-– THE PROPHET JOSEPH SMITH TEACHINGS OF THE PROPHET JOSEPH SMITH, 113
-=====================================================================
-
-
-“The full-time missionaries may do the actual teaching, but the member, wherever possible, will back up that teaching with the offering of his home to carry on this missionary service. He will bear sincere testimony of the divinity of the work. He will be there to answer questions when the missionaries are not around. He will be a friend to the convert who is making a big and often difficult change. . . . The process of bringing new people into the Church is not the responsibility alone of the missionaries. They succeed best
-
-
-160
-9 Finding People
-================
-
-
-when members become the source from which new investigators are found” (Ensign, May 1999, 105–6).
-
-
-The starting point in building strong relationships with members is the bishop. Offer to help and serve in any righteous way that he asks. Regularly ask yourself, “Am I a blessing or a burden to the bishop?” Develop a “How can I help?” attitude. If you will look for opportunities to love, serve, and teach, the bishop and ward members will be more likely to trust you with their family members and friends.
-
-
+President Gordon B. Hinckley taught: “So many of us look upon missionary work as simply tracting. Everyone who is familiar with this work knows there is a better way. That way is through the members of the Church. Whenever there is a member who introduces an investigator, there is an immediate support system. The member bears testimony of the truth of the work. He is anxious for the happiness of his investigator friend. He becomes excited as that friend makes progress in learning the gospel.
+“The full-time missionaries may do the actual teaching, but the member, wherever possible, will back up that teaching with the offering of his home to carry on this missionary service. He will bear sincere testimony of the divinity of the work. He will be there to answer questions when the missionaries are not around. He will be a friend to the convert who is making a big and often difficult change. . . . The process of bringing new people into the Church is not the responsibility alone of the missionaries. They succeed best when members become the source from which new investigators are found” (Ensign, May 1999, 105–6).
+The starting point in building strong relationships with members is the bishop. Offer to help and serve in any righteous way that he asks. Regularly ask yourself, “Am I a blessing or a burden to the bishop?” Develop a “How can I help?” attitude. If you will look for opportunities to love, serve, and teach, the bishop and ward members will be more likely to trust you with their family members and friends. “After all that has been said, the greatest and most important duty is to preach the Gospel.” – THE PROPHET JOSEPH SMITH TEACHINGS OF THE PROPHET JOSEPH SMITH, 113.
 Consider the following excerpt from a letter written by a missionary to his mission president:
-
-
-Dear President, The assistants called today telling me I’m being transferred. I felt that I should write and thank you for sending me to this area. It seems like it was just yesterday that you were telling me about the challenges that lay ahead.
-
-
+*Dear President, The assistants called today telling me I’m being transferred. I felt that I should write and thank you for sending me to this area. It seems like it was just yesterday that you were telling me about the challenges that lay ahead.
 Our first Sunday confirmed what you told me. We received a lukewarm welcome to the ward. The only ray of light that first Sunday was Scott, the new ward mission leader. He had been transferred to the Air Force base a month earlier and had been serving as ward mission leader for two weeks. Scott invited us to his home for dinner our first Sunday to discuss what could be done to get the work moving. After dinner, we knelt in prayer and asked Heavenly Father for His direction. As we prayed, we felt a sense of peace and determination. We determined that the best way to move the work forward was to gain the trust of the members. We decided to follow Ammon’s example and serve them.
+We started with the bishop. Because of the lack of baptisms in the area and the lack of effort from the previous missionaries, he was understandably less than excited at our request to meet with him. He eventually invited us over to his home for dinner. We learned that the bishop was preparing to remove the carpet from his living room and restore the hardwood floor found underneath. We volunteered our help and he accepted. At the conclusion of the project, the bishop asked us to speak in a sacrament meeting. We took this as evidence that he was beginning to trust us.
+We followed this same pattern of service as we met with other members. We found opportunities to help them in a variety of simple ways. When we were not with the members, we were knocking on doors and talking to as many people as we could about the restored gospel. We were blessed with people to teach, and the members saw us bringing people to church whom we were finding on our own. The attitude of the whole ward began to change. There was an increasing excitement about missionary work. Once the members trusted us, the work hastened. Many baptisms followed.*
 
-
-previous missionaries, he was understandably less than excited at our request to meet with him. He eventually invited us over to his home for dinner. We learned that the bishop was preparing to remove the carpet from his living room and restore the hardwood floor found underneath. We volunteered our help and he accepted. At the conclusion of the project, the bishop asked us to speak in a sacrament meeting. We took this as evidence that he was beginning to trust us.
-
-
-We followed this same pattern of service as we met with other members. We found opportunities to help them in a variety of simple ways. When we were not with the members, we were knocking on doors and talking to as many people as we could about the restored gospel. We were blessed with people to teach, and the members saw us bringing people to church whom we were finding on our own. The attitude of the whole ward began to change. There was an increasing excitement about missionary work. Once the members trusted us, the work hastened. Many baptisms followed.
-
-
-fears about doing missionary work. Many are unsure where to begin or what to say. Many fear that they will lose close friends if they try to share the gospel with them. There are many ways to help the members. For example, help build their faith by teaching them the message of the Restoration and other doctrines of the lessons. Help them feel the Spirit and power of our message. Strengthening their understanding of the doctrine of Christ will do more to increase their trust in you and to build their excitement to do missionary work than anything else you can do. Help them understand that offering the restored gospel will flow more naturally out of relationships where they are seeking to love and serve their family members and friends. Teach them the principles from the “Go About Doing Good” section of this chapter. Encourage members to “join in fasting and mighty prayer in behalf of the welfare of the souls of those who [know] not God” (Alma 6:6). In all you do with members, seek to lift and build their faith to help them do missionary work.
-
-
-Notes
-
-
-161
-9 Finding People
-================
-
-
-Notes
-
-
+Many members of the Church have fears about doing missionary work. Many are unsure where to begin or what to say. Many fear that they will lose close friends if they try to share the gospel with them. There are many ways to help the members. For example, help build their faith by teaching them the message of the Restoration and other doctrines of the lessons. Help them feel the Spirit and power of our message. Strengthening their understanding of the doctrine of Christ will do more to increase their trust in you and to build their excitement to do missionary work than anything else you can do. Help them understand that offering the restored gospel will flow more naturally out of relationships where they are seeking to love and serve their family members and friends. Teach them the principles from the “Go About Doing Good” section of this chapter. Encourage members to “join in fasting and mighty prayer in behalf of the welfare of the souls of those who [know] not God” (Alma 6:6). In all you do with members, seek to lift and build their faith to help them do missionary work.
 In addition to working with active members, seek to find people to teach through prospective elders, less-active members, and new members. These members are likely to have many friends of other faiths and be blessed as they share the restored gospel with their family members and friends.
-
-
 In every visit with members, do all you can to encourage them to:
-
-
-• Pray and follow the Spirit.
-
-
-* Give service.
-
-
-• Develop friendships.
-
-
-• Open their mouths to share the restored gospel.
-
-
-• Invite others to do things to increase their faith in Christ.
-
-
+- Pray and follow the Spirit.
+- Give service.
+- Develop friendships.
+- Open their mouths to share the restored gospel.
+- Invite others to do things to increase their faith in Christ.
 Every referral you receive from a member should be treated as something precious. When a member gives you the name of a friend to call or visit, respond quickly and report the results back to the member.
 
-
-Ideas for Helping Members
-=========================
-
-
+#### Ideas for Helping Members (Page 176)
 There are many ways to encourage members to become more involved in missionary work. Consider the following ideas:
-
-
-• Seek the guidance of the bishop and other ward leaders. See chapter 13 for additional help in this area.
-
-
-• Teach Church leaders and members the message of the Restoration and other lessons.
-
-
-• Teach them to love and serve their neighbors and friends.
-
-
-• Encourage them to fast and pray for missionary opportunities.
-
-
-• Encourage them to visit acquaintances who have recently experienced a life-changing event (birth, death in the family, marriage, or recently moved).
-
-
-• Invite them to help you teach. The ideal situation is to have a Church member with you who formerly belonged to the same church as the investigator.
-
-
-• Help them set dates when they will invite their friends to learn about the message of the Restoration.
-
-
-• Show them items they can give others, such as copies of the Book of Mormon, videos, and pass-along cards.
-
-
-• Encourage them to invite their friends to attend church or family home evening, to view a Church-produced video, or to participate in a gospel conversation.
-
-
-• Help them practice what they could say to their friends.
-
-
-• Teach them why it is valuable to share the gospel regardless of the result.
-
-
+- Seek the guidance of the bishop and other ward leaders. See chapter 13 for additional help in this area.
+- Teach Church leaders and members the message of the Restoration and other lessons.
+- Teach them to love and serve their neighbors and friends.
+- Encourage them to fast and pray for missionary opportunities.
+- Encourage them to visit acquaintances who have recently experienced a life-changing event (birth, death in the family, marriage, or recently moved).
+- Invite them to help you teach. The ideal situation is to have a Church member with you who formerly belonged to the same church as the investigator.
+- Help them set dates when they will invite their friends to learn about the message of the Restoration.
+- Show them items they can give others, such as copies of the Book of Mormon, videos, and pass-along cards.
+- Encourage them to invite their friends to attend church or family home evening, to view a Church-produced video, or to participate in a gospel conversation.
+- Help them practice what they could say to their friends.
+- Teach them why it is valuable to share the gospel regardless of the result.
 There are many other ways to help members get more involved. Seek to add to this list throughout your mission. Share your ideas with other missionaries.
 
-
-Activity: Companion Study
-=========================
-
-
+#### Activity: Companion Study (Page 176)
 With your companion, review what you have done to serve and help the bishop and other leaders and members during the past month. Discuss and plan what you can do during the upcoming month to develop a stronger relationship with them.
-
-
 Review the ideas listed in the “Ideas for Helping Members” box. Identify some ideas you have not yet tried. Using your daily planner, make plans and try some of the ideas during the next week.
 
-
-162
-9 Finding People
-================
-
-
-Media and Church Headquarters Referrals
-=======================================
-
-
+## Media and Church Headquarters Referrals (Page 177)
 Referrals are another resource in finding those being prepared for the restored gospel. In addition to member referrals, the Church actively reaches out in many ways to God’s children. The Church creates interest through efforts such as media advertising, visitors’ centers, historic sites, welfare and humanitarian aid, and the Internet (www.mormon.org, www.lds.org, www.familysearch.org). Referrals received from media and Church headquarters represent people who have agreed to have Church representatives visit to deliver an item (such as the Holy Bible or Book of Mormon) and be taught more about the Church. These teaching opportunities should be viewed by missionaries as a sacred responsibility.
-
-
 Before you visit a referral, make sure you are familiar with the item that has been requested. Plan a short lesson to transition from the item to teaching the message of the Restoration. In some cases referrals lead you to others whom God is preparing. If the people you contact are not interested, ask them if they know someone who might have interest. Also, talk with other members of the household and their neighbors. Ask each one who else might be interested in your message. Perhaps you have been led to this person because someone else in the home or neighborhood is ready for the gospel.
-
-
 When working with referrals, remember to:
+- Contact them within 24 hours.
+- If feasible, call ahead of time to arrange an appointment to visit. If they are not home, try different times of the day.
+- Deliver the requested item, and remind them that they requested your visit. Gather all in the household to listen.
+- Teach the message of the Restoration.
+- Extend invitations that will build their faith in Christ.
+- Ask for referrals.
+- Arrange for a return visit.
+- Plan to work in that neighborhood after your appointment ends.
+- If the person is not home, talk to the neighbors.
 
-
-• Contact them within 24 hours.
-
-
-• If feasible, call ahead of time to arrange an appointment to visit. If they are not home, try different times of the day.
-
-
-• Deliver the requested item, and remind them that they requested your visit. Gather all in the household to listen.
-
-
-• Teach the message of the Restoration.
-
-
-• Extend invitations that will build their faith in Christ.
-
-
-* Ask for referrals.
-
-
-• Arrange for a return visit.
-
-
-• Plan to work in that neighborhood after your appointment ends.
-
-
-• If the person is not home, talk to the neighbors.
-
-
-Activity: Companion Study
-=========================
-
-
+#### Activity: Companion Study (Page 177)
 Locate all the referrals received in your area within the last month. Identify any people who have not been contacted, and visit them. Decide which of those who have previously been contacted should be visited again.
 
-
-Notes
-
-
-Family History
-==============
-
-
+## Family History (Page 177)
 Family history or genealogy provides another way you can find people to teach. Family history is now one of the most widespread hobbies in the world. The Spirit of Elijah is influencing millions of people throughout the world to search for their ancestors. Many desire a stronger connection with their extended family. This can lead to a desire to find a connection and identity with God’s family.
-
-
-163
-9 Finding People
-================
-
-
-164
-Notes
-
-
 Determine what types of family history resources are available in your area. For example, you might invite people to the local family history center or introduce them to members who can help them do an initial search of their ancestral lines. You do not need to know very much about family history to offer this service if you have the help of Church members. In most areas of the world, there are members who can help others search their family roots. Involve members so that potential investigators will meet people who can friendship them. Explain that use of family history centers is a free service.
 
 
-“I hope to see us dissolve the artificial boundary line we so often place between missionary work and temple and genealogical work, because it is the same great redemptive work!”
+*“I hope to see us dissolve the artificial boundary line we so often place between missionary work and temple and genealogical work, because it is the same great redemptive work!” – PRESIDENT SPENCER W. KIMBALL “THE THINGS OF ETERNITY—STAND WE IN JEOPARDY?” ENSIGN, JAN. 1977, 3*
 
-
-– PRESIDENT SPENCER W. KIMBALL “THE THINGS OF ETERNITY—STAND WE IN JEOPARDY?” ENSIGN, JAN. 1977, 3
-When you are tracting, you might give people a
-
-
-family history pass-along card with the local family history center telephone number on it, offering a free initial search of family roots. Follow up within the next day or two at the homes where you left the card. Share these cards with investigators who can give them to their friends and relatives. It is also a good idea to carry your personal four-generation chart as an example and to share it with those who might have the same last name as you.
-
-
+When you are tracting, you might give people a family history pass-along card with the local family history center telephone number on it, offering a free initial search of family roots. Follow up within the next day or two at the homes where you left the card. Share these cards with investigators who can give them to their friends and relatives. It is also a good idea to carry your personal four-generation chart as an example and to share it with those who might have the same last name as you.
 To get started, consider doing the following:
-
-
-• Visit a family history center if there is one in your area.
-
-
-• Discuss with the bishop and ward council your desire to offer help with family history to those you meet each day.
-
-
-• Discuss with ward leaders how to best coordinate this effort:
-
-
-– Is the bishop comfortable with your offering the help of ward members?
-
-
-– Which ward members serve in the family history center or are experienced in family history work?
-
-
-– How can you best ask these members for help?
-
-
-– Who can accompany you when you deliver pedigree charts or family group records?
-
-
+- Visit a family history center if there is one in your area.
+- Discuss with the bishop and ward council your desire to offer help with family history to those you meet each day.
+- Discuss with ward leaders how to best coordinate this effort:
+  - Is the bishop comfortable with your offering the help of ward members?
+  - Which ward members serve in the family history center or are experienced in family history work?
+  - How can you best ask these members for help?
+  - Who can accompany you when you deliver pedigree charts or family group records?
 Read the following account related by a senior missionary. Note the role family history played in the couple’s conversion.
-
-
-Mildred Schultz was a devout member of her church. It was no surprise that when the missionaries knocked on her door, she wasted no time in inviting them in so that she could teach them the “truth.” As the missionaries taught, she was touched by the truths of the restored gospel and was baptized. Throughout the teaching process, her husband, Frank, chose not to listen.
-
-
+*Mildred Schultz was a devout member of her church. It was no surprise that when the missionaries knocked on her door, she wasted no time in inviting them in so that she could teach them the “truth.” As the missionaries taught, she was touched by the truths of the restored gospel and was baptized. Throughout the teaching process, her husband, Frank, chose not to listen.
 This is where I come into the picture. The elders introduced us to Sister Schultz. We helped her begin her family tree and then invited her to meet us at the family history center. The day came for our meeting, and Frank asked if he might come along so that he could search for his ancestors as well. Of course, she was thrilled at the prospect, and they headed off to the center.
-
-
-and Mildred the library and introduced them to Sister Wright. Sister Wright was the family history specialist, and she offered to help find information about Frank’s father. She found his name in a book and was also able to provide Frank with a map of Germany that showed the location of his father’s birth. He was so excited about these discoveries that when the elders came, he invited them to dinner to show them pictures and share his family history. The Spirit of Elijah had touched and softened his heart and had opened a door for the gospel to fill his life.
-
-
-9 Finding People
-================
-
-
+The elders had planned to meet us there later during the day. Before they arrived, we showed Frank and Mildred the library and introduced them to Sister Wright. Sister Wright was the family history specialist, and she offered to help find information about Frank’s father. She found his name in a book and was also able to provide Frank with a map of Germany that showed the location of his father’s birth. He was so excited about these discoveries that when the elders came, he invited them to dinner to show them pictures and share his family history. The Spirit of Elijah had touched and softened his heart and had opened a door for the gospel to fill his life.
 That evening, Mildred pondered what she might say to help Frank become more interested in the gospel. A question came into her mind. “Frank,” she started, “do you want to be with me forever, even after this life is over? Do you want to have an eternal family?” He quickly said, “Oh, Mildred, of course I do. How can I do it?” This question is what she had been praying for. “Listen to what the missionaries have to say,” she responded. He agreed. As the elders taught, the warmth of the message of the Restoration melted away his doubts and fears. He readily accepted the truths the missionaries shared. He accepted the invitation to be baptized. Frank and Mildred have been strong and active in the Church ever since.
+Frank and Mildred worked hard to complete the work so that the saving ordinances could be performed for their family. It was an exciting day when they were baptized in behalf of their family members. In the process of getting the temple work done, Brother Schultz had a dream about his father. He saw his father at the ranch that served as his childhood home. His father was standing beside his porch rocker, dressed in white and holding his arms out to his son. Frank awoke from the dream crying. He knew that his father had accepted the work they had done.*
 
+Family history is a powerful resource to use in finding those whom the Lord is preparing to receive the restored gospel. Pray to be aware of opportunities to use family history in your finding efforts. People typically have spiritual feelings as they talk about families. People also feel the Spirit as they are taught about the doctrine concerning why we do family history work. In addition, convert retention is enhanced as new members are able to search their family roots and perform sacred ordinances in behalf of their ancestors.
 
-Frank and Mildred worked hard to complete the work so that the saving ordinances could be performed for their family. It was an exciting day when they were baptized in behalf of their family members. In the process of getting the temple work done, Brother Schultz had a dream about his father. He saw his father at the ranch that served as his childhood home. His father was standing beside his porch rocker, dressed in white and holding his arms out to his son. Frank awoke from the dream crying. He knew that his father had accepted the work they had done.
+#### Activity: Companion Study (Page 179)
+- What influenced Frank to decide to have the missionaries teach him?
+- How can you better link family history work to God’s plan for families?
+- How are you using family history as a finding tool? In what ways can you offer family history information to the people you meet each day? Make plans to begin using family history as a more prominent tool in your finding efforts.
 
-
-Activity: Companion Study
-=========================
-
-
-• What influenced Frank to decide to have the missionaries teach him?
-
-
-• How can you better link family history work to God’s plan for families?
-
-
-• How are you using family history as a finding tool? In what ways can you offer family history information to the people you meet each day? Make plans to begin using family history as a more prominent tool in your finding efforts.
-
-
-Notes
-
-
-to receive the restored gospel. Pray to be aware of opportunities to use family history in your finding efforts. People typically have spiritual feelings as they talk about families. People also feel the Spirit as they are taught about the doctrine concerning why we do family history work. In addition, convert retention is enhanced as new members are able to search their family roots and perform sacred ordinances in behalf of their ancestors.
-
-
-AR
-==
-
-
-Scripture Study
-===============
-
-
+#### Scripture Study (Page 179)
 What has the Lord restored to the earth through Elijah?
+- D&C 110:14–16, D&C 128:16–18, D&C 138:32–34, Malachi 4:5–6
 
-
-D&C 110:14–16 D&C 128:16–18
-D&C 138:32–34
-
-
-Malachi 4:5–6
-
-
+#### Activity: Personal and Companion Study (Page 179)
 Arrange to visit a local family history center with a member who has experience with family history. As you tour the family history center, find out the types of services that are available. Find out other information, such as when the center is open, who serves in the center, and what to offer those you contact each day.
-
-
 Practice how you will offer family history help to those you meet. Make plans to offer family history in your finding efforts.
-
-
 Read and discuss “Family History Work and Genealogy” in True to the Faith to gain a stronger understanding of family history work. Write what you learn in your study journal.
 
-
-Activity: Personal and Companion Study
-======================================
-
-
-165
-9 Finding People
-================
-
-
-Notes
-
-
-Former Investigators
-====================
-
-
-![see page 180](#)
-finding people to teach. There are many reasons why people stop investigating the Church. Reasons include missionaries being transferred, investigators going on vacation, missionaries stopping visits even though investigators are still expecting visits, and investigators believing that the missionaries have nothing new to teach them. Many former investigators say they would meet with missionaries again.
-
-
+## Former Investigators (Page 180)
+Former investigators are a valuable source for finding people to teach. There are many reasons why people stop investigating the Church. Reasons include missionaries being transferred, investigators going on vacation, missionaries stopping visits even though investigators are still expecting visits, and investigators believing that the missionaries have nothing new to teach them. Many former investigators say they would meet with missionaries again.
 Review your area book often to identify former investigators. Prayerfully reflect on the information in the area book concerning how the investigators first came in contact with the Church, what they have been taught, how they have responded, and why they quit investigating the gospel. If members have been involved in teaching and fellowshipping the former investigators, ask the members what they remember about the experience. Based on this information, make plans to contact the investigators again.
-
-
 If someone you are teaching chooses to discontinue their investigation of the gospel, record information in the area book that will be helpful for the missionaries who will contact them in the future.
-
-
 As you read the following experience, consider the power of contacting former investigators.
-
-
-Much to my surprise, I was called to labor in the same mission where my older sister had served a year earlier. After a few months in the mission field, I was transferred to one of the areas where my sister had served. Upon learning of my transfer, my sister wrote and asked me to visit a family that she and her companion had taught. She expressed the love and closeness she had with the Norman family and how disappointed she was when they discontinued investigating the Church.
-
-
+*Much to my surprise, I was called to labor in the same mission where my older sister had served a year earlier. After a few months in the mission field, I was transferred to one of the areas where my sister had served. Upon learning of my transfer, my sister wrote and asked me to visit a family that she and her companion had taught. She expressed the love and closeness she had with the Norman family and how disappointed she was when they discontinued investigating the Church.
 My companion and I located the Normans and were warmly received by them. They accepted our invitation to again hear the restored gospel. I’m not sure what the difference was this time, but they were fully ready to accept our message. The entire family was baptized and confirmed.
-
-
 After this experience, I wondered about other former investigators my sister had worked with. I thought, “If it worked for the Normans, maybe it will work for other people she taught as well.” I decided to write my sister about the idea of contacting other people she had taught. She went through her journal and sent me the names of other former investigators in the area.
+My companion and I spent the next week contacting these people. To our delight, almost half of them accepted an invitation to hear the restored gospel again. Several of this group were baptized and confirmed. While meeting with these former investigators, we also asked them for referrals of their friends and acquaintances that would be interested in our message. As a result, we found additional people to teach. This was the busiest time of my mission.*
 
+#### Activity: Companion Study (Page 180)
+- Identify all the former investigators in your area book.
+- Make plans to contact as many as possible within the next 24 hours.
 
-My companion and I spent the next week contacting these people. To our delight, almost half of them accepted an invitation to hear the restored gospel again. Several of this group were baptized and confirmed. While meeting with these former investigators, we also asked them for referrals of their friends and acquaintances that would be interested in our message. As a result, we found additional people to teach. This was the busiest time of my mission.
-
-
-Activity: Companion Study
-=========================
-
-
-• Identify all the former investigators in your area book.
-
-
-• Make plans to contact as many as possible within the next 24 hours.
-
-
-. y p o c t o n o D . n o s r a P l e D 1 0 0 2 ©
-
-
-166
-9 Finding People
-================
-
-
-Finding through Your Own Efforts
-================================
-
-
+## Finding through Your Own Efforts (Page 181)
 Seek to strengthen your faith that God is preparing His children to receive the message of the Restoration. As you do all you can under the guidance of the Holy Ghost to find people to teach, the Lord will place such people in your path.
-
-
 You need to do all you can to be placed in the path of those who are being prepared. Missionaries have found that the following ideas have helped them find people to teach through their own efforts. As you review the list, make plans to try some of the ideas that are new to you. This list also serves as a starting point for you in thinking of other honorable ways to find people to teach.
+- Work with the bishop and the ward council to identify and contact people who have recently had a baby, moved to the area, or experienced a death in the family.
+- Look for opportunities to offer simple service.
+- Teach members—including active and less- active members, recent converts, and part- member families—the message of the Restoration. Ask them to introduce you to people you can teach.
+- Arrange to hold member firesides to which they can bring their friends or in which you can teach the gospel and ask for referrals.
+- Offer to teach people how to hold family home evening.
+- Offer to take those you meet on a tour of the local meetinghouse.
+- Offer to arrange a meeting with the bishop.
+- Invite people to visit www.mormon.org.
+- Organize a scripture study class.
+- Teach English as a second language.
+- Invite people of the appropriate age to attend seminary or institute.
+- Go from home to home or talk to people on the streets.
+- Use pass-along cards, DVDs, videos, and brochures.
+- Seek referrals from current investigators, former investigators, less-active members, prospective elders, and everyone you meet.
+- Coordinate closely with the Church’s local public affairs representatives for opportunities to get articles published in a local newspaper about your missionary service.
+- Invite people to Church meetings, activities, and open houses.
+- Invite people to baptismal services. These provide an excellent introduction to the Church and afford good opportunities for investigators to feel the influence of the Spirit.
 
-
-• Work with the bishop and the ward council to identify and contact people who have recently had a baby, moved to the area, or experienced a death in the family.
-
-
-• Look for opportunities to offer simple service.
-
-
-• Teach members—including active and less- active members, recent converts, and part- member families—the message of the Restoration. Ask them to introduce you to people you can teach.
-
-
-• Arrange to hold member firesides to which they can bring their friends or in which you can teach the gospel and ask for referrals.
-
-
-![see page 181](#)
-• Offer to teach people how to hold family home evening.
-
-
-• Offer to take those you meet on a tour of the local meetinghouse.
-
-
-• Offer to arrange a meeting with the bishop.
-
-
-• Invite people to visit www.mormon.org.
-
-
-• Organize a scripture study class.
-
-
-• Teach English as a second language.
-
-
-• Invite people of the appropriate age to attend seminary or institute.
-
-
-• Go from home to home or talk to people on the streets.
-
-
-• Use pass-along cards, DVDs, videos, and brochures.
-
-
-• Seek referrals from current investigators, former investigators, less-active members, prospective elders, and everyone you meet.
-
-
-• Coordinate closely with the Church’s local public affairs representatives for opportunities to get articles published in a local newspaper about your missionary service.
-
-
-• Invite people to Church meetings, activities, and open houses.
-
-
-• Invite people to baptismal services. These provide an excellent introduction to the Church and afford good opportunities for investigators to feel the influence of the Spirit.
-
-
-Notes
-
-
-167
-9 Finding People
-================
-
-
-Notes
-
-
-Go About Doing Good
-===================
-
-
+## Go About Doing Good (Page 182)
 Your faith to find people to teach is demonstrated through your actions. During His mortal ministry, the Savior “took upon him the form of a servant” (Philippians 2:7). He went about “doing good” (Acts 10:38) and “preaching the gospel” (Matthew 4:23). As you follow this example, you will find those who will receive you.
-
-
 Through service, you and those who are prepared for the restored gospel come together in a powerful, inspiring way. Your good works will help people recognize you as a servant of God and will lead to opportunities to teach the restored gospel.
-
-
-Many missionaries’ experience with service before their missions involved planned “service projects,” such as helping someone move, serving at a Church farm, or cleaning a yard. As a missionary, you will offer such planned service each week (see the Missionary Handbook for additional information). The type of service described in this
-
-
-![see page 182](#)
-section focuses on unplanned opportunities. This type of service involves listening to the Spirit to recognize opportunities for small, simple acts of kindness that you can offer to God’s children. Pray and be aware of opportunities throughout each day to do good. As you seek to do good, you will be led to people who are being prepared for the restored gospel.
-
-
+Many missionaries’ experience with service before their missions involved planned “service projects,” such as helping someone move, serving at a Church farm, or cleaning a yard. As a missionary, you will offer such planned service each week (see the Missionary Handbook for additional information). The type of service described in this section focuses on unplanned opportunities. This type of service involves listening to the Spirit to recognize opportunities for small, simple acts of kindness that you can offer to God’s children. Pray and be aware of opportunities throughout each day to do good. As you seek to do good, you will be led to people who are being prepared for the restored gospel.
 As you read the following account, note how the missionaries “did good” and preached the gospel.
 
+*“Do you want to be happy? Forget yourself and get lost in this great cause. Lend your efforts to helping people. . . . Stand higher, lift those with feeble knees, hold up the arms of those that hang down. Live the gospel of Jesus Christ.” – PRESIDENT GORDON B. HINCKLEY TEACHINGS OF GORDON B. HINCKLEY, 597*
 
-Pablo came regularly to our weekly English class. He was a retired gentleman who was learning English to help keep his mind off his concern for his ailing wife. One week he quit coming. No one seemed to know why. About a month later, he came to class again. He looked different. He had lost weight, and he looked depressed. He didn’t participate in class as he had before, and he left class before we could talk with him.
-
-
-“Do you want to be
-
-
-happy? Forget yourself and
-==========================
-
-
-get lost in this great cause.
-
-
-Lend your efforts to helping
-
-
+*Pablo came regularly to our weekly English class. He was a retired gentleman who was learning English to help keep his mind off his concern for his ailing wife. One week he quit coming. No one seemed to know why. About a month later, he came to class again. He looked different. He had lost weight, and he looked depressed. He didn’t participate in class as he had before, and he left class before we could talk with him.
 During the following week, my companion and I prayed that Pablo would come back to class so we could talk to him. Our prayers were answered as he came to the next class. As we talked with him after class, he shared that his wife had died. He told us a little bit about the experience, and we expressed our sympathy. We told him that we wanted to help him understand how he could be with his wife again. He raised his head, looked in my eyes, and with tears of anger and sadness said, “If you really want to help me, you would come over to my house and help me get my life back in order. Isn’t that what missionaries do? I need help getting my house and affairs in order.”
-
-
-people. . . . Stand higher,
-lift those with feeble knees,
-hold up the arms of those
-
-
-that hang down. Live the
-
-
-gospel of Jesus Christ.”
-========================
-
-
-– PRESIDENT GORDON B. HINCKLEY TEACHINGS OF GORDON B. HINCKLEY, 597
-===================================================================
-
-
-We were surprised and humbled by Pablo’s comments. We offered our help for anything he needed. I think that was the point he started trusting our intentions. He told us to be over at his house the next day to help him prune his trees. We went to his house at the appointed time and began working at his side. In the months he took care of his wife, he had neglected chores around his yard and home. There was plenty of work for the three of us to do. This became a weekly service experience at his home. We
-
-
-168
-9 Finding People
-================
-
-
-pruned trees, pulled weeds, and picked fruit. We didn’t start teaching—whenever we tried to start, he quickly ended our conversations. He was most comfortable as we spoke about his life and family. Mostly, we just listened.
-
-
+We were surprised and humbled by Pablo’s comments. We offered our help for anything he needed. I think that was the point he started trusting our intentions. He told us to be over at his house the next day to help him prune his trees. We went to his house at the appointed time and began working at his side. In the months he took care of his wife, he had neglected chores around his yard and home. There was plenty of work for the three of us to do. This became a weekly service experience at his home. We pruned trees, pulled weeds, and picked fruit. We didn’t start teaching—whenever we tried to start, he quickly ended our conversations. He was most comfortable as we spoke about his life and family. Mostly, we just listened.
 After about a month and a half, Pablo surprised us by asking, “Will I really see my wife again?” We joyously responded that he would. We testified of eternal families and did our best to answer his questions.
-
-
 We taught Pablo the plan of salvation. He was moved by the doctrine. Before we left he had a list of questions he wanted answered, such as, “Will my wife have a body when I see her again?” and “Will we be free from illness and pain?” We answered his questions and set up another appointment to discuss the principles of the restored gospel of Jesus Christ.
-
-
-Shortly thereafter, Pablo’s countenance changed. He smiled more often and seemed more at peace. He actually had “hope for a better world” (Ether 12:4). Our service helped him trust the things we taught.
-
-
-Activity: Personal or Companion Study
-=====================================
-
-
-• In what ways did the missionaries in this account “do good”?
-
-
-• What role did service play in Pablo’s decision to be taught the gospel?
-
-
-• Do you look for opportunities to do good throughout each day? Can you improve in this area?
-
-
-Write in your study journal or discuss with your companion how you can do more good throughout the day to find more people to teach.
-
-
-Notes
-
+Shortly thereafter, Pablo’s countenance changed. He smiled more often and seemed more at peace. He actually had “hope for a better world” (Ether 12:4). Our service helped him trust the things we taught.*
 
 Believe that people who are being prepared to receive the message of the Restoration will be placed in your path. God will also place you where your good acts and words will prepare people to receive missionaries and Church members. In all your finding efforts, pray and look for opportunities to serve, help, and lift others. As you are serving, talk with everyone you meet. Have the faith that you can share the restored gospel.
-
-
 In every way you serve, you should do so because you love your brothers and sisters and therefore hope, pray, and earnestly desire to teach them the restored gospel.
 
-
-Guidelines
-==========
-
-
+#### Guidelines (Page 183)
 Remember the following guidelines as you seek to do good:
-=========================================================
+- Stay with your companion.
+- Preserve the sacred nature of your call.
+- Keep the missionary rules, and do not donate or use your money.
+- See your Missionary Handbook for guidelines concerning weekly community service.
 
+#### Activity: Personal or Companion Study (Page 183)
+- In what ways did the missionaries in this account “do good”?
+- What role did service play in Pablo’s decision to be taught the gospel?
+- Do you look for opportunities to do good throughout each day? Can you improve in this area?
+Write in your study journal or discuss with your companion how you can do more good throughout the day to find more people to teach.
 
-• Stay with your companion.
+#### Scripture Study (Page 184)
+- What was the role of service in the Savior’s life?
+  - 3 Nephi 17:7, 21; Matthew 8:1–4, Matthew 9:1–8, Mark 1:21–28, John 4:46–54
+- What was the role of service in Ammon’s and Aaron’s missions?
+  - Alma 17:19–25, Alma 18:8–10, Alma 22:3
+- What does the Lord ask you to do?
+  - 3 Nephi 27:21
 
-
-• Preserve the sacred nature of your call.
-
-
-• Keep the missionary rules, and do not donate or use your money.
-
-
-![see page 183](#)
-• See your Missionary Handbook for guidelines concerning weekly community service.
-
-
-169
-9 Finding People
-================
-
-
-Notes
-
-
-* 
-
-
-Scripture Study
-===============
-
-
-What was the role of service in the Savior’s life?
-==================================================
-
-
-3 Nephi 17:7, 21 Matthew 8:1–4
-Matthew 9:1–8 Mark 1:21–28
-John 4:46–54
-
-
-What was the role of service in Ammon’s and Aaron’s missions?
-
-
-Alma 17:19–25
-
-
-Alma 18:8–10
-
-
-Alma 22:3
-
-
-What does the Lord ask you to do?
-
-
-3 Nephi 27:21
-
-
-%
-No Effort Is Wasted
-===================
-
-
-Your consistent efforts in serving and teaching as many people as you can is one way God prepares His children to eventually receive His servants. He often reaches out to His children through you. Even when people do not accept the opportunity to learn the gospel, your service and words are evidence of God’s love for them and may plant seeds that future missionaries and members of the Church will harvest.
-
-
+## No Effort Is Wasted (Page 184)
+When people choose not to investigate the restored gospel, your work is not wasted. Your consistent efforts in serving and teaching as many people as you can is one way God prepares His children to eventually receive His servants. He often reaches out to His children through you. Even when people do not accept the opportunity to learn the gospel, your service and words are evidence of God’s love for them and may plant seeds that future missionaries and members of the Church will harvest.
 When people do not accept the gospel, do not be discouraged. You have raised a warning voice. You have given them a clear choice. Disciples of Christ feel sorrow when people choose not to repent, but they maintain a vision of who they are and what they are doing. They continue to diligently move forward.
 
+#### Remember This (Page 184)
+- Build up the Church by finding “them that will receive you” (D&C 42:8).
+- Seek for and follow the Spirit when finding.
+- People in your area are being prepared to receive the restored gospel.
+- Church members—including those who are active, less active, prospective elders, and recent converts—are your best resources for finding people to teach, baptize, and confirm.
+- Develop a strong relationship with the bishop and members.
+- Teach when you find, and find when you teach.
+- Be aware of unplanned finding opportunities.
+- Pray for opportunities to do good and to preach the message of the Restoration of the gospel of Jesus Christ.
+- There are many ways to find people to teach. Avoid focusing on just one or two approaches.
 
-Remember This
-=============
-
-
-• Build up the Church by finding “them that will receive you” (D&C 42:8).
-
-
-• Seek for and follow the Spirit when finding.
-
-
-• People in your area are being prepared to receive the restored gospel.
-
-
-• Church members—including those who are active, less active, prospective elders, and recent converts—are your best resources for finding people to teach, baptize, and confirm.
-
-
-• Develop a strong relationship with the bishop and members.
-
-
-• Teach when you find, and find when you teach.
-
-
-• Be aware of unplanned finding opportunities.
-
-
-• Pray for opportunities to do good and to preach the message of the Restoration of the gospel of Jesus Christ.
-
-
-• There are many ways to find people to teach. Avoid focusing on just one or two approaches.
-
-
-/
-170
-Ideas for Study and Application
-===============================
-
-
-Notes
-
-
-Personal Study
-==============
-
-
-• Read the following letter from a missionary to her parents: “I taught a wonderful lady on the bus. We were coming back from district meeting, and it was the only empty seat so I sat down and started to look at my mail. Of course, the first one to be read was yours, with the baby pictures of Evan. I noticed that the eyes next to me were also looking at the pictures, and I looked over to meet eyes with an older woman. She gave me a half smile and looked out the window. She then closed her eyes like she was going to sleep. I prayed, ‘Heavenly Father, I want to talk to her. Please help me.’ A minute later she opened her eyes and sat up straight, and I quickly said, ‘Don’t you think he is cute?’ I showed her the pictures of baby Evan and started talking about families with her. I asked her about her kids, and she got teary-eyed and told me a story about how her daughter hates her and wants nothing to do with her. She cried and I cried with her. I told her about the plan of salvation and how Heavenly Father knows her and knows what she is going through. I cried and told her that I know that her daughter loves her because I am a daughter of a mother that loves me, and I love her. I explained that sometimes people make bad decisions and that her daughter has agency. She told me, smiling, ‘I bet your mother really misses you, and she will not let you go when she sees you again.’ She thanked me for talking with her and gave me her address so that we can share the gospel with her. As she was getting off the bus, she said, ‘I got on the wrong bus, but I didn’t get off. No one sat by me until you came . . . and look what happened.’ God’s plan is perfect!”
-
-
+## Ideas for Study and Application (Page 185)
+### Personal Study (Page 185)
+Read the following letter from a missionary to her parents: *“I taught a wonderful lady on the bus. We were coming back from district meeting, and it was the only empty seat so I sat down and started to look at my mail. Of course, the first one to be read was yours, with the baby pictures of Evan. I noticed that the eyes next to me were also looking at the pictures, and I looked over to meet eyes with an older woman. She gave me a half smile and looked out the window. She then closed her eyes like she was going to sleep. I prayed, ‘Heavenly Father, I want to talk to her. Please help me.’ A minute later she opened her eyes and sat up straight, and I quickly said, ‘Don’t you think he is cute?’ I showed her the pictures of baby Evan and started talking about families with her. I asked her about her kids, and she got teary-eyed and told me a story about how her daughter hates her and wants nothing to do with her. She cried and I cried with her. I told her about the plan of salvation and how Heavenly Father knows her and knows what she is going through. I cried and told her that I know that her daughter loves her because I am a daughter of a mother that loves me, and I love her. I explained that sometimes people make bad decisions and that her daughter has agency. She told me, smiling, ‘I bet your mother really misses you, and she will not let you go when she sees you again.’ She thanked me for talking with her and gave me her address so that we can share the gospel with her. As she was getting off the bus, she said, ‘I got on the wrong bus, but I didn’t get off. No one sat by me until you came . . . and look what happened.’ God’s plan is perfect!”*
 What principles from this chapter do you see in this account? Review the chapter and make a list in your study journal. Which of these principles can you try to apply today?
+- Read John 15:12–13; 21:15–17; 1 Thessalonians 2; and Mosiah 18:8–10. How well are you fulfilling your responsibility to love and serve others? How can you improve? Write your response in your study journal.
+- How will people know that you are a servant of the Lord? As you ponder this question, study Moroni 7:3–5; Matthew 7:20; John 13:34–35. Record your thoughts in your study journal.
+- Read 3 Nephi 18:31–32; Alma 8:16; Alma 24:7–8; and Alma 32:41. Consider what these verses teach about working with former investigators. Record what you learn in your study journal and teach it to your companion.
 
-
-• Read John 15:12–13; 21:15–17; 1 Thessalonians 2; and Mosiah 18:8–10. How well are you fulfilling your responsibility to love and serve others? How can you improve? Write your response in your study journal.
-
-
-• How will people know that you are a servant of the Lord? As you ponder this question, study Moroni 7:3–5; Matthew 7:20; John 13:34–35. Record your thoughts in your study journal.
-
-
-• Read 3 Nephi 18:31–32; Alma 8:16; Alma 24:7–8; and Alma 32:41. Consider what these verses teach about working with former investigators. Record what you learn in your study journal and teach it to your companion.
-
-
-Companion Study
-===============
-
-
-• Using your daily planner, make plans to meet with recent converts. Ask them to share how they were prepared for the gospel. Ask questions like: When did you first come in contact with the Church? What finally convinced you to meet with missionaries? Write what you learn in your study journal.
-
-
-• Review each of the following topics. Using the lessons, prepare a simple finding approach. Practice teaching in a finding setting and quickly relating each topic to the Restoration.
-
-
-– Feeling a need for more direction and purpose in life.
-
-
-– Wanting to draw nearer to God.
-
-
-– Needing help with important decisions.
-
-
-• Read pages 66–68 of Our Search for Happiness and pages 59–64 of True to the Faith to better understand the doctrinal foundation of family history work. Prepare a talk on family history work, and share it with your companion.
-
-
-9 Finding People
-================
-
-
-171
-9 Finding People
-================
-
-
-172
-Notes
-
-
-• Imagine that you and your companion are transferred into a new area. You find the area book in good condition, but you have no investigators. What would you do to add people to your teaching pool as rapidly as possible? Make plans to implement some of these ideas today.
-
-
-• The following idea has been successful for many missionaries and members. Read and study this idea with your companion.
-
-
-– Help members make a list of friends, relatives, and acquaintances with whom they could share the gospel. Review this list with the members, and help them prayerfully select someone they would like to prepare to hear the gospel.
-
-
-– Help them set a day by which they will (a) work to have the person or family prepared to be taught in their home or (b) do some other fellowshipping activity to prepare them. Setting a date gives members a goal and helps them exercise faith.
-
-
-– Help them plan what they will do between now and the date they have set.
-
-
-– Follow up with them regularly to support and encourage them. Invite them to share their successes and concerns.
-
-
+### Companion Study (Page 185)
+- Using your daily planner, make plans to meet with recent converts. Ask them to share how they were prepared for the gospel. Ask questions like: When did you first come in contact with the Church? What finally convinced you to meet with missionaries? Write what you learn in your study journal.
+- Review each of the following topics. Using the lessons, prepare a simple finding approach. Practice teaching in a finding setting and quickly relating each topic to the Restoration.
+  - Feeling a need for more direction and purpose in life.
+  - Wanting to draw nearer to God.
+  - Needing help with important decisions.
+- Read pages 66–68 of Our Search for Happiness and pages 59–64 of True to the Faith to better understand the doctrinal foundation of family history work. Prepare a talk on family history work, and share it with your companion.
+- Imagine that you and your companion are transferred into a new area. You find the area book in good condition, but you have no investigators. What would you do to add people to your teaching pool as rapidly as possible? Make plans to implement some of these ideas today.
+- The following idea has been successful for many missionaries and members. Read and study this idea with your companion.
+  - Help members make a list of friends, relatives, and acquaintances with whom they could share the gospel. Review this list with the members, and help them prayerfully select someone they would like to prepare to hear the gospel.
+  - Help them set a day by which they will (a) work to have the person or family prepared to be taught in their home or (b) do some other fellowshipping activity to prepare them. Setting a date gives members a goal and helps them exercise faith.
+  - Help them plan what they will do between now and the date they have set.
+  - Follow up with them regularly to support and encourage them. Invite them to share their successes and concerns.
 Discuss how you can apply this idea in the area in which you are serving.
 
+### District Meetings and Zone Conferences (Page 186)
+- Read and discuss the “Finding through Your Own Efforts” section.
+  - Discuss how these ideas have helped missionaries find people to teach.
+  - On a chalkboard, list other ideas for finding people to teach. Invite the missionaries to demonstrate their ideas.
+  - Invite the missionaries to set personal goals for improving their finding efforts.
+- Create a list of finding situations.
+  - Assign each missionary one of the situations. Allow each missionary 5 minutes to prepare how he or she would teach the message of the Restoration. Refer them to “The Message of the Restoration of the Gospel of Jesus Christ” lesson if needed.
+  - Emphasize the importance of keeping the length of the message appropriate to the setting. For example, missionaries might spend more time teaching in a member’s home than they would teaching someone in the store.
+  - Allow as many missionaries as time permits to teach the message of the Restoration in their assigned situation.
+- Teach the principles found in the “Teach When You Find, Find When You Teach” section.
+  - Assign each missionary to prepare a one-minute message he or she could share in a finding setting. These messages should be based on the doctrine found in the missionary lessons.
+  - Invite the missionaries to practice sharing their one-minute message with each other. You may want to set up a variety of finding settings, such as teaching in a member’s home, teaching on a doorstep, teaching on a sidewalk, or contacting a referral. Have the missionaries practice teaching in each of these settings.
 
-District Meetings and Zone Conferences
-======================================
-
-
-• Read and discuss the “Finding through Your Own Efforts” section.
-
-
-– Discuss how these ideas have helped missionaries find people to teach.
-
-
-– On a chalkboard, list other ideas for finding people to teach. Invite the missionaries to demonstrate their ideas.
-
-
-– Invite the missionaries to set personal goals for improving their finding efforts.
-
-
-• Create a list of finding situations.
-
-
-– Assign each missionary one of the situations. Allow each missionary 5 minutes to prepare how he or she would teach the message of the Restoration. Refer them to “The Message of the Restoration of the Gospel of Jesus Christ” lesson if needed.
+### Mission President (Page 187)
+- Set an example of member-missionary work in your family. Share your experiences with the missionaries and members.
+- Counsel with priesthood leaders as to the best way for missionaries to find people to teach in your mission.
+- Organize missionary firesides at which you can speak to the investigators in your mission. Coordinate with local priesthood leaders to make the fireside available to members who can bring their friends. As part of these firesides, have recent converts bear testimony and tell their conversion stories before you speak. Focus your remarks on the message of the Restoration.
+- Share your four-generation chart with missionaries, and explain how you use it in your finding efforts.
+- Occasionally go with the missionaries to help them find people to teach.
 
 
-– Emphasize the importance of keeping the length of the message appropriate to the setting. For example, missionaries might spend more time teaching in a member’s home than they would teaching someone in the store.
-
-
-– Allow as many missionaries as time permits to teach the message of the Restoration in their assigned situation.
-
-
-• Teach the principles found in the “Teach When You Find, Find When You Teach” section.
-
-
-– Assign each missionary to prepare a one-minute message he or she could share in a finding setting. These messages should be based on the doctrine found in the missionary lessons.
-
-
-– Invite the missionaries to practice sharing their one-minute message with each other. You may want to set up a variety of finding settings, such as teaching in a member’s home, teaching on a doorstep, teaching on a sidewalk, or contacting a referral. Have the missionaries practice teaching in each of these settings.
-
-
-9 Finding People
-================
-
-
-
-
-|  | Notes |
-| --- | --- |
-| Mission President |  |
-| . Set an example of member-missionary work in your family. Share your experiences with the missionaries and members. |  |
-| Counsel with priesthood leaders as to the best way for missionaries to find people to teach in your mission. | |
-| Organize missionary firesides at which you can speak to the investigators in your mission. Coordinate with local priesthood leaders to make the fireside available to members who can bring their friends. As part of these firesides, have recent converts bear testimony and tell their conversion stories before you speak. Focus your remarks on the message of the Restoration. |  |
-| Share your four-generation chart with missionaries, and explain how you use it in your finding efforts. |  |
-| Occasionally go with the missionaries to help them find people to teach. | |
-
+> Beginning 
 How Can I Improve My Teaching Skills?
 =====================================
 
