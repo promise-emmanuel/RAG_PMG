@@ -3675,1643 +3675,535 @@ Discuss how you can apply this idea in the area in which you are serving.
 - Occasionally go with the missionaries to help them find people to teach.
 
 
-> Beginning 
-How Can I Improve My Teaching Skills?
-=====================================
+> Beginning of chapter 10 of 13 chapters in the preach my gospel manual
+# How Can I Improve My Teaching Skills? (Page 189)
+
+#### Consider This (Page 189)
+- How should I teach from the scriptures?
+- Why should I ask questions when I teach?
+- What types of questions should I ask?
+- How can I listen better to those I teach and to the Spirit?
+- How can I help people resolve their concerns?
+- How can I help others overcome bad habits and addictions?
 
 
-Consider This
-=============
-
-
-• How should I teach from the scriptures?
-
-
-• Why should I ask questions when I teach?
-
-
-• What types of questions should I ask?
-
-
-• How can I listen better to those I teach and to the Spirit?
-
-
-• How can I help people resolve their concerns?
-
-
-• How can I help others overcome bad habits and addictions?
-
-
-Notes
-
-
-Y ou are called to teach the restored gospel to as many people as will receive you. Teaching is central to everything you do. You develop Christlike attributes, study the missionary lessons, improve your ability to speak in your mission language, and rely on the Spirit in order to teach with convincing power. The Lord stated this very simply as a commandment with a promise:
-
-
+You are called to teach the restored gospel to as many people as will receive you. Teaching is central to everything you do. You develop Christlike attributes, study the missionary lessons, improve your ability to speak in your mission language, and rely on the Spirit in order to teach with convincing power. The Lord stated this very simply as a commandment with a promise:
 “Seek not to declare my word, but first seek to obtain my word, and then shall your tongue be loosed; then, if you desire, you shall have my Spirit and my word, yea, the power of God unto the convincing of men” (D&C 11:21).
-
-
 “Neither take ye thought beforehand what ye shall say; but treasure up in your minds continually the words of life, and it shall be given you in the very hour that portion that shall be meted unto every man” (D&C 84:85).
+The First Presidency and Quorum of the Twelve Apostles have stated: “Our purpose is to teach the message of the restored gospel in such a way as to allow the Spirit to direct both the missionaries and those being taught. It is essential to learn the [missionary lessons] but these should not be taught by rote presentation. The missionary should feel free to use his own words as prompted by the Spirit. He should not give a memorized recitation, but speak from the heart in his own terms. He may depart from the order of the lessons, giving that which he is inspired to do, according to the interest and needs of the investigator. Speaking out of his own conviction and in his own words he should bear testimony of the truth of his teachings” (“Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002).
+Learn to rely on the Spirit to give you what you should say and do. By studying, developing, and using the teaching skills in this chapter, you will become a more capable instrument in the hands of the Lord. The Spirit will draw upon the knowledge and skills you have developed to help you teach more powerfully. The quality and power of your teaching will help others understand and feel the importance the restored gospel has for them. Their understanding will be influenced by your personal worthiness. Their understanding will also be influenced by how well you focus your attention on them, by how well you explain the gospel, use the scriptures, share your testimony, ask questions, and invite them to make and keep commitments.
 
-
-teach the message of the restored gospel in such a way as to allow the Spirit to direct both the missionaries and those being taught. It is essential to learn the [missionary lessons] but these should not be taught by rote presentation. The missionary should feel free to use his own words as prompted by the Spirit. He should not give a memorized recitation, but speak from the heart in his own terms. He may depart from the order of the lessons, giving that which he is inspired to do, according to the interest and needs of the investigator. Speaking
-
-
-175
-10 Teaching Skills
-==================
-
-
-Notes
-
-
-out of his own conviction and in his own words he should bear testimony of the truth of his teachings” (“Statement on Missionary Work,” First Presidency letter, 11 Dec. 2002).
-
-
-developing, and using the teaching skills in this chapter, you will become a more capable instrument in the hands of the Lord. The Spirit will draw upon the knowledge and skills you have developed to help you teach more powerfully. The quality and power of your teaching will help others understand and feel the importance the restored gospel has for them. Their understanding will be influenced by your personal worthiness. Their understanding will also be influenced by how well you focus your attention on them, by how well you explain the gospel, use the scriptures, share your testimony, ask questions, and invite them to make and keep commitments.
-
-
-Follow the Spirit
-=================
-
-
+#### Follow the Spirit (Page 190)
 “The Spirit is the most important single element in this work. With the Spirit magnifying your call, you can do miracles for the Lord in the mission field. Without the Spirit, you will never succeed regardless of your talent and ability” (Ezra Taft Benson, seminar for new mission presidents, 25 June 1986).
 
-
-Invite the Spirit
-=================
-
-
+#### Invite the Spirit (Page 190)
 The following suggestions will help you invite the Spirit as you teach:
+- Pray.
+- Use the scriptures.
+- Bear testimony.
+- Share experiences.
+- Express love for the Lord and for others.
 
 
-– Pray. – Use the scriptures. – Bear testimony.
-===============================================
-
-
-– Share experiences. – Express love for the Lord and for others.
-================================================================
-
-
-How to Begin Teaching
-=====================
-
-
+## How to Begin Teaching (Page 190)
 The first few moments with investigators are very important. Investigators must learn to trust you. Begin your first visit in a warm, respectful, genuine manner. Ask a few simple questions to help you understand their religious background and their expectations regarding your visits. For example, ask, “What role has religion played in your life?” Do not, however, ask personal questions that would make them uncomfortable.
-
-
 Before you begin, ask all who are present to join with you in the lesson. Encourage them to turn off the television and remove other distractions so that the Spirit of the Lord will not be hindered.
-
-
 Explain that you would like to begin and end each lesson in prayer. Suggest that you will offer the opening prayer. Pray simply but fervently that the Lord will bless the people you are teaching in every aspect of their lives, and especially that they can feel the truth of what you will teach.
-
-
 Demonstrate sincere interest and love for the investigators and faith in the converting power of the gospel (see Moroni 7:43–48). As guided by the Spirit, you may express thoughts such as the following to your investigators:
-
-
-• Because God is our Heavenly Father, we are all brothers and sisters. We would like to refer to you as brothers and sisters.
-
-
-• Each person we teach has personal challenges and concerns. No matter what your needs or concerns might be, the Savior and His teachings—the gospel—will help you.
-
-
-• Our message will enable you to improve the quality of your lives. It will help you deal with the problems and challenges that we all face in life.
-
-
-/
-176
-10 Teaching Skills
-==================
-
-
-• Our message, which is centered in Jesus Christ, is of great value and importance.
-
-
-• We all make mistakes in life, and these mistakes create feelings of guilt and shame. These feelings cannot be relieved without repentance and forgiveness. They can be fully healed through the Atonement of Christ.
-
-
-• Our message cannot be learned all at once. Understanding will come over time through prayer, study, experience, and keeping God’s commandments.
-
-
-• We have weaknesses, as everyone does. We may not speak the language very well or be able to answer every question you have. But we have been called by a prophet of God to share what we know. We know that our message is true.
-
-
-• We will be guides so that you can learn the truth of our message for yourselves. It is your choice to accept and act on the message. Therefore, you should feel free to ask questions.
-
-
-• As you sincerely seek to understand our message, you may face challenges, but God will help you.
-
-
-• As you accept our message, you will learn how to make covenants, or promises, with God. You will learn how to make changes to bring your lives in closer harmony with His teachings. You will want to follow the teachings of Jesus Christ and be baptized by proper authority (see John 3:5).
+- Because God is our Heavenly Father, we are all brothers and sisters. We would like to refer to you as brothers and sisters.
+- Each person we teach has personal challenges and concerns. No matter what your needs or concerns might be, the Savior and His teachings—the gospel—will help you.
+- Our message will enable you to improve the quality of your lives. It will help you deal with the problems and challenges that we all face in life.
+- Our message, which is centered in Jesus Christ, is of great value and importance.
+- We all make mistakes in life, and these mistakes create feelings of guilt and shame. These feelings cannot be relieved without repentance and forgiveness. They can be fully healed through the Atonement of Christ.
+- Our message cannot be learned all at once. Understanding will come over time through prayer, study, experience, and keeping God’s commandments.
+- We have weaknesses, as everyone does. We may not speak the language very well or be able to answer every question you have. But we have been called by a prophet of God to share what we know. We know that our message is true.
+- We will be guides so that you can learn the truth of our message for yourselves. It is your choice to accept and act on the message. Therefore, you should feel free to ask questions.
+- As you sincerely seek to understand our message, you may face challenges, but God will help you.
+- As you accept our message, you will learn how to make covenants, or promises, with God. You will learn how to make changes to bring your lives in closer harmony with His teachings. You will want to follow the teachings of Jesus Christ and be baptized by proper authority (see John 3:5).
 
 
 Before teaching the doctrines in a lesson, consider giving a simple overview of what you are going to teach. Help people see that it will have personal relevance for them. Many of the investigators you teach have been prepared by the Lord (see Alma 16:16–17). As you share spiritual experiences together in the first meeting, they will recognize you as servants of the Lord.
 
-
-Activity: Companion Study
-=========================
-
-
+#### Activity: Companion Study (Page 191)
 With your companion, practice different ways to begin a lesson using several of these suggestions.
 
-
-Notes
-
-
-Adjust Your Teaching to Meet Needs
-==================================
-
-
-unique. Even though you will not understand all of their interests, achievements, needs, and concerns, you should seek to be sensitive to their circumstances. Regardless of needs or problems, all people are best helped as they accept and live the gospel. You will be able to adjust your teaching as you listen to the promptings of the Spirit.
-
-
-![see page 191](#)
-as you are inspired to adapt to the investigators’ interests and needs. You may use more than one meeting to teach the principles in one lesson, and occasionally you may teach the contents of two lessons in a single meeting. Heavenly Father knows His children, so rely on inspiration to make these decisions as you teach. Pray for the gift of discernment, and pay attention to thoughts that come to your mind or feelings you have about what to teach.
-
-
-177
-10 Teaching Skills
-==================
-
-
-Notes
-
-
+## Adjust Your Teaching to Meet Needs (Page 191)
+Each person or family you teach is unique. Even though you will not understand all of their interests, achievements, needs, and concerns, you should seek to be sensitive to their circumstances. Regardless of needs or problems, all people are best helped as they accept and live the gospel. You will be able to adjust your teaching as you listen to the promptings of the Spirit.
+You may alter the order of the lessons as you are inspired to adapt to the investigators’ interests and needs. You may use more than one meeting to teach the principles in one lesson, and occasionally you may teach the contents of two lessons in a single meeting. Heavenly Father knows His children, so rely on inspiration to make these decisions as you teach. Pray for the gift of discernment, and pay attention to thoughts that come to your mind or feelings you have about what to teach.
 You will need to adjust your teaching to give more attention to those commitments that are more difficult for an investigator to keep. For example, one person may easily accept the Book of Mormon as the word of God, while another may struggle to accept anything but the Bible. One person may have trouble giving up tobacco but will readily accept the law of tithing.
-
-
 As you plan when to teach certain doctrines, be sensitive about how much new information you share. Teach at a pace that is appropriate for the investigators. Some will progress faster or slower than others. Make sure that you ask enough questions and listen carefully to their answers so you have a firm understanding of how quickly and how well the investigator is learning and applying the doctrines you are presenting.
-
-
 Be sensitive to time. Most teaching appointments should not last beyond 45 minutes. A teaching visit can be completed, however, in 15 or 20 minutes if needed. If the person has only 15 minutes to meet with you, adjust your teaching to respect that limitation.
-
-
 Trust in the promise that the Spirit will give you “in the very hour, yea, in the very moment, what ye shall say” (D&C 100:6).
 
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 192)
 Imagine that you are walking down the street and notice an older man struggling to place some heavy bags into a garbage can. You and your companion help him, and as a result he asks who you are. After some discussion he invites you into his home and agrees to hear your message. During the initial conversation he tells you that:
-
-
-• His wife died a year ago, and he really misses her.
-
-
-• He wonders more now than ever before whether God exists.
-
-
+- His wife died a year ago, and he really misses her.
+- He tires easily because of a heart condition.
+- He wonders more now than ever before whether God exists.
 What might you teach him? How could you adjust your teaching to best meet his needs and concerns?
 
 
-What does it mean to give “that portion that shall be meted unto every man”?
 
+#### Scripture Study (page 192)
+- What does it mean to give “that portion that shall be meted unto every man”?
+  - Alma 29:8, D&C 84:85
+- What has the Lord promised faithful missionaries?
+  - D&C 68:2–4, D&C 100:5–8, Matthew 10:19–20
 
-• He tires easily because of a heart condition.
-
-
-Scripture Study
-===============
-
-
-Alma 29:8
-
-
-D&C 84:85
-
-
-What has the Lord promised faithful missionaries?
-
-
-D&C 68:2–4
-
-
-D&C 100:5–8
-
-
-Matthew 10:19–20
-
-
-o
-=
-
-
-Teach with Your Companion in Unity
-==================================
-
-
+## Teach with Your Companion in Unity (Page 192)
 The Lord has commanded, “Ye shall go forth in the power of my Spirit, preaching my gospel, two by two” (D&C 42:6). Your teaching will be more powerful and interesting if you and your companion work together in unity. As you plan and study each day, discuss how you will teach so that you can be united and teach with one voice.
-
-
-![see page 192](#)
-178
-10 Teaching Skills
-==================
-
-
 Your teaching will be more powerful if you and your companion alternate giving brief portions of the lesson. Avoid falling into a routine when presenting the message. Support your companion by offering a second witness to the truths of which he or she has testified. Follow your impressions when the Spirit prompts you to say something. As companions, be ready to yield to each other so that you do not hinder the guidance of the Spirit. When you speak, maintain eye contact with the investigator. When you are not speaking, pray for your companion and carefully observe the investigator’s responses.
 
+#### Scripture Study (Page 193)
+- How do companions support one another?
+  - Alma 12:1, D&C 42:6, D&C 52:9–10
 
-Scripture Study
-===============
-
-
-How do companions support one another?
-
-
-Alma 12:1
-
-
-D&C 42:6
-
-
-D&C 52:9–10
-
-
-Notes
-=====
-
-
-Invite Members to Help You Teach
-================================
-
-
+## Invite Members to Help You Teach (Page 193)
 Whenever possible invite members, preferably recent converts, to help you teach. The ideal situation is to include Church members who formerly belonged to the same church as the investigators. Show the members a copy of the lesson, and discuss what you want them to teach. Discuss how to work together. For example, have the members, as appropriate, share how they were able to learn, accept, and live a particular principle in the lesson. Have them explain how they made the decision to join the Church. When members join in teaching, they will have the opportunity to feel the joy of missionary work. It also provides friendship for the investigator. President Thomas S. Monson taught:
+*During the teaching process investigators can be benefitted by the strength of a member couple’s testimony who have in recent years made the step to baptism and membership. In the Canadian Mission in Ontario and Quebec, where our family lived when I presided over the mission, we found that the majority of the population belonged to perhaps three dominant faiths: Roman Catholic, Anglican, and the United Church of Canada. In every city of the mission we arranged for a newly baptized family from each of these faiths to be available to the missionaries who were in the process of teaching new investigators so that such a member couple could accompany the missionary team on perhaps the second or third visit. Can you appreciate, for example, when missionaries are working with those from the United Church of Canada, the strength of testimony of Brother and Sister William Stoneman, who had come from the United Church of Canada. Brother Stoneman, a printer, would say, “When I joined The Church of Jesus Christ of Latter-day Saints, I was the lead printer for the United Church. I lost my job. But I found a better job. Even more, I found the truth in its entirety. You too can make the adjustment. You too can make the same decision. In fact, let us pick you up on Sunday morning so that we can sit together in church. Then you can hear and feel for yourself. We’ll be right by your side.”
+Anthony and Edith Belfiglio became such a fellowshipping couple to those who had Roman Catholic roots. The result was the same. It can be done. And such converts stay converted. In addition, the couples chosen to fulfill this assignment put their own roots even deeper in the rich soil of the gospel. Both Brother Stoneman and Brother Belfiglio became ordained patriarchs. The combined efforts of members and missionaries in such specific cooperation yield an abundant gathering of precious souls (missionary training satellite broadcast, 25 Apr. 2003).*
 
-
-During the teaching process investigators can be benefitted by the strength of a member couple’s testimony who have in recent years made the step to baptism and membership. In the Canadian Mission in Ontario and Quebec, where our family lived when I presided over the mission, we found that the majority of the population belonged to perhaps three dominant faiths: Roman Catholic, Anglican, and the United Church of Canada. In every city of the mission we arranged for a newly baptized family from each of these faiths to be available to the missionaries who were in the process of teaching new investigators so that such a member couple could accompany the missionary team on perhaps the second or third visit. Can you appreciate, for example, when missionaries are working with those from the United Church of Canada, the strength of testimony of Brother and Sister William Stoneman, who had come from the United Church of Canada. Brother Stoneman, a printer, would say, “When I joined The Church of Jesus Christ of Latter-day Saints, I was the lead printer for the United Church. I lost my job. But I found a better job. Even more, I found the truth in its entirety. You too can make the adjustment. You too can make the same decision. In fact, let us pick you up on Sunday morning so that we can sit together in church. Then you can hear and feel for yourself. We’ll be right by your side.”
-
-
-Anthony and Edith Belfiglio became such a fellowshipping couple to those who had Roman Catholic roots. The result was the same. It can be done. And such converts stay converted. In addition, the couples chosen to fulfill this assignment put their own roots even deeper in the rich soil of the gospel. Both Brother Stoneman and Brother Belfiglio became ordained patriarchs. The combined efforts of members and missionaries in such specific cooperation yield an abundant gathering of precious souls (missionary training satellite broadcast, 25 Apr. 2003).
-
-
-179
-10 Teaching Skills
-==================
-
-
-Notes
-=====
-
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 194)
 Imagine that you have a first appointment to teach a lesson to a family in a member’s home. Decide how you would prepare each of the following members to help you teach:
+- A ward missionary who recently returned from a full-time mission
+- A priest
+- A recent convert
+- The bishop
 
-
-• A ward missionary who recently returned from a full-time mission
-
-
-* A priest
-
-
-* A recent convert
-
-
-* The bishop
-
-
-Use the Scriptures
-==================
-
-
+## Use the Scriptures (Page 194)
 The standard works of the Church are your basic sources for teaching the restored gospel of Jesus Christ. You may also use the words of living prophets. There are many reasons why it is vital to use the scriptures as the basis for your teaching. For example:
+- The Lord and His prophets have instructed us to do so (see D&C 42:12, 56–58; 71:1). A latter-day prophet counseled, “The words and the way they are used in the Book of Mormon by the Lord . . . should be used by us in teaching gospel principles” (Ezra Taft Benson, “The Book of Mormon and the Doctrine and Covenants,” Ensign, May 1987, 84).
+- The scriptures invite the Holy Ghost into your teaching. They teach God’s word with power (see Alma 31:5).
+- The scriptures answer the great questions of the soul (see 2 Nephi 32:3; Jacob 2:8).
+- The scriptures give authority and validity to your teaching, even in areas without a Christian background.
 
+Your ability to teach with power from the scriptures comes in large measure from the time you personally spend studying them. As you daily feast upon the word, your ability to teach from the scriptures will improve. In addition, your invitations to study and ponder the scriptures will be more powerful because you are doing the same thing in your life. Help people gain faith in the scriptures— particularly the Book of Mormon—as sources of revealed truth. When people come to believe the scriptures, you will be better able to help them understand doctrines correctly. The following suggestions may help.
+1. Introduce the scripture. Describe briefly the background and context of the passage you will use. Invite the investigator to look for particular points in the passage. When teaching people with a limited knowledge of the scriptures, you may need to begin by describing the contents of a passage, using language that they will understand. Below are examples of introducing a scripture:
+- “Here in Joseph Smith’s history we have Joseph’s own words telling what happened to him as he went into the grove to pray. He said, ‘I saw a pillar of light . . .’ ”
+- “In this passage the prophet Alma is teaching people who are poor to exercise their faith in the word of God. He compares the word of God to a seed that can be planted in our hearts. Will you begin reading verse . . .”
 
-• The Lord and His prophets have instructed us to do so (see D&C 42:12, 56–58; 71:1). A latter-day prophet counseled, “The words and the way they are used in the Book of Mormon by the Lord . . . should be used by us in teaching gospel principles” (Ezra Taft Benson, “The Book of Mormon and the Doctrine and Covenants,” Ensign, May 1987, 84).
-
-
-• The scriptures invite the Holy Ghost into your teaching. They teach God’s word with power (see Alma 31:5).
-
-
-• The scriptures answer the great questions of the soul (see 2 Nephi 32:3; Jacob 2:8).
-
-
-• The scriptures give authority and validity to your teaching, even in areas without a Christian background.
-
-
-the scriptures comes in large measure from the time you personally spend studying them. As you daily feast upon the word, your ability to teach from the scriptures will improve. In addition, your invitations to study and ponder the scriptures will be more powerful because you are doing the same thing in your life. Help people gain faith in the scriptures— particularly the Book of Mormon—as sources of revealed truth. When people come to believe the scriptures, you will be better able to help them understand doctrines correctly. The following suggestions may help.
-
-
-![see page 194](#)
-Introduce the scripture. Describe briefly the background and context of the passage you will use. Invite the investigator to look for particular points in the passage. When teaching people with a limited knowledge of the scriptures, you may need to begin by describing the contents of a passage, using language that they will understand. Below are examples of introducing a scripture:
-
-
-. y p o c t o n o D . n e s O l . K g e r G ©
-
-
-180
-10 Teaching Skills
-==================
-
-
-• “Here in Joseph Smith’s history we have Joseph’s own words telling what happened to him as he went into the grove to pray. He said, ‘I saw a pillar of light . . .’ ”
-
-
-• “In this passage the prophet Alma is teaching people who are poor to exercise their faith in the word of God. He compares the word of God to a seed that can be planted in our hearts. Will you begin reading verse . . .”
-
-
-Read the passage. Read the verses aloud or ask the investigator to read aloud. Be sensitive to those who struggle to read. If a passage is difficult for them to understand, read with them carefully and help them understand the more difficult points. Or give them a simpler passage to read. You might also define difficult words or phrases:
-
-
-• “Let him ask of God, that giveth to all men liberally, and upbraideth not [‘upbraideth not’ means that God won’t find blame or fault] and it shall be given him” (James 1:5).
-
-
+2. Read the passage. Read the verses aloud or ask the investigator to read aloud. Be sensitive to those who struggle to read. If a passage is difficult for them to understand, read with them carefully and help them understand the more difficult points. Or give them a simpler passage to read. You might also define difficult words or phrases:
+- “Let him ask of God, that giveth to all men liberally, and upbraideth not [‘upbraideth not’ means that God won’t find blame or fault] and it shall be given him” (James 1:5).
 Some scriptural passages are clear and need no explanation. For others you may take time to explain what has been read.
 
 
-Apply the scripture. “Liken” the scriptures to yourself and to investigators by showing how the principles are relevant today (see 1 Nephi 19:23). Show investigators how they can apply the principles in their lives. As they do, they will come to know that the doctrine is true. Bear your testimony of the principle, and promise them blessings. For example:
-
-
-• “The people of Alma, like you, had heavy burdens placed on them, almost more than they could bear. But as they exercised faith and ‘cried mightily to God,’ He strengthened them so they could endure the challenges and then delivered them from their trials. Just as He did with these people, I know God will help you in your trials as you . . .”
-
-
-• “Alma’s instruction to the people at the waters of Mormon applies to us today. John, are you willing to . . .”
-
+3. Apply the scripture. “Liken” the scriptures to yourself and to investigators by showing how the principles are relevant today (see 1 Nephi 19:23). Show investigators how they can apply the principles in their lives. As they do, they will come to know that the doctrine is true. Bear your testimony of the principle, and promise them blessings. For example:
+- “The people of Alma, like you, had heavy burdens placed on them, almost more than they could bear. But as they exercised faith and ‘cried mightily to God,’ He strengthened them so they could endure the challenges and then delivered them from their trials. Just as He did with these people, I know God will help you in your trials as you . . .”
+- “Alma’s instruction to the people at the waters of Mormon applies to us today. John, are you willing to . . .”
 
 The people you teach will differ widely in how they view sacred texts, how familiar they are with the Bible, how well they understand scriptural language, and how deeply they believe that the Bible contains God’s word. Help all investigators gain an appreciation for the scriptures. By effectively using the scriptures in your teaching, you can help investigators begin to study the scriptures on their own. After each visit, suggest specific chapters or verses for them to read. You might give them questions to consider as they read, which you can discuss in your next meeting. This will encourage them to study the scriptures daily in their homes and participate in Church meetings and classes where the scriptures are used.
 
 
-Cultural Views of Scriptures
-============================
-
-
+#### Cultural Views of Scriptures (Page 195)
 Most religions have sacred texts or books of scripture, but their use and perception of them may be different from how members of the Church view scriptures. For example, you may need to explain that your marking of scriptures is evidence of your desire to understand and apply the teachings of the scriptures and is not a sign of disrespect. Help those you teach see that the standard works are important because they contain the word of the Lord as written by prophets of God and that we accept them as truth.
 
-
-Notes
-
-
-181
-10 Teaching Skills
-==================
-
-
-Notes
-
-
-Activity: Companion Study
-=========================
-
-
+#### Activity: Companion Study (Page 196)
 Review one of the following passages. Determine how you would:
-
-
-• Introduce the passage.
-
-
-• Provide background and context.
-
-
-• Read the passage and explain its meaning.
-
-
-* Explain difficult words.
-
-
-• Help investigators apply it in their lives.
-
+- Introduce the passage.
+- Provide background and context.
+- Read the passage and explain its meaning.
+- Explain difficult words.
+- Help investigators apply it in their lives.
 
 Title Page of the Book of Mormon; 3 Nephi 11; Moroni 10:3–8; John 17:3; Romans 8:16–17; 1 Corinthians 15:29; James 1:5; 1 Peter 3:19–20; Amos 3:7
 
+#### Scripture Study (Page 196)
+- Why is it important to teach from the scriptures?
+  - 1 Nephi 19:23, 2 Nephi 4:15–16, D&C 20:7–12, 2 Timothy 3:15–17
 
-Scripture Study
-===============
-
-
-Why is it important to teach from the scriptures?
-
-
-1 Nephi 19:23 2 Nephi 4:15–16
-D&C 20:7–12
-
-
-2 Timothy 3:15–17
-
-
-Teach for Understanding
-=======================
-
-
-of the Restoration of the gospel when they understand the message. President James E. Faust said: “Study, ponder, and teach from the scriptures, especially the Book of Mormon and the New Testament. Know the truth so well that you can state it clearly. B. H. Roberts wrote, ‘To be known, the truth must be stated and the clearer and more complete the statement is, the better the opportunity will the Holy Spirit have for testifying to the souls of men that the work is true.’ [New Witnesses for God, 3 vols. (1909), 2:vii]. You cannot convert people beyond your own conversion” (“What I Want My Son to Know before He Leaves on His Mission,” Ensign, May 1996, 41).
-
-
-You are commanded to reason with and expound the scriptures when you teach (see D&C 68:1). Expound means to enlarge on and to explain clearly. Expounding the gospel means that you explain the meaning of doctrines and scriptural passages simply and clearly, relying on the Spirit to guide what you say. You use dignified but conversational language to help people understand the doctrinal principle. You ask questions to help them think about the principles and to see if they understand and accept what you have taught. At the end of each of the first three lessons in chapter 3 is a list of words that may be
-
-
-unfamiliar to those you teach. Part of teaching for understanding is to make sure you explain words, phrases, and ideas so that other people understand you better. You can improve your ability to explain the gospel by:
-
-
-• Understanding the words you use.
-
-
-• Defining words others may not understand. Many words that mean special things to members of the Church are defined simply in the Bible Dictionary and True to the Faith.
-
-
-182
-10 Teaching Skills
-==================
-
-
-• Asking people questions like, “Do you know what we mean when we say . . . ?” or “Can you restate what we just talked about in your own words?”
-
+## Teach for Understanding (Page 196)
+People are better able to believe the message of the Restoration of the gospel when they understand the message. President James E. Faust said: “Study, ponder, and teach from the scriptures, especially the Book of Mormon and the New Testament. Know the truth so well that you can state it clearly. B. H. Roberts wrote, ‘To be known, the truth must be stated and the clearer and more complete the statement is, the better the opportunity will the Holy Spirit have for testifying to the souls of men that the work is true.’ [New Witnesses for God, 3 vols. (1909), 2:vii]. You cannot convert people beyond your own conversion” (“What I Want My Son to Know before He Leaves on His Mission,” Ensign, May 1996, 41).
+You are commanded to reason with and expound the scriptures when you teach (see D&C 68:1). Expound means to enlarge on and to explain clearly. Expounding the gospel means that you explain the meaning of doctrines and scriptural passages simply and clearly, relying on the Spirit to guide what you say. You use dignified but conversational language to help people understand the doctrinal principle. You ask questions to help them think about the principles and to see if they understand and accept what you have taught. 
+At the end of each of the first three lessons in chapter 3 is a list of words that may be unfamiliar to those you teach. Part of teaching for understanding is to make sure you explain words, phrases, and ideas so that other people understand you better. You can improve your ability to explain the gospel by:
+- Understanding the words you use.
+- Defining words others may not understand. Many words that mean special things to members of the Church are defined simply in the Bible Dictionary and True to the Faith.
+- Asking people questions like, “Do you know what we mean when we say . . . ?” or “Can you restate what we just talked about in your own words?”
 
 As you study the doctrine in chapter 3, identify words you think may be difficult for an investigator to understand. As you teach the doctrine in chapter 3, make notes of words, phrases, and ideas that investigators have a hard time understanding. Define those words using the resources mentioned above. Test your definitions with investigators and recent converts.
 
 
-Scripture Study
+#### Scripture Study (Page 197)
+- Why should we expound or explain doctrines carefully?
+  - Mosiah 8:3, Mosiah 27:35, D&C 68:1-5 D&C 71:1 
+- How do we learn? Why is it important to unfold or gradually disclose information?
+  - 2 Nephi 28:30, Jacob 4:13, D&C 98:11-12, Mosiah 2:9
+- Why is plainness important?
+  - 2 Nephi 25:4, 7, 28; Alma 13:23, 2 Nephi 32:7, Nehemiah 8:8
+How does the Lord communicate with His children? 
+  - 2 Nephi 31:3, D&C 1:24
 
 
-Why should we expound or explain doctrines carefully?
-
-
-
-
-| Mosiah 8:3 Mosiah 27:35 | D&C 68:1-5 D&C 71:1 |
-| --- | --- |
-| How do we learn? Why is it important to unfold or gradually disclose information? | |
-| 2 Nephi 28:30 Jacob 4:13 | D&C 98:11-12 |
-| 2 Nephi 25:4, 7, 28 2 Nephi 32:7 | Nehemiah 8:8 |
-| How does the Lord communicate with His children? | |
-| 2 Nephi 31:3 |  |
-
-
-Notes
-
-
-Ask Questions
-=============
-
-
+## Ask Questions (Page 197)
 Jesus Christ often asked questions to help people ponder and apply principles. His questions prompted thought, soul searching, and commitment.
+Good questions will help you understand interests, concerns, or questions that others have. They can enhance your teaching, invite the Spirit, and help your investigators learn. Poor questions can intimidate, irritate, and offend investigators. They can also cause you to lose control of the teaching situation. Try to ask questions that:
 
+- Are simple and easy to understand.
+- Help people think about what you are teaching.
+- Help people apply what they learn.
+- Help you determine how well the investigator understands what you are teaching.
 
-Good questions will help you understand interests, concerns, or questions that others have. They can enhance your teaching, invite the Spirit, and help your investigators learn. Poor questions can intimidate,
-
-
-• Are simple and easy to understand.
-
-
-• Help people think about what you are teaching.
-
-
-• Help people apply what they learn.
-
-
-![see page 197](#)
-irritate, and offend investigators. They can also cause you to lose control of the teaching situation. Try to ask questions that:
-
-
-• Help you determine how well the investigator understands what you are teaching.
-
-
-As those you teach respond to these types of questions, they will feel that they can talk openly. Good questions can lead investigators to ask you questions when they don’t understand, when they have a concern, or when they want to know what to do. Good
-
-
-183
-10 Teaching Skills
-==================
-
-
-Notes
-=====
-
-
-questions can help those you teach share their feelings and by so doing discover a growing testimony. Examples of effective questions include:
-
-
-• What questions do you have about what we have taught?
-
-
-• Do you believe that Heavenly Father loves you? Why?
-
-
-• How do we sometimes make the same error as the people in this story?
-
+As those you teach respond to these types of questions, they will feel that they can talk openly. Good questions can lead investigators to ask you questions when they don’t understand, when they have a concern, or when they want to know what to do. Good questions can help those you teach share their feelings and by so doing discover a growing testimony. Examples of effective questions include:
+- What questions do you have about what we have taught?
+- Do you believe that Heavenly Father loves you? Why?
+- How do we sometimes make the same error as the people in this story?
 
 To help those you teach prepare to answer questions, you may want to say, “As I explain the importance of keeping the Sabbath day holy, ask yourself, ‘What does this commandment mean to me?’” Avoid asking questions that:
+- Include more than one idea.
+- Pertain to doctrines you have not yet taught.
+- Do not have a clear purpose.
+- Interrogate and pry unnecessarily.
 
 
-• Include more than one idea.
+Asking too many questions, especially in your first visit, gives the impression that you are conducting an “interrogation.” Do not ask investigators to give specific answers about unimportant or obvious details. This will turn a good teaching environment into a game of guessing. When you need a specific answer, it is best to ask a factual question or present the information in some other way. Avoid asking questions that might embarrass someone if they do not know the answers. Questions are most useful when asked after you have taught and testified about a key principle. Following are examples of less- effective questions:
 
-
-• Pertain to doctrines you have not yet taught.
-
-
-• Do not have a clear purpose.
-
-
-• Interrogate and pry unnecessarily.
-
-
-are conducting an “interrogation.” Do not ask investigators to give specific answers about unimportant or obvious details. This will turn a good teaching environment into a game of guessing. When you need a specific answer, it is best to ask a factual question or present the information in some other way. Avoid asking questions that might embarrass someone if they do not know the answers. Questions are most useful when asked after you have taught and testified about a key principle. Following are examples of less- effective questions:
-
-
-• Who was the first prophet? (Asked before teaching about dispensations.)
-
-
-• How will keeping our bodies pure help us have the Spirit and show that we are willing to follow a prophet of God? (More than one idea.)
-
-
-• Is it important to know about God’s commandments? (Yes-no answer and too obvious.)
-
-
-• How do you feel about the Book of Mormon? (Before they have read it.)
-
-
-• What is something we can do every day that will help us feel close to God? (Vague question looking for a specific answer: pray.)
-
-
-• Who was the next prophet after Noah? (Asking them to guess.)
-
+- Who was the first prophet? (Asked before teaching about dispensations.)
+- How will keeping our bodies pure help us have the Spirit and show that we are willing to follow a prophet of God? (More than one idea.)
+- Is it important to know about God’s commandments? (Yes-no answer and too obvious.)
+- How do you feel about the Book of Mormon? (Before they have read it.)
+- What is something we can do every day that will help us feel close to God? (Vague question looking for a specific answer: pray.)
+- Who was the next prophet after Noah? (Asking them to guess.)
 
 Learn to ask questions as prompted by the Spirit. The right type of question at the right time can greatly help those you teach to learn the gospel and feel the Spirit. Likewise, the wrong type of question or a question at the wrong time can interfere with their learning. Asking appropriate questions at the right time requires that you are in tune with the Spirit, that you listen to those you are teaching, and that you focus throughout the teaching experience. Effective teaching can be hard work and requires concentration and effort on the part of you and your companion.
 
 
-![see page 198](#)
-. y p o c t o n o D . t t e r r a B . T t r e b o R 5 8 9 1 ©
-
-
-184
-10 Teaching Skills
-==================
-
-
-Activity: Personal or Companion Study
-=====================================
-
-
+#### Activity: Personal or Companion Study (Page 199)
 What might happen to an investigator’s progress if he or she encountered the following situations and you never found out about them?
-
-
-• Co-workers who regularly make fun of spiritual things.
-
-
-• Family members who are strong members of another church.
-
-
-• Friends who believe that the Mormons are a non-Christian cult.
-
-
-• A spiritual experience in reading from the Book of Mormon.
-
-
+- Co-workers who regularly make fun of spiritual things.
+- Family members who are strong members of another church.
+- Friends who believe that the Mormons are a non-Christian cult.
+- A spiritual experience in reading from the Book of Mormon.
 Think of a question that you would ask to learn more about each of the situations above. Write your questions in your study journal. Discuss with your companion how you might improve the questions each of you wrote for this activity.
 
 
-Notes
-=====
-
-
-Listen
-======
-
-
+## Listen (Page 199)
 When you listen carefully to others, you understand them better. When they know that their thoughts and feelings are important to you, they are more likely to be receptive to your teachings, share personal experiences, and make commitments. As you listen, you will be able to more effectively adapt your teaching to their needs and interests.
-
-
 Especially listen for the whisperings of the Spirit. As others share their feelings with you, thoughts or ideas may enter your mind that are directed by the Spirit. You will also be able to understand what others are trying to express.
-
-
 While others talk to you, avoid the tendency to think about what you are going to say. Make sure you are really concentrating on the person speaking rather than planning your response. Elder Jeffrey R. Holland taught: “More important than speaking is listening. These people are not lifeless objects disguised as a baptismal statistic. They are children of God, our brothers and sisters, and they need what we have. Be genuine. Reach out sincerely. Ask these friends what matters most to them. What do they cherish, and what do they hold dear? And then listen. If the setting is right, you might ask what their fears are, what they yearn for, or what they feel is missing in their lives. I promise you that something in what they say will always highlight a truth of the gospel about which you can bear testimony and about which you can then offer more. . . . If we listen with love, we won’t need to wonder what to say. It will be given to us—by the Spirit and by our friends” (“Witnesses Unto Me,” Ensign, May 2001, 15; italics in original).
-
-
-People also communicate by the way they sit, their facial expressions, what they do with their hands, their tone of voice, and the movements of their eyes. Observe these unspoken messages; they can help you understand the feelings of those you teach. Also be aware of your own body language. Send a message of interest and enthusiasm by listening sincerely. Do not be afraid of silence. People often need time to think about and reply to questions
-
-
-or to express what they are feeling. You might pause after you have asked a question, after sharing a spiritual experience, or when people are having difficulty expressing themselves. Be sure to give people time to complete their thoughts before you respond, and do not interrupt while they are talking.
-
-
+People also communicate by the way they sit, their facial expressions, what they do with their hands, their tone of voice, and the movements of their eyes. Observe these unspoken messages; they can help you understand the feelings of those you teach. Also be aware of your own body language. Send a message of interest and enthusiasm by listening sincerely.
+Do not be afraid of silence. People often need time to think about and reply to questions or to express what they are feeling. You might pause after you have asked a question, after sharing a spiritual experience, or when people are having difficulty expressing themselves. Be sure to give people time to complete their thoughts before you respond, and do not interrupt while they are talking.
 When you feel that you understand what is being said, make comments that show you understand, such as “So what you are saying is understand, you are feeling that ask the person for clarification. . Is that right?” or “If I .” When you are not sure if you understand,
-
-
 Some people may tend to dominate the conversation and keep you from teaching the restored gospel. You will need to learn to tactfully take control of such situations.
-
-
-185
-10 Teaching Skills
-==================
-
-
-Notes
-
-
 For example, “We appreciate what you are sharing with us, but that is an issue we would like to discuss later. I will ask my companion to write it down so we will be sure not to forget to treat it on a later visit.” Remember, you will help people most by teaching them the gospel of Jesus Christ.
 
-
+#### Activity: Personal or Companion Study (Page 200)
 As you listen carefully, the Spirit will help you know what to say. Listening takes effort and concentration. One missionary shared the following true experience (the names have been changed):
 
-
-My companion and I were teaching the Sanchez family. It was hot and the children were making a lot of noise. I asked Sister Sanchez about her reading in the Book of Mormon. As she began to explain, I noticed that their son had grabbed my companion’s notebook and was running around the room waving it in the air. Although I was looking at Sister Sanchez, my mind was elsewhere. I thought to myself, “It’s so hot, and I wish their little boy would settle down. This just isn’t going to work.” As my mind wandered, I noticed that Sister Sanchez was struggling to talk. A subtle impression came into my mind to listen. I fought to tune out the heat and the noise. I carefully watched her face as she spoke. She looked down at the ground, then back up at my companion and me. Her husband was hopelessly trying to quiet the children. There was a pause, and then with trembling in her voice she said, “I did what you asked. I read those chapters you wanted me to, and I prayed.” Again she paused and looked down. She glanced at her children, then her eyes met mine. “I got an answer,” she said with a smile and with tear-filled eyes. “It’s true, I know it’s true.” The Spirit filled the room. With a heart full of gratitude that I had listened, I smiled and said, “Yes, it is.”
-
-
-Activity: Personal or Companion Study
-=====================================
-
+*My companion and I were teaching the Sanchez family. It was hot and the children were making a lot of noise. I asked Sister Sanchez about her reading in the Book of Mormon. As she began to explain, I noticed that their son had grabbed my companion’s notebook and was running around the room waving it in the air. Although I was looking at Sister Sanchez, my mind was elsewhere. I thought to myself, “It’s so hot, and I wish their little boy would settle down. This just isn’t going to work.” As my mind wandered, I noticed that Sister Sanchez was struggling to talk. A subtle impression came into my mind to listen. I fought to tune out the heat and the noise. I carefully watched her face as she spoke. She looked down at the ground, then back up at my companion and me. Her husband was hopelessly trying to quiet the children. There was a pause, and then with trembling in her voice she said, “I did what you asked. I read those chapters you wanted me to, and I prayed.” Again she paused and looked down. She glanced at her children, then her eyes met mine. “I got an answer,” she said with a smile and with tear-filled eyes. “It’s true, I know it’s true.” The Spirit filled the room. With a heart full of gratitude that I had listened, I smiled and said, “Yes, it is.”*
 
 After reviewing the story above, either write an answer in your study journal to the questions below or discuss them with your companion.
+- What might have happened if the missionary had been more concerned about his personal comfort or his companion’s notebook?
+- How was this investigator blessed because the missionary listened?
 
 
-• What might have happened if the missionary had been more concerned about his personal comfort or his companion’s notebook?
-
-
-• How was this investigator blessed because the missionary listened?
-
-
-Answer the questions below:
-
-
-A = Never true of me C = Usually true of me
-===========================================
-
-
-B = Sometimes true of me D = Always true of me
-==============================================
-
-
-• When I talk with others, I think of similar experiences that I can share instead of listening carefully.
-
-
-• When others tell me about their feelings, I try to put myself in their shoes to see how I would feel.
-
-
-• When I teach investigators, I am worried about what I am going to say or teach next.
-
-
-• I get frustrated when investigators want to talk a lot.
-
-
-• I struggle to follow or understand what others are trying to tell me.
-
-
-• My mind often wanders while my companion is teaching.
-
-
-• I get upset if someone is talking to me and others cut in or distract my attention.
-
-
-• I receive spiritual promptings to say or do something, but I ignore them.
-
-
-Determine what you can do to improve your ability to listen.
-
-
-Develop a Good Relationship with Investigators
-==============================================
-
+#### Develop a Good Relationship with Investigators (Page 200)
 
 To avoid embarrassment, some people will answer questions the way they think you want them to answer rather than share true feelings. Seek to develop a relationship that allows them to be comfortable sharing their true feelings with you.
 
 
-J
-=
-
-
-o
-=
-
-
-186
-10 Teaching Skills
-==================
-
-
-Help People Resolve Their Concerns
-==================================
-
-
+## Help People Resolve Their Concerns (Page 201)
 Some of those you teach will lack the faith to keep commitments, others will face opposition, and others will not always accept everything you share. They must make their own choices, but you will want to do all you can to answer their questions, help them resolve their concerns, and overcome opposition.
-
-
 Sometimes people’s concerns are like an iceberg. Only a small portion is visible above the surface. These concerns can be complex and difficult to resolve. For this reason you need to follow the Spirit and respond in a manner best suited to the situation. Pray for the gift of discernment and follow your impressions. Heavenly Father knows the hearts and experiences of all people (the complete iceberg) and will help you know what is best for each person.
-
-
-![see page 201](#)
-. y p o c t o n o D
-
-
 When you help others resolve their concerns, first seek to understand their concerns by asking questions and listening. Rely on the Spirit to help you know how to help them resolve their concerns. For example, you might use a scripture to address a concern about the need for baptism, or you might share your testimony of the Prophet Joseph Smith.
-
-
 Often concerns are more social than doctrinal. For example, investigators might fear opposition from family members if they join the Church. Or they might fear rejection from their friends at work. Whatever the concern may be, your investigators may have past experiences or other influences that are part of the concern that you do not understand. In many cases, members may be able to help you understand and help with their concerns.
-
-
 How you approach an investigator’s concern will depend on the nature of that concern. Determine whether the concern has come up because the person does not have a spiritual confirmation of the truth of the Restoration or whether the person does not want to commit to living a true principle. Understanding the source of the problem in this way helps you know whether to focus on testimony or commitment.
 
-
-Activity: Companion Study
-=========================
-
-
+#### Activity: Companion Study (Page 201)
 Choose one commitment invitation you extend when you teach the lessons. Then identify different concerns which might keep someone from accepting or keeping that commitment. Discuss and practice how you can best help people as they work to resolve their concerns.
 
-
-Notes
-=====
-
-
-Repentance and Addiction Recovery
-=================================
-
-
-Repentance is a spiritual process that involves humility, confession, restitution, and turning away from the sin. It is a permanent change of thoughts and actions. Ideally, repenting of a specific sin should be necessary only once. However, if the sin is repeated, repentance is available as a means of healing (see Mosiah 26:30; Moroni 6:8; D&C 1:31–32). Repentance may involve an emotional and physical process. People must stop ongoing,
-
-
-ingrained ways of inappropriate acting. Undesirable actions must be replaced with healthy and appropriate behaviors.
-
-
-187
-10 Teaching Skills
-==================
-
-
-Notes
-
-
+## Repentance and Addiction Recovery (Page 201)
+Repentance is a spiritual process that involves humility, confession, restitution, and turning away from the sin. It is a permanent change of thoughts and actions. Ideally, repenting of a specific sin should be necessary only once. However, if the sin is repeated, repentance is available as a means of healing (see Mosiah 26:30; Moroni 6:8; D&C 1:31–32). Repentance may involve an emotional and physical process. People must stop ongoing, ingrained ways of inappropriate acting. Undesirable actions must be replaced with healthy and appropriate behaviors.
 Thus, both repentance and recovery may take time. Sometimes converts, even with the best of intentions, give in to temptation as they progress toward greater self-discipline. In such cases new converts work with their priesthood leaders, not with the missionaries, as they seek to overcome temptation and to fully repent.
-
-
 Through baptism and confirmation people receive the gift of the Holy Ghost, which will strengthen their ability to overcome these challenges. But baptism and confirmation may not fully do away with the emotional and physical urges that go along with these behaviors. Even though a person may have some initial success, further emotional healing may be necessary to completely repent and recover.
 
+#### Activity: Personal or Companion Study (Page 202)
+- Think of an investigator, recent convert, or less-active member who is trying to overcome addiction.
+- Review “Faith in Jesus Christ” and “Repentance” from the “The Gospel of Jesus Christ” lesson in chapter 3.
+- What could you teach this person from this lesson and from this chapter that will help him or her overcome addiction?
+- Create a lesson plan to help this individual.
 
-Activity: Personal or Companion Study
-=====================================
-
-
-• Think of an investigator, recent convert, or less-active member who is trying to overcome addiction.
-
-
-• Review “Faith in Jesus Christ” and “Repentance” from the “The Gospel of Jesus Christ” lesson in chapter 3.
-
-
-• What could you teach this person from this lesson and from this chapter that will help him or her overcome addiction?
-
-
-• Create a lesson plan to help this individual.
-
-
-Helping Investigators and Recent Converts Understand Repentance and Addiction Recovery
-======================================================================================
-
-
+## Helping Investigators and Recent Converts Understand Repentance and Addiction Recovery (Page 202)
 You may be asked to answer questions and concerns about addiction. You will also want to help people find answers to difficult questions related to these problems. The following ideas may be helpful:
-
-
-• Share your testimony of the healing nature of the gospel, particularly the Atonement (see Alma 7:11–13).
-
-
-• Testify that only God can accom- plish the miracle of spiritual healing (see Psalm 147:3).
-
-
-• Explain that the gift of healing extends to both the body and the spirit.
-
+- Share your testimony of the healing nature of the gospel, particularly the Atonement (see Alma 7:11–13).
+- Testify that only God can accom- plish the miracle of spiritual healing (see Psalm 147:3).
+- Explain that the gift of healing extends to both the body and the spirit.
 
 Basic steps that help people in the emotional healing process include:
+- Identifying and acknowledging the problem. This requires careful and honest self- examination.
+- Acknowledging that the behavior is harmful. It affects others and requires change.
+- Being humble and feeling sorrow.
+- Seeking forgiveness from others who have been harmed, and learning to forgive one’s self.
+- Stopping addictive actions and beginning to do healthy things.
+- Remaining faithful—keeping baptismal covenants, providing service, praying for help from the Holy Ghost, and showing a desire to keep God’s commandments.
+- Understanding that the Lord will always love His children—even when they make a mistake and yield to old cravings. Repentance and the road to recovery are always available.
 
-
-![see page 202](#)
-• Identifying and acknowledging the problem. This requires careful and honest self- examination.
-
-
-• Acknowledging that the behavior is harmful. It affects others and requires change.
-
-
-• Being humble and feeling sorrow.
-
-
-• Seeking forgiveness from others who have been harmed, and learning to forgive one’s self.
-
-
-. y p o c t o n o D . y e w e D n o m S 0 0 0 2 © i
-
-
-• Stopping addictive actions and beginning to do healthy things.
-
-
-188
-10 Teaching Skills
-==================
-
-
-• Remaining faithful—keeping baptismal covenants, providing service, praying for help from the Holy Ghost, and showing a desire to keep God’s commandments.
-
-
-• Understanding that the Lord will always love His children—even when they make a mistake and yield to old cravings. Repentance and the road to recovery are always available.
-
-
-A Plan for Overcoming Addictive Behavior
-========================================
-
-
+## A Plan for Overcoming Addictive Behavior (Page 203)
 Investigators and new and less-active members may ask what they can do to overcome an addiction. They trust your ability to offer guidance and support. The following suggestions may be helpful:
+- Have them outline the times, places, and people that contribute to the behavior. Then discuss the list with a spouse, bishop, ward missionary, or other trusted friend. Talk about what they need to do to change or avoid the items on the list.
+- Have them write down what the behavior is causing them to miss now and, if not corrected, what it will cause them to miss in the future.
+- Have them write down different things they can do to avoid or discourage inappropriate behavior. This may include talking to one’s spouse, calling the bishop or a friend for support, exercising, and any other activity that helps them avoid temptation.
+- Encourage them to regularly pray, study the scriptures, listen to uplifting music, and read wholesome books.
+- Encourage them to seek a priesthood blessing.
+- Encourage them to continue to be active in the Church, which is there to help them overcome their problems and grow closer to the Lord.
+- Encourage them to attend an appropriate support group or obtain professional help. In some places, LDS Family Services is available.
+- Encourage them to never give up! The Lord will assist them, even if it takes some time.
 
-
-• Have them outline the times, places, and people that contribute to the behavior. Then discuss the list with a spouse, bishop, ward missionary, or other trusted friend. Talk about what they need to do to change or avoid the items on the list.
-
-
-• Have them write down what the behavior is causing them to miss now and, if not corrected, what it will cause them to miss in the future.
-
-
-• Have them write down different things they can do to avoid or discourage inappropriate behavior. This may include talking to one’s spouse, calling the bishop or a friend for support, exercising, and any other activity that helps them avoid temptation.
-
-
-• Encourage them to regularly pray, study the scriptures, listen to uplifting music, and read wholesome books.
-
-
-• Encourage them to seek a priesthood blessing.
-
-
-• Encourage them to continue to be active in the Church, which is there to help them overcome their problems and grow closer to the Lord.
-
-
-• Encourage them to attend an appropriate support group or obtain professional help. In some places, LDS Family Services is available.
-
-
-• Encourage them to never give up! The Lord will assist them, even if it takes some time.
-
-
-![see page 203](#)
 Active Latter-day Saints can best help new members remain active by being their friends. Members should reach out to investigators and new members with a warm, positive attitude. Investigators and new converts will respond favorably when greeted with a smile, when sincerely asked about how they are doing, when others sit by them during meetings, and when they are invited to a family dinner or family home evening.
-
-
-Since it is likely that some may return to an addiction, priesthood leaders and members should not be shocked or discouraged if they learn that an investigator or new member may be struggling with such problems. They should show confidence in the individual and not be judgmental if the person yields to an old craving. They should treat it as a temporary and understandable setback. Condemning the addicted investigator or new convert is never helpful and will likely lead to discouragement, failure, and inactivity. A new convert
-
-
-Notes
-
-
-189
-10 Teaching Skills
-==================
-
-
-Notes
-
-
-who suddenly stops attending Church may have given in to an old addiction and is feeling unworthy and discouraged. An immediate visit giving encouragement and support can help the person succeed. Members should show in word and action that they accept the converts (see 3 Nephi 18:32).
-
-
+Since it is likely that some may return to an addiction, priesthood leaders and members should not be shocked or discouraged if they learn that an investigator or new member may be struggling with such problems. They should show confidence in the individual and not be judgmental if the person yields to an old craving. They should treat it as a temporary and understandable setback. Condemning the addicted investigator or new convert is never helpful and will likely lead to discouragement, failure, and inactivity. A new convert who suddenly stops attending Church may have given in to an old addiction and is feeling unworthy and discouraged. An immediate visit giving encouragement and support can help the person succeed. Members should show in word and action that they accept the converts (see 3 Nephi 18:32).
 Remaining active in the Church and striving to live faithfully are the most important things any individual can do in overcoming addiction problems.
 
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 204)
 Think of some habit you have—something you do frequently, without thinking, such as cracking your knuckles, adjusting your glasses, eating too much, or sleeping too late. Now try to go one day without doing it once. When you succeed, try to go a whole week without doing it. Discuss your experience with your companion. Then try to imagine how much harder it is for an investigator to conquer an addiction such as tobacco or alcohol abuse.
 
-
-* 
-
-
-Leave Something Behind
-======================
-
-
+## Leave Something Behind (Page 204)
 At the conclusion of each teaching visit, provide the investigator with something to read and ponder in preparation for the next meeting. You might assign them chapters from the Book of Mormon. You might give them a brochure addressing what has been taught or what you are going to teach in your next visit, or it may be other literature or an audiovisual presentation. If they have access to the Internet, encourage them to go to www.mormon.org. They should always be given something to think about, to ponder, and to pray about. This can become an opening topic of discussion the next time you meet.
 
-
-Activity: Companion Study
-=========================
-
-
+#### Activity: Companion Study (Page 204)
 Review the items you have available to leave with investigators including brochures and audiovisual items. Are there other items you need to obtain so you can share them with your investigator? Make a list in your planner of the items you need to order.
-
-
 Consider each of the investigators you are scheduled to teach this week. What chapters in the Book of Mormon will be most helpful to them? What other items would benefit them? Record in the Notes/To Do List in your planner what you intend to provide each investigator and what you will do to follow up in your next visit.
 
 
-Teach the Restored Gospel to Those without a Christian Background
-=================================================================
-
-
+## Teach the Restored Gospel to Those without a Christian Background (Page 204)
 Some of the people whom you will teach may not believe in Heavenly Father and Jesus Christ or have a Christian tradition. Many of these people, however, will have beliefs, practices, and places which they hold sacred. As a servant of God, it is essential that you show proper respect for their religious beliefs and traditions. Do not do anything that would show disrespect for that which is important to them.
-
-
-be helpful to remember that in order to be converted, all of God’s children, regardless of background, must develop faith in Jesus Christ, repent, receive the ordinances of baptism and confirmation, and endure to the end by keeping the commandments and giving service. The principles that help others build faith in Jesus Christ are the same in all cultures.
-
-
-190
-10 Teaching Skills
-==================
-
-
+You may wonder how you should adjust your teaching approach to these people. It will be helpful to remember that in order to be converted, all of God’s children, regardless of background, must develop faith in Jesus Christ, repent, receive the ordinances of baptism and confirmation, and endure to the end by keeping the commandments and giving service. The principles that help others build faith in Jesus Christ are the same in all cultures.
 You can help people gain a correct understanding of God as our Heavenly Father and develop faith in Jesus Christ by helping them have personal spiritual experiences rather than simply telling them about the nature of God. For example, you will help people gain this understanding as they:
-
-
-• Gain a spiritual conviction that God the Father and His Son, Jesus Christ, appeared to the Prophet Joseph Smith.
-
-
-• Hear your sincere teaching and testimony of the gospel, including why you chose to follow Jesus Christ.
-
-
-• Frequently hear you and other members talk to Heavenly Father in a simple, heartfelt prayer.
-
-
-• Hear you bear powerful testimony.
-
-
-• Pray with you and on their own.
-
-
-• Come to learn how you feel about the scriptures as you read and discuss them.
-
-
-• Read God’s word from the scriptures daily (especially the Book of Mormon).
-
-
-• Attend church so they can see how we worship the Lord.
-
-
-• Meet members of the Church who can explain how they came to believe in Heavenly Father and Jesus Christ.
-
-
-• Keep the commandments.
-
+- Gain a spiritual conviction that God the Father and His Son, Jesus Christ, appeared to the Prophet Joseph Smith.
+- Hear your sincere teaching and testimony of the gospel, including why you chose to follow Jesus Christ.
+- Frequently hear you and other members talk to Heavenly Father in a simple, heartfelt prayer.
+- Hear you bear powerful testimony.
+- Pray with you and on their own.
+- Come to learn how you feel about the scriptures as you read and discuss them.
+- Read God’s word from the scriptures daily (especially the Book of Mormon).
+- Attend church so they can see how we worship the Lord.
+- Meet members of the Church who can explain how they came to believe in Heavenly Father and Jesus Christ.
+- Keep the commandments.
 
 These activities are beneficial for all people you teach, but they are essential when teaching those without a Christian background because these people are less likely to have had these experiences previously.
-
-
 Many converts from non-Christian backgrounds report that they did not understand much of what the missionaries were saying but that they felt the Spirit and wanted to do what the missionaries asked. You must do all you can to help investigators understand the doctrines of the gospel. Be patient and supportive, as it may take some time for people to learn to identify and express the feelings they have inside. You may need to adjust the pace and depth of your teaching to help them understand. As you prepare to teach those without a Christian background, the following suggestions may help:
+- Provide simple overviews and reviews for each lesson.
+- Ask them to tell you what they understand and what they have experienced.
+- Take the time to define essential words and principles. Those you teach may not be familiar with many of the words you will use as you teach.
+- Return to a previously taught lesson to teach the doctrine more clearly. This may be necessary any time in the teaching process.
 
-
-• Provide simple overviews and reviews for each lesson.
-
-
-• Ask them to tell you what they understand and what they have experienced.
-
-
-• Take the time to define essential words and principles. Those you teach may not be familiar with many of the words you will use as you teach.
-
-
-• Return to a previously taught lesson to teach the doctrine more clearly. This may be necessary any time in the teaching process.
-
-
-Notes
-
-
-191
-10 Teaching Skills
-==================
-
-
-Notes
-
-
-Scriptural Examples
-===================
-
-
+#### Scriptural Examples (Page 206)
 The scriptures contain examples of missionaries who have taught those who did not believe in God or who misunderstood His true nature. Study the scriptures below, and then explain to your companion or record in your study journal how these missionaries helped people gain a testimony that God exists.
+- Alma and Amulek (Alma 9–12; 15)
+- Ammon and Aaron (Alma 17–22)
+- Alma (Alma 30)
+- Alma and others (Alma 31–35)
+- Paul (Acts 17:16–34)
 
-
-• Alma and Amulek (Alma 9–12; 15)
-
-
-• Ammon and Aaron (Alma 17–22)
-
-
-• Alma (Alma 30)
-
-
-• Alma and others (Alma 31–35)
-
-
-• Paul (Acts 17:16–34)
-
-
-Activity: Companion Study
-=========================
-
-
+#### Activity: Companion Study (Page 206)
 When possible, identify a convert who was not part of a Christian tradition before meeting with the missionaries. Arrange to meet with him or her, and ask about his or her conversion experience. For example, you might ask what led the person to believe in God, the first time he or she prayed, the first time he or she felt an answer to prayer, the role of the scriptures in his or her conversion, and what it was like to attend Sunday services. Write what you learn in your study journal.
 
+#### Remember This (Page 206)
+- As people are taught the restored gospel and live it, their needs will be met.
+- Plan and study each day with your companion to be united and to teach with one voice.
+- Share your testimony frequently.
+- The scriptures, especially the Book of Mormon, are your basic sources for teaching.
+- Pray for the gift of discernment to know when to use the skills described in this chapter.
 
-Remember This
-=============
+## Ideas for Study and Application (Page 207)
+### Personal Study (Page 206)
 
+- Assume you are placed in the following situations. How might you use the principles and skills in this chapter to help these people progress? Plan how you would apply them in each situation.
+  - While walking through a park, you see a woman and a small boy sitting alone on a bench. The woman is crying.
+  - You arrive at the home of investigators who have been preparing for baptism, and they tell you that they no longer want to meet with you. 
+  - You are meeting for the seventh time with an investigator who has been taught by several missionaries over a two-year period. There have been few if any signs of progress. 
+  - You are beginning to teach a member family a gospel message, and they say, “We have already asked everyone we know to meet with the missionaries, and they have all said no.” 
+- Select one of the missionary lessons. Identify one or two scripture passages from each main principle. Practice teaching from those passages as outlined in the “Use the Scriptures” section of this chapter. 
+- Over the course of several weeks, review the Savior’s teachings in the Gospels (Matthew, Mark, Luke, John) and 3 Nephi. In your study journal, make a list of the questions He asked. Compare these questions with the questions you typically ask.
+Read the account of Ammon and King Lamoni in Aima 18 and the account of Aaron in Alma 22:4-18. As you read, identify and describe how Ammon and Aaron:
+  - Followed the Spirit and taught with love.
+  - Began to teach
+  - Adapted their teachings to meet needs.
+  - Bore testimony.
+  - Used the scriptures.
+  - Asked questions, listened, and resolved concerns. 
+  - Encouraged those they taught to make commitments.
 
-• As people are taught the restored gospel and live it, their needs will be met.
+- Ponder the following statements by President Harold B. Lee regarding teaching for understanding. Evaluate how clearly you teach the doctrines of the gospel. Record what you learn in your study journal. 
 
+“May you stay with the context of the scripture and reduce it to understandable terms” (The Teachings of Harold B. Lee, sel. Clyde J. Williams [1996], 444).
+“Now you as teachers are not being sent out to teach new doctrine. You're to teach the old doctrines, not so plain that they can just understand, but you must teach the doctrines of the Church so plainly that no one can misunderstand” (The Teachings of Harold B. Lee, 458). 
 
-• Plan and study each day with your companion to be united and to teach with one voice.
-
-
-• Share your testimony frequently.
-
-
-• The scriptures, especially the Book of Mormon, are your basic sources for teaching.
-
-
-• Pray for the gift of discernment to know when to use the skills described in this chapter.
-
-
-%
-192
-10 Teaching Skills
-
-
-
-
-| Personal Study | |
-| --- | --- |
-| » Assume you are placed in the following situations. How might you use the principles and skills in this chapter to help these people progress? Plan how you would apply them in each situation. | |
-| — While walking through a park, you see a woman and a small boy sitting alone on a bench. The woman is crying. | |
-| — You arrive at the home of investigators who have been preparing for baptism, and they tell you that they no longer want to meet with you. |  |
-| — You are meeting for the seventh time with an investigator who has been taught by several missionaries over a two-year period. There have been few if any signs of progress. |  |
-| — You are beginning to teach a member family a gospel message, and they say, “We have already asked everyone we know to meet with the missionaries, and they have all said no.” |  |
-| . Select one of the missionary lessons. Identify one or two scripture passages from each main principle. Practice teaching from those passages as outlined in the “Use the Scriptures” section of this chapter. |  |
-| . Over the course of several weeks, review the Savior’s teachings in the Gospels (Matthew, Mark, Luke, John) and 3 Nephi. In your study journal, make a list of the questions He asked. Compare these questions with the questions you typically ask. |  |
-| . Read the account of Ammon and King Lamoni in Aima 18 and the account of Aaron in Alma 22:4-18. As you read, identify and describe how Ammon and Aaron: |  |
-| — Adapted their teachings to meet needs. |  |
-| — Bore testimony. |  |
-| — Used the scriptures. | |
-| — Asked questions, listened, and resolved concerns. | |
-| — Encouraged those they taught to make commitments. | |
-| . Ponder the following statements by President Harold B. Lee regarding teaching for understanding. Evaluate how clearly you teach the doctrines of the gospel. Record what you learn in your study journal. | |
-| “May you stay with the context of the scripture and reduce it to understandable terms” (The Teachings of Harold B. Lee, sel. Clyde J. Williams [1996], 444). |  |
-| “Now you as teachers are not being sent out to teach new doctrine. You're to teach the old doctrines, not so plain that they can just understand, but you must teach the doctrines of the Church so plainly that no one can misunderstand” (The Teachings of Harold B. Lee, 458). |  |
-
-
-10 Teaching Skills
-==================
-
-
-194
-Notes
-
-
-Companion Study
-===============
-
-
-• Review your lesson plan from a recent lesson you have taught. Write one question for each of the major principles outlined in your plan. Then review your questions to see whether they are in harmony with what is taught in this chapter. Next, answer each question as though you were an investigator. Revise your questions as needed. Share your questions with your companion. Together, evaluate your questions.
-
-
+### Companion Study (Page 208)
+- Review your lesson plan from a recent lesson you have taught. Write one question for each of the major principles outlined in your plan. Then review your questions to see whether they are in harmony with what is taught in this chapter. Next, answer each question as though you were an investigator. Revise your questions as needed. Share your questions with your companion. Together, evaluate your questions.
 Consider the needs of an investigator you are teaching. Discuss how he or she might answer your questions. Also discuss how these questions may invite the Spirit and help the investigator learn the gospel.
 
+- Think of each of your new investigators. Discuss what you can do to help them become a progressing investigator. Write your ideas in your study journal and make plans in your daily planner.
 
-• Think of each of your new investigators. Discuss what you can do to help them become a progressing investigator. Write your ideas in your study journal and make plans in your daily planner.
+### District Meetings and Zone Conferences (Page 208)
+- Invite members or current investigators to your meeting. Explain to the group that you want missionaries to improve their ability to share their important message. Select a lesson and a skill. Have the missionaries teach the members or investigators the lesson you have selected for 20 minutes, focusing on the skill you have identified. Have them switch after 20 minutes. After the missionaries have had an opportunity to teach, bring the group together and have the members and investi- gators tell the missionaries what was most effective and one way they can improve.
 
+- Show video examples of missionaries teaching or contacting people. Select a skill and discuss as a group how well the missionaries in the video applied the principles for that skill.
+- Select a skill or an important aspect of a skill, and identify doctrine or scripture passages that support the skill. Teach the doctrinal foundation of the skill to the missionaries.
 
-District Meetings and Zone Conferences
-======================================
+### Mission President (Page 208)
+- Occasionally accompany missionaries as they teach. Plan with them how you can participate in the teaching.
+- Encourage priesthood leaders to accompany missionaries in their teaching visits and provide feedback.
+- Demonstrate the effective use of scriptures, questions, and listening when teaching missionaries in zone conferences and interviews.
 
 
-• Invite members or current investigators to your meeting. Explain to the group that you want missionaries to improve their ability to share their important message. Select a lesson and a skill. Have the missionaries teach the members or investigators the lesson you have selected for 20 minutes, focusing on the skill you have identified. Have them switch after 20 minutes. After the missionaries have had an opportunity to teach, bring the group together and have the members and investi- gators tell the missionaries what was most effective and one way they can improve.
+> Beginning of chapter 11 of 13 chapters in the preach my gospel manual
+# How Do I Help People Make and Keep Commitments? (Page 209)
 
+#### Consider This (Page 209)
+- Why should I focus on inviting people to make commitments?
+- How do commitments relate to conversion?
+- How can I bear humble testimony?
+- What blessings can I promise?
+- Why is it important for me to follow up when people make commitments?
 
-• Show video examples of missionaries teaching or contacting people. Select a skill and discuss as a group how well the missionaries in the video applied the principles for that skill.
-
-
-• Select a skill or an important aspect of a skill, and identify doctrine or scripture passages that support the skill. Teach the doctrinal foundation of the skill to the missionaries.
-
-
-Mission President
-=================
-
-
-• Occasionally accompany missionaries as they teach. Plan with them how you can participate in the teaching.
-
-
-• Encourage priesthood leaders to accompany missionaries in their teaching visits and provide feedback.
-
-
-• Demonstrate the effective use of scriptures, questions, and listening when teaching missionaries in zone conferences and interviews.
-
-
-![see page 209](#)
-o5
-==
-
-
-11 Keep Commitments
-===================
-
-
-e
-=
-
-
-* 
-
-
-—
-R
-=
-
-
-s
-=
-
-
-3
-* 
-
-
-* 
-
-
-.—-’1{’ = —
-How Do I Help People Make and Keep Commitments?
-===============================================
-
-
-Consider This
-=============
-
-
-• Why should I focus on inviting people to make commitments?
-
-
-• How do commitments relate to conversion?
-
-
-• How can I bear humble testimony?
-
-
-• What blessings can I promise?
-
-
-• Why is it important for me to follow up when people make commitments?
-
-
-o
-=
-
-
-.‘ “‘ ﬂ -
-Notes
-
-
-Extend Commitment Invitations
-=============================
-
-
-s a missionary you desire the salvation of souls (see Mosiah 28:3). You know that people A
-
-
-can come unto Christ and be saved only on conditions of repentance (see D&C 18:10–16). One way to fulfill your desires is to cry repentance (see Alma 5:49; D&C 15:6; 16:6) and boldly invite people to exercise faith unto repentance, to be baptized by water and the Spirit, and to endure faithfully to the end (see 3 Nephi 27:16–20; Mormon 7:10). Commitment is an essential part of repentance. It is the act of obligating oneself to a course of action and then diligently following through on that decision. When people are genuinely committed, they have real intent, meaning that they fully intend to do what they have committed to do. They make an unwavering and earnest decision to change. They become devoted to Christ and dedicate themselves to His gospel. Keeping their commitment is how they “truly manifest by their works that they have received of the Spirit of Christ unto the remission of their sins” (D&C 20:37). When you ask for commitments as part of your teaching, you are inviting the investigator to repent.
-
-
-. y p o c t o n o D . n o s r a P l e D 2 0 0 2 ©
-
-
-195
-11 Keep Commitments
-===================
-
-
-Notes
-
-
+## Extend Commitment Invitations (Page 209)
+As a missionary you desire the salvation of souls (see Mosiah 28:3). You know that people can come unto Christ and be saved only on conditions of repentance (see D&C 18:10–16). One way to fulfill your desires is to cry repentance (see Alma 5:49; D&C 15:6; 16:6) and boldly invite people to exercise faith unto repentance, to be baptized by water and the Spirit, and to endure faithfully to the end (see 3 Nephi 27:16–20; Mormon 7:10). Commitment is an essential part of repentance. It is the act of obligating oneself to a course of action and then diligently following through on that decision. When people are genuinely committed, they have real intent, meaning that they fully intend to do what they have committed to do. They make an unwavering and earnest decision to change. They become devoted to Christ and dedicate themselves to His gospel. Keeping their commitment is how they “truly manifest by their works that they have received of the Spirit of Christ unto the remission of their sins” (D&C 20:37). When you ask for commitments as part of your teaching, you are inviting the investigator to repent.
 One of the best ways to help people make and keep commitments is to extend a commitment invitation. Extending and following up on commitment invitations is vital because:
-
-
-![see page 210](#)
-• People become converted as they live the principles they learn (see John 7:17) and feel the Spirit confirm that what they are doing is pleasing to their Father in Heaven.
-
-
-• Repentance and change will help people conquer challenges, rid themselves of shame and guilt, and experience the peace and joy of God’s forgiveness.
-
-
-• Keeping commitments prepares people to make and keep sacred covenants.
-
+- People become converted as they live the principles they learn (see John 7:17) and feel the Spirit confirm that what they are doing is pleasing to their Father in Heaven.
+- Repentance and change will help people conquer challenges, rid themselves of shame and guilt, and experience the peace and joy of God’s forgiveness.
+- Keeping commitments prepares people to make and keep sacred covenants.
 
 You can show your love for the people and your faith in God’s promises by following up to help them repent and keep their commitments.
-
-
 The commitments required for baptism are listed in the first four lessons. The commitments related to spiritual progress after baptism and confirmation are listed in lesson 5. Be constantly aware of the need to invite people to do things that will strengthen their faith in Christ. Remember the following principles:
+- Every finding opportunity—with members, referrals, or personal contacting—should lead to an invitation to act, usually to learn more about the message of the Restoration.
+- Rarely, if ever, should you talk to people or teach them without extending an invitation to do something that will strengthen their faith in Christ.
+- Focus on one or more commitments when you teach. If you do not invite people to make these commitments, you are not asking them to repent and come to Christ.
+- As you prepare in companion study to teach a lesson, consider the needs and status of each investigator and include one or more commitments in your lesson plan.
+- During a lesson you may be inspired to extend commitment invitations other than those you planned. Always invite people to repent.
+- Be bold and confident as you invite people to make commitments (see Alma 38:12). Boldness shows your faith that obedience to the Lord’s commandments brings blessings.
+- People will not likely change unless they are invited to do so.
 
+#### Scripture Study (Page 210)
+- Why is it so vital to extend invitations?
+  - Alma 5:62, Moroni 7:13
 
-• Every finding opportunity—with members, referrals, or personal contacting—should lead to an invitation to act, usually to learn more about the message of the Restoration.
+- Why are commitments so important?
+  - 2 Nephi 31, Mosiah 2:41, Alma 7:14–16, Alma 32:27, D&C 14:7, D&C 20:37, John 7:17
 
-
-• Rarely, if ever, should you talk to people or teach them without extending an invitation to do something that will strengthen their faith in Christ.
-
-
-• Focus on one or more commitments when you teach. If you do not invite people to make these commitments, you are not asking them to repent and come to Christ.
-
-
-• As you prepare in companion study to teach a lesson, consider the needs and status of each investigator and include one or more commitments in your lesson plan.
-
-
-• During a lesson you may be inspired to extend commitment invitations other than those you planned. Always invite people to repent.
-
-
-• Be bold and confident as you invite people to make commitments (see Alma 38:12). Boldness shows your faith that obedience to the Lord’s commandments brings blessings.
-
-
-• People will not likely change unless they are invited to do so.
-
-
-Scripture Study
-===============
-
-
-Why is it so vital to extend invitations?
-=========================================
-
-
-Alma 5:62
-
-
-Moroni 7:13
-
-
-Why are commitments so important?
-
-
-2 Nephi 31 Mosiah 2:41 Alma 7:14–16
-===================================
-
-
-Alma 32:27 D&C 14:7
-D&C 20:37 John 7:17
-. y p o c t o n o D . y e w e D n o m S 1 0 0 2 © i
-
-
-196
-11 Keep Commitments
-===================
-
-
-Ask Direct Questions
-====================
-
-
+## Ask Direct Questions (Page 211)
 A commitment invitation often takes the form of a “will you” question, which requires a yes or no response. Invitations should be specific, direct, and clear. They invite or lead people to decide on a course of action. They require them to make a commitment and to exercise active faith in the principles you have taught them.
-
-
 Following are some examples of good invitations, followed by the beginning of a promise and testimony:
+- Will you read [3 Nephi 11, Moroni 10:3–5, this pamphlet] before our visit tomorrow at 7:00 p.m.? I know that doing so will . . . I testify that the Book of Mormon is . . .
+- Will you pray and ask God whether Joseph Smith was a prophet? I know that as you pray God will . . . I know that Joseph Smith was a prophet . . .
+- Will you attend church with us this Sunday at 9:00 a.m.? If you do, you will . . . I know that Christ’s Church has been restored . . .
+- Will you begin now to live the law of chastity as we have explained it? Living this law will . . . As a servant of the Lord I testify that living a chaste life . . .
+- Will you invite [name] before Friday to meet with us and begin learning about the gospel? The Spirit will help you . . . Sharing the gospel will bless your life . . .
+- May we come to your home and tell you more about how God has called a prophet in our day as He did in ancient times? Increased purpose, direction, and peace will come into your life as you come to understand . . . I testify that God has again called . . .
 
-
-• Will you read [3 Nephi 11, Moroni 10:3–5, this pamphlet] before our visit tomorrow at 7:00 p.m.? I know that doing so will . . . I testify that the Book of Mormon is . . .
-
-
-• Will you pray and ask God whether Joseph Smith was a prophet? I know that as you pray God will . . . I know that Joseph Smith was a prophet . . .
-
-
-• Will you attend church with us this Sunday at 9:00 a.m.? If you do, you will . . . I know that Christ’s Church has been restored . . .
-
-
-• Will you begin now to live the law of chastity as we have explained it? Living this law will . . . As a servant of the Lord I testify that living a chaste life . . .
-
-
-• Will you invite [name] before Friday to meet with us and begin learning about the gospel? The Spirit will help you . . . Sharing the gospel will bless your life . . .
-
-
-• May we come to your home and tell you more about how God has called a prophet in our day as He did in ancient times? Increased purpose, direction, and peace will come into your life as you come to understand . . . I testify that God has again called . . .
-
-
-Activity: Personal or Companion Study
-=====================================
-
-
+##### Activity: Personal or Companion Study (Page 211)
 In your study journal, write an invitation that is simple, direct, and clear for each commitment in a lesson. If you have done this activity before, repeat it and compare your new invitations with previous versions. Ask yourself whether your ability to extend invitations has improved.
-
-
 Review the invitations you have written with your companion. For each invitation, discuss the following questions:
-
-
-• Do I explain the Lord’s promised blessings as I extend invitations? If not, why?
-
-
-• Do I avoid extending this invitation? If so, why?
-
-
-• Do I feel awkward when I extend this invitation? How can I improve?
-
-
-• How important is this invitation to me personally?
-
-
-• How often do I remember to follow up on invitations I have extended? How can I improve?
-
+- Do I explain the Lord’s promised blessings as I extend invitations? If not, why?
+- Do I avoid extending this invitation? If so, why?
+- Do I feel awkward when I extend this invitation? How can I improve?
+- How important is this invitation to me personally?
+- How often do I remember to follow up on invitations I have extended? How can I improve?
 
 Think of investigators or less-active members you know, and practice extending these invitations as though you were addressing these individuals.
-
-
 As necessary, revise the invitations in your lesson plan. Set specific goals that will help you extend invitations throughout the day and week.
 
-
-Notes
-
-
-Promise People Blessings
-========================
-
-
+## Promise People Blessings (Page 211)
 People need a reason to change their thoughts and actions. Promised blessings often provide powerful motivation to obey God. When the Lord gives a commandment, He often promises blessings for keeping that commandment (see D&C 130:20–21). As you prepare people to obey a specific commandment, teach them that:
-
-
-197
-11 Keep Commitments
-===================
-
-
-Notes
-
-
-• Living the commandments shows love for God and His Son.
-
-
-• They demonstrate their trust in God as they obey His commandments.
-
-
-• In return, they will receive blessings that He has promised.
-
-
+- Living the commandments shows love for God and His Son.
+- They demonstrate their trust in God as they obey His commandments.
+- In return, they will receive blessings that He has promised.
 As you testify of a commandment, talk about the blessings you have received from living that commandment. Promise those whom you teach that they can enjoy similar blessings.
-
-
 As people strive to keep a commitment, ask them to talk about the blessings that Heavenly Father has given them. Assure them that even though difficulties will enter their lives, His blessings will continue as they obey His will.
 
-
-Scripture Study
-===============
-
-
-What does the Lord say about His desire to bless us?
-====================================================
+#### Scripture Study (Page 212)
+- What does the Lord say about His desire to bless us?
+  - Alma 37:17, D&C 1:37, D&C 76:5–10
 
 
-
-
-|  |
-| --- |
-
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 212)
 Read Doctrine and Covenants 82:10 and 130:20–21. Then study the following scriptures. Make two columns in your study journal. On one side write the commandment you find in each passage. On the other side write the promise for keeping the commandment.
+  - D&C 11:21, D&C 84:85, D&C 89:18–21, D&C 95:8–9, D&C 100:5–8, Malachi 3:10–12
 
-
-D&C 11:21 D&C 84:85
-D&C 89:18–21 D&C 95:8–9
-D&C 100:5–8 Malachi 3:10–12
 Review the commitments listed in one of the missionary lessons. For each commitment, answer these questions:
+- What blessings has the Lord promised to those who keep this commitment?
+- How will obeying this principle help people gain faith and testimony?
+- How will this commitment help people repent and be more sensitive to the Spirit?
 
-
-• What blessings has the Lord promised to those who keep this commitment?
-
-
-• How will obeying this principle help people gain faith and testimony?
-
-
-• How will this commitment help people repent and be more sensitive to the Spirit?
-
-
-Bear Testimony Frequently
-=========================
-
-
+## Bear Testimony Frequently (Page 212)
 A testimony is a spiritual witness and assur- ance given by the Holy Ghost. To bear testimony is to give a simple, direct declaration of belief—a feeling, an assurance, a conviction of gospel truth. Sharing your testimony often is one of the most powerful ways of inviting the Spirit and helping others feel the Spirit. It adds a current, personal witness to the truths you have taught from the scriptures. An effective missionary teaches, testifies, and invites others to do things that build faith in Jesus Christ. This includes making promises that come from living true principles. For example, a missionary might say, “I know as you keep the Sabbath day holy, you will find more peace in your heart.”
-
-
-“Regarding one’s testimony, remember, that which one willingly shares he keeps, while that which he selfishly keeps he loses. . . . Teach and testify. There is no better combination.”
-
-
-– ELDER THOMAS S. MONSON PATHWAYS TO PERFECTION [1973], 100–101
-
-
-For your testimony to have convincing power, you must be sincere. Powerful testimony is not dependent on eloquence or the volume of your voice but on the conviction of your
-
-
-198
-11 Keep Commitments
-===================
-
-
-heart. Strive daily to strengthen your understanding and conviction of the doctrines and principles you are to teach. Bear testimony often to seal the truth of the principles or doctrine you are teaching. As often as possible, teach, then testify, and testify as you teach.
-
-
-“Jesus Christ is the Son of God” or “I have learned for myself that the Book of Mormon is true.” You may also share a brief experience about how you gained this knowledge. Bear testimony several times in each lesson, not just at the end. Bear testimony that what your companion has taught is from God. Bear testimony that the principle you are going to teach will bless the investigators’ lives if they will follow it. Talk about how living a principle has blessed your life.
-
-
-![see page 213](#)
+For your testimony to have convincing power, you must be sincere. Powerful testimony is not dependent on eloquence or the volume of your voice but on the conviction of your heart. Strive daily to strengthen your understanding and conviction of the doctrines and principles you are to teach. Bear testimony often to seal the truth of the principles or doctrine you are teaching. As often as possible, teach, then testify, and testify as you teach.
+Your testimony may be as simple as “Jesus Christ is the Son of God” or “I have learned for myself that the Book of Mormon is true.” You may also share a brief experience about how you gained this knowledge. Bear testimony several times in each lesson, not just at the end. Bear testimony that what your companion has taught is from God. Bear testimony that the principle you are going to teach will bless the investigators’ lives if they will follow it. Talk about how living a principle has blessed your life.
 People may sometimes intellectually question what you teach, but it is difficult to question a sincere, heartfelt testimony. When you testify, pray that those you are teaching will feel the confirming witness of the Holy Ghost. When you testify, you help create an environment for investigators to feel the Holy Ghost confirming your witness of the truth. This prepares them to accept the commitments you will extend.
-
-
 Brigham Young was not baptized into The Church of Jesus Christ of Latter-day Saints during the first year of his learning about the restored gospel. But of his conversion he said: “If all the talent, tact, wisdom, and refinement of the world had been sent to me with the Book of Mormon, and had declared, in the most exalted of earthly eloquence, the truth of it, undertaking to prove it by learning and worldly wisdom, they would have been to me like smoke which arises only to vanish away. But when I saw a man without eloquence or talents for public speaking, who could only say, ‘I know by the power of the Holy Ghost that the Book of Mormon is true, that Joseph Smith is a Prophet of the Lord,’ the Holy Ghost proceeding from that individual illuminated my understanding, and a light, glory, and immortality were before me. I was encircled by them, filled with them, and I knew for myself that the testimony of the man was true” (in Journal of Discourses, 1:90).
 
-
-Activity: Personal Study
-========================
-
-
+#### Activity: Personal Study (Page 213)
 The passages below are examples of bearing testimony. Read each of the questions and scriptures. Write your answers in your study journal.
+- In these verses, of what do the apostles and prophets testify?
+- How strongly do they believe what they are saying? How can you tell that they are convinced of the truth?
+- When you say, “I know that ________ is true,” what do you mean? What other words can you use to convey your convictions?
+  - Jacob 7:7–12, Alma 5:45–48, Alma 34:1, 8; Acts 2:14–38, Acts 10:34–44, D&C 76:22–24, John 3:3–11
 
+#### Scripture Study (Page 214)
+- What are some principles and promises of bearing testimony?
+  - 2 Nephi 33:1, D&C 62:3, D&C 84:61, D&C 100:5–8, John 15:26
 
-• In these verses, of what do the apostles and prophets testify?
-
-
-• How strongly do they believe what they are saying? How can you tell that they are convinced of the truth?
-
-
-• When you say, “I know that \_\_\_\_\_\_\_\_\_\_ is true,” what do you mean? What other words can you use to convey your convictions?
-
-
-Jacob 7:7–12 Alma 5:45–48 Alma 34:1, 8
-Acts 2:14–38 Acts 10:34–44
-D&C 76:22–24 John 3:3–11
-Notes
-=====
-
-
-199
-11 Keep Commitments
-===================
-
-
-Notes
-
-
-Scripture Study
-===============
-
-
-What are some principles and promises of bearing testimony?
-===========================================================
-
-
-2 Nephi 33:1 D&C 62:3
-D&C 84:61 D&C 100:5–8
-John 15:26
-
-
-Follow Up
-=========
-
-
+## Follow Up (Page 214)
 Extending an invitation without following up is like beginning a journey without finishing it or buying a ticket to a concert without going into the theater. Without the completed action, the commitment is hollow.
-
-
 Change can be hard. Your role is to help strengthen people in their resolve to change. You should do all you can to help people keep their commitments.
-
-
-especially for commandments such as chastity, the Word of Wisdom, and tithing. As you and ward leaders work with people to help them keep their commitments, show understanding. Be patient but persistent. You have not finished your ministry until people are living these commitments, or in other words, until they have repented (see 3 Nephi 18:32). Sometimes several visits may be necessary for you to help people develop strong enough faith in a principle to lead to repentance.
-
-
+Genuine repentance is best demonstrated by righteous actions over a period of time especially for commandments such as chastity, the Word of Wisdom, and tithing. As you and ward leaders work with people to help them keep their commitments, show understanding. Be patient but persistent. You have not finished your ministry until people are living these commitments, or in other words, until they have repented (see 3 Nephi 18:32). Sometimes several visits may be necessary for you to help people develop strong enough faith in a principle to lead to repentance.
 Following up begins when you first visit and teach people:
-
-
-• Have them write their commitment on something you leave with them, such as a pamphlet or a card with your names and phone number.
-
-
-• Make sure people know that you will make brief, daily visits between teaching appointments. Explain that your purpose is to support and help them. Give them an idea of what you will do during those visits.
-
-
-• Make specific notes in the Notes/To Do List section of your planner to follow up tomorrow on every commitment invitation you have extended today.
-
+- Have them write their commitment on something you leave with them, such as a pamphlet or a card with your names and phone number.
+- Make sure people know that you will make brief, daily visits between teaching appointments. Explain that your purpose is to support and help them. Give them an idea of what you will do during those visits.
+- Make specific notes in the Notes/To Do List section of your planner to follow up tomorrow on every commitment invitation you have extended today.
 
 Make frequent contact, daily if possible, to find out how people are progressing with their commitments, answer questions, help them overcome challenges, teach additional lessons, read together from the Book of Mormon, share passages of scripture, or use audiovisual materials. As you visit people often, you will strengthen the spiritual feelings they felt as you taught them the message of the Restoration of the gospel of Jesus Christ. This sustaining influence of the Spirit is vital. There may be times when you call the investigators to remind and encourage them to keep a commitment.
-
-
 Help investigators identify the blessings they have received as they have kept their commitments. Especially help them describe their feelings as the Spirit has testified of the truthfulness of the message.
-
-
 Compliment and encourage people who are succeeding in keeping commitments. Investigators are changing their lives. They have a lot to learn and to do. Sincerely and frequently praise them. Express your gratitude for their progress and your confidence that they can succeed. Encourage them whenever you are with them.
-
-
 Express concern and disappointment when people fail to keep their commitments and thus fail to experience the blessings.
 
-
-200
-11 Keep Commitments
-===================
-
-
-Activity: Personal or Companion Study
-=====================================
-
-
-Write in your daily planner your plans for daily contact with each investigator. Plan several days in advance what you will do to follow up with investigators.
-
-
-Choose one commitment invitation you will extend when you teach the lessons. Then identify different concerns which might keep someone from accepting or keeping that commitment. Discuss and practice how you can best help people as they work to resolve their concerns.
-
-
-Notes
-
-
-Remember This
-=============
-
-
-• Focus on inviting people to make commitments in every finding or teaching situation, both with those who are not members of the Church and with Church members.
-
-
-• Extend commitment invitations to help people experience conversion.
-
-
-• Promise blessings.
-
-
-• Bear testimony.
-
-
-• Follow through to help people keep commitments.
-
-
-201
-11 Keep Commitments
-===================
-
-
-Notes
-
-
-Ideas for Study and Application
-===============================
-
-
-Personal Study
-==============
-
-
-• Identify a commandment listed in either lesson 4 or 5. Think of the blessings you have received from obeying this commandment, and write them in your journal.
-
-
-• In a letter, ask your family members how they have been blessed by obeying a specific commandment (for example, tithing).
-
-
-• Write how you feel about extending commitments. Are you bold or timid? Are you confident that people will be blessed, or do you have doubts? Are you consistent, patient, and helpful as you make daily contact? Do the people know you love them? How can you correct any weakness you identify in your invitations?
-
-
-• Review your lesson plans for each lesson. Do you include specific commitments? Does your lesson plan lead clearly to commitments?
-
-
-Companion Study
-===============
-
-
-• From your daily planner, make a list of people you have contacted in the past two days, including investigators and members. For each person, write the commitment(s) they made and other invitations you could have or should have extended. Discuss why you were able to obtain commitments from some of these people and what prevented you from obtaining commitments from others. What will you do to follow up on these commitments?
-
-
-• Look at your daily planner, and write the names of specific investigators you will teach in the next day or two. Consider which commandment(s) listed in lessons 4 and 5 you will invite them to live. Discuss how you will extend the commitment and the specific blessings you will promise for obedience.
-
-
-• Consider showing the Teaching Record to investigators to let them know what will be expected. If appropriate, share a copy with them.
-
-
-• Review the Notes/To Do List in your planner for the past three days to see if you have written your assignments to follow up on every invitation you have extended.
-
-
-District Meetings and Zone Conferences
-======================================
-
-
-• Discuss effective and creative ideas for daily contact with investigators. How have missionaries worked with members effectively? What printed or audiovisual materials are useful? What can you do when people are not home or are too busy to see you?
-
-
-• Discuss ways that missionaries have effectively taught the commandments in lessons 4 and 5.
-
-
-• Discuss specific concerns of some current investigators. What are the nature of these concerns? What can the missionaries do to resolve the concerns?
-
-
-Mission President
-=================
-
-
-• Occasionally accompany missionaries as they teach. Help them focus on helping people make and keep commitments.
-
-
-• Encourage priesthood leaders and members to actively participate in making daily contact with investigators.
-
-
-• Be an example of extending invitations in your missionary efforts and with the missionaries you serve.
-
-
-How Do I Prepare People for Baptism and Confirmation?
-=====================================================
-
-Consider This
-=============
-
-• What do I need to do to help prepare people for baptism and confirmation?
-• How do I conduct an effective baptismal interview?
-• How is a spiritual baptismal service planned and conducted?
-• How do I work closely with the bishop to ensure that converts are confirmed?
-• Why is it important to complete baptismal and confirmation records?
-
-Prepare People for Baptism and Confirmation
-===========================================
-
-their sins. As Mormon taught, “the first fruits of repentance is baptism” (Moroni 8:25). The baptismal interview is the way established by the Church to ensure that each candidate meets the Lord’s standards for baptism and is prepared to receive the gift of the Holy Ghost. Through this interview, baptismal candidates fulfill the scriptural requirement that they witness before an authorized representative of the Church that they have “truly repented of all their sins” (D&C 20:37). The commitments that investigators make prepare them to make and keep the covenant of baptism. People who have kept the commitments that you invited them to make will be well prepared for the interview and for membership and activity in the Church.
-
-
+#### Activity: Personal or Companion Study (Page 215)
+- Write in your daily planner your plans for daily contact with each investigator. Plan several days in advance what you will do to follow up with investigators.
+- Choose one commitment invitation you will extend when you teach the lessons. Then identify different concerns which might keep someone from accepting or keeping that commitment. Discuss and practice how you can best help people as they work to resolve their concerns.
+
+#### Remember This (Page 215)
+- Focus on inviting people to make commitments in every finding or teaching situation, both with those who are not members of the Church and with Church members.
+- Extend commitment invitations to help people experience conversion.
+- Promise blessings.
+- Bear testimony.
+- Follow through to help people keep commitments.
+
+## Ideas for Study and Application (Page 216)
+### Personal Study (Page 216)
+- Identify a commandment listed in either lesson 4 or 5. Think of the blessings you have received from obeying this commandment, and write them in your journal.
+- In a letter, ask your family members how they have been blessed by obeying a specific commandment (for example, tithing).
+- Write how you feel about extending commitments. Are you bold or timid? Are you confident that people will be blessed, or do you have doubts? Are you consistent, patient, and helpful as you make daily contact? Do the people know you love them? How can you correct any weakness you identify in your invitations?
+- Review your lesson plans for each lesson. Do you include specific commitments? Does your lesson plan lead clearly to commitments?
+
+### Companion Study (Page 216)
+- From your daily planner, make a list of people you have contacted in the past two days, including investigators and members. For each person, write the commitment(s) they made and other invitations you could have or should have extended. Discuss why you were able to obtain commitments from some of these people and what prevented you from obtaining commitments from others. What will you do to follow up on these commitments?
+- Look at your daily planner, and write the names of specific investigators you will teach in the next day or two. Consider which commandment(s) listed in lessons 4 and 5 you will invite them to live. Discuss how you will extend the commitment and the specific blessings you will promise for obedience.
+- Consider showing the Teaching Record to investigators to let them know what will be expected. If appropriate, share a copy with them.
+- Review the Notes/To Do List in your planner for the past three days to see if you have written your assignments to follow up on every invitation you have extended.
+
+### District Meetings and Zone Conferences (Page 216)
+- Discuss effective and creative ideas for daily contact with investigators. How have missionaries worked with members effectively? What printed or audiovisual materials are useful? What can you do when people are not home or are too busy to see you?
+- Discuss ways that missionaries have effectively taught the commandments in lessons 4 and 5.
+- Discuss specific concerns of some current investigators. What are the nature of these concerns? What can the missionaries do to resolve the concerns?
+
+
+### Mission President (Page 216)
+- Occasionally accompany missionaries as they teach. Help them focus on helping people make and keep commitments.
+- Encourage priesthood leaders and members to actively participate in making daily contact with investigators.
+- Be an example of extending invitations in your missionary efforts and with the missionaries you serve.
+
+
+> Beginning of chapter 12 of 13 chapters in the preach my gospel manual
+# How Do I Prepare People for Baptism and Confirmation? (Page 217)
+#### Consider This (Page 217)
+- What do I need to do to help prepare people for baptism and confirmation?
+- How do I conduct an effective baptismal interview?
+- How is a spiritual baptismal service planned and conducted?
+- How do I work closely with the bishop to ensure that converts are confirmed?
+- Why is it important to complete baptismal and confirmation records?
+
+## Prepare People for Baptism and Confirmation (Page 217)
+The purpose of your teaching is to help others develop faith in Jesus Christ and repent of their sins. As Mormon taught, “the first fruits of repentance is baptism” (Moroni 8:25). The baptismal interview is the way established by the Church to ensure that each candidate meets the Lord’s standards for baptism and is prepared to receive the gift of the Holy Ghost. Through this interview, baptismal candidates fulfill the scriptural requirement that they witness before an authorized representative of the Church that they have “truly repented of all their sins” (D&C 20:37). The commitments that investigators make prepare them to make and keep the covenant of baptism. People who have kept the commitments that you invited them to make will be well prepared for the interview and for membership and activity in the Church.
 As you teach investigators and prepare them for baptism and confirmation, make sure that they meet the qualifications for baptism.
 
-Qualifications for Baptism
-==========================
-
+#### Qualifications for Baptism (Page 218)
 
 Doctrine and Covenants 20:37:
 • Humble themselves before God.
