@@ -12,6 +12,8 @@ PyMuPDF = "^1.24.7"
 python-dotenv = "^1.0.1"
 llama-index = "^0.10.55"
 Flask = "^3.0.3"
+ragas = "^0.1.13"
+ipython = "^8.26.0"
 
 [tool.poetry.dev-dependencies]
 ipykernel = "^6.29.5"
