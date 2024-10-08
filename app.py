@@ -4,17 +4,22 @@ from llama_index.core import VectorStoreIndex, SimpleDirectoryReader
 from llama_index.core.node_parser import JSONNodeParser
 import json
 from flask import Flask, request, render_template
-
+from PMG.advanced_retriever import (
+    load_documents,
+    VectorStore,
+    auto_merging_engine
+)
 
 
 # Load environment variables
 _ = load_dotenv(find_dotenv())
 app=Flask(__name__)
 
-documents = SimpleDirectoryReader(input_files=["./data/Pmg_lds.md"]).load_data()
+nodes, node_parser = load_documents("./data/Pmg_lds.md")
 
-index = VectorStoreIndex.from_documents(documents)
-query_engine = index.as_query_engine()
+index = VectorStore(nodes, node_parser)
+query_engine = auto_merging_engine(index)
+
 
 @app.route("/", methods=["POST", 'GET'])
 def index():
